@@ -1,0 +1,3 @@
+13. Rector.— (I) There shall be a Rector of the HSA to be appointed by the Chancellor on recommendation of the Senate on such terms and conditions as may be prescribed.
+(2) The Rector shall be responsible for implementation of decisions of the Senate, Syndicate and Academic Council and for execution of programmes of the HSA under direction of the Vice-Chancellor.
+(3) At any time, when office of the Rector is vacant or the Rector is absent or is unable to reform functions of his office due to illness or some other cause, the Vice-Chancellor of the HSA shall make such arrangement for performance of duties of the Rector as he may deem fit.

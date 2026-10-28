@@ -1,0 +1,2 @@
+29. Rules.— (1) The Authorities and other bodies of the HSA may, by notification of official Gazette, make rules consistent with this Act, statutes and the regulations to regulate any matter relating to affairs of the HSA that is not required to be regulated by statutes or regulations, including rules to regulate conduct of business and time and place of meetings and related matters.
+(2) Rules shall become effective upon approval by the Syndicate.
