@@ -1,0 +1,2 @@
+27B. Conviction on the basis of electronic or forensic evidence etc.__ Notwithstanding anything contained in this Act or Qanun-e-Shahadat, 1984 (P.O. No. 10 of 1984) or any other law for the time being in force, a person accused of an offence under this Act may be convicted on the basis of electronic or forensic evidence or such other evidence that may have become available because of modern devices or techniques referred to in Article 164 of the Qanun-e-Shahadat, 1984 (P.O. No. 10 of 1984):
+Provided that the Court is fully satisfied as to the genuineness of such evidence]

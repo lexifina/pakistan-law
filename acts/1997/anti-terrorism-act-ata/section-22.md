@@ -1,0 +1,1 @@
+22. Manner and place of execution of sentence.− The Government may specify the manner, mode and place of execution of any sentence passed under this Act, having regard to the deterrent effect which such execution is likely to have.

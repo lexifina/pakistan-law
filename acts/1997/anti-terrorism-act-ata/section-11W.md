@@ -1,0 +1,9 @@
+11W. Printing, publishing or disseminating any material to incite hatred or giving projection to any person convicted for a terrorist act or any proscribed organization or an organization placed under observation or anyone concerned in terrorism.__ (1) A person commits an offence if he prints, publishes or disseminates any material, whether by audio or videocassettes [^62][or any form of data, storage devise, FM radio station or by any visible sign] or by written, photographic, electronic, digital, wall-chalking or any other method [^62][or means of communication] which [^62][glorifies terrorists or terrorist activities or] incites religious, sectarian or ethnic hatred or gives projection to any person convicted for a terrorist act, or any person or organization concerned in terrorism or proscribed organization or an organization placed under observation:
+Provided that a factual news report, made in good faith, shall not be construed to mean “projection” for the purposes of this section.
+[^61][(2) Any person quilty of an offence under sub-section (1) shall be punishable on conviction with imprisonment which may extend to five years and with fine.]
+[^63][11WW, Lynching.__ (1) Whenever any individuals, an organized group or a mob by taking the law in own hands inflict punishment on a person accused or suspected of a crime by causing him a hurt or his death, every such individual, a member of such group of a mob is said to commit lynching.
+(2) Whoever, commits lynching under sub-section (1) shall be punished with imprisonment for a term which may extend to three years or with fine or with both in addition to any other punishment to which he may be liable under any other law for the time being in force.]
+
+[^61]: Subs. by Act No. II of 2005, ss. 6 and 7.
+[^62]: Ins. by Act No. XX of 2013, s. 9.
+[^63]: Ins. by the Criminal Laws (Amendment) Act, 2017 (Act No. IV of 2017), s. 6.

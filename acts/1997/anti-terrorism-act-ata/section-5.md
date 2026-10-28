@@ -1,0 +1,13 @@
+5. Use of armed forces and civil armed forces to prevent terrorism.___ (1) Any police officer, or member of the armed forces, or civil armed forces, who is present or deployed in any area may, after giving sufficient warning, use the necessary force to prevent the commission of terrorist acts or scheduled offences, and, in so doing shall, in the case of an officer of the armed forces or civil armed forces, exercise all the powers of a police officer under the Code.
+(2) In particular and without prejudice to the generality of the provisions of sub-section (1), an officer of the police, armed forces and civil armed forces may__
+(i) after giving prior warning use such force as may be deemed necessary or appropriate, bearing in mind all the facts and circumstances of the situation, against any person who is committing [^12][* * * * * *] a terrorist act or a scheduled offence. [^13][it shall be lawful for any such officer, or any senior officer,] [^14][after forming reasonable apprehension that death or grievous hurt may be caused by such act or offence] to fire, or order the firing upon any person or persons against whom he is authorized to use force in terms hereof [^14][:]
+[^14][Provided that an order to open fire in such circumstances shall be given by a police officer not below the rank of BS-17 and equivalent rank in the case of a member of Armed Forces or civil Armed forces or by a Magistrate on duty:
+Provided further that the decision to fire or order firing shall be taken only by way of last resort, and shall in no case extend to the inflicting of more harm than is necessary to prevent the terrorist act or scheduled offence which has given rise to the reasonable apprehension of death or grievous hurt:
+Provided further that all cases of firing which have resulted in death or grievous injury shall be reviewed by an internal inquiry committee constituted by the head of the law enforcement agency concerned.]
+(ii) arrest without warrant, any person who has committed an act of terrorism or a scheduled offence or against whom a reasonable suspicion exists that he has committed, or is about to commit, any such act or offence; and
+(iii) enter and search, without warrant, any premises to make any arrest or to take possession of any property, fire arm, weapon or article used, or likely to be used, in the commission of any terrorist act or scheduled offence.
+(3) Nothing contained in sub-section (1) or (2) shall affect the provisions of Chapter IX of the Code and the provision of section 132 of the Code shall apply to any person acting under this section.
+
+[^12]: Omitted by Ordinance No. XIII of 1999, s. 4.
+[^13]: Subs. by Ordinance No. XXXIX of 2001, s. 4.
+[^14]: Subs. and added by Act No. VI of 2014, s. 2.

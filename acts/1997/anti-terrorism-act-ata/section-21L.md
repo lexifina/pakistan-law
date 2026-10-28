@@ -1,0 +1,1 @@
+21L. Punishment for an absconder.__ Whoever being accused of an offence under this Act, absconds and avoids arrest or evades appearance before any inquiry, investigation or court proceedings or conceals himself, and obstructs the course of justice, shall be liable to imprisonment for a term not less than 2[five years] and not more than 2[ten years] or with fine or with both.

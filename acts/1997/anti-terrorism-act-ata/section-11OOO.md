@@ -1,0 +1,6 @@
+[^55][11OOO. Violation of UN Security Council Resolution. — (1) A person is guilty of an offence if he, in any way whatsoever, refuses or fails to comply with the orders of the Federal Government under section 2 of the United Nations (Security Council) Act, 1948 (XIV of 1948).
+(2) A person guilty of an offence under sub-section (1), shall be liable on conviction to imprisonment for a term not exceeding ten years or with fine not exceeding twentyfive million rupees or with both.
+(3) If a legal person or body corporate, commits an offence under sub-section (1), such person or body corporate shall be liable on conviction to fine not exceeding fifty million rupees and every director, officer or employee of such legal person or body corporate found guilty of the violation shall be liable on conviction to imprisonment for a term not exceeding ten years or with fine not exceeding twenty five million rupees or with both.
+(4) Notwithstanding anything contained in sub-section (2), of section 11OOO, if any public servant is found negligent in complying with the provisions of sub-section (1), such public servant shall be proceeded again under respective service rules for administrative action.]
+
+[^55]: Ins. by Act No. XX of 2020, s. 4.
