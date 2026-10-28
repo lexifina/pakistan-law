@@ -1,0 +1,18 @@
+8. Financial agreements.__ (1) The provisions of the Separation Convention shall, until modified by the Provincial Government, apply mutatis mutandis to regulate the separation of the Railway finances from the General finances of the Province, and the Provincial Government shall, before the commencement of a financial year, present to the Provincial Assembly a separate Railway Budget of the estimated receipts and expenditure of the Railway for that year.
+(2) The Provincial Government shall pay to the [^8][Federal Government] every year in respect of the Railway transferred to it a return at the rate of four per cent per annum on the [^8][Federal] Government’s investments made up to the 30th day of June, 1962.
+(3) Investment in clause (2) includes__
+(a) the book value of the Railway assets taken over from the Government of India as it stood on the 14th day of August, 1947, and
+(b) such expenditure of the [^9][Federal Government] as may have been actually incurred by it up to 30th June, 1962, but may not have been included as investment in the [^9][Federal] Government’s accounts up to that date.
+(4) The Provincial Government shall, as and when due, pay to the [^9][Federal Government] the actual interest charges on all foreign loans, including foreign loans which exist at the time of the promulgation of this Order obtained by the [^9][Federal Government] for the Railways.
+(5) The [^9][Federal Government] shall be liable for repayment of the principal of such foreign loans or parts of foreign loans as have been raised by it on or before 30th day of June, 1962 or in respect of which negotiations have been finalized up to that day for Capital additions to and development of the Railway.
+(6) As and when an instalment towards repayment of a loan is paid by the [^9][Federal Government], the Provincial Government shall cease to pay interest on the loan to that extent.
+(7) The amount of the instalment paid under clause (6) by the [^9][Federal Government] shall, as from the date of such payment, form part of the [^9][Federal] Government’s investment in the Railways and the Provincial Government shall pay to the [^9][Federal Government] a return at the rate of four per cent, per annum on the amount so forming part of the [^9][Federal] Government’s investment,
+(8) The Provincial Government shall be liable for repayment of the principal of such foreign loan or parts of foreign loans as may have been raised for financing other than Capital investment in the Railways.
+(9) The subscriptions made by the employees to the Defence Savings, Provident Fund, the State Railway Provident Fund, and the General Provident Fund, including optional of voluntary subscriptions, and, in the case of the State Railway Provident Fund, the contributions made by the Railways to that Fund,__
+(a) prior to the date of the repeal of the said Ordinance, or
+(b) subsequent to such date,
+shall remain with, or, as the case may be, be transferred to the credit of the [^9][Federal Government], and that Government shall be liable to make payment to the employees out of those Funds.
+(10) The Provincial Government shall, as from the first day of July, 1962, constitute a Provincial Railway Provident Fund to be subscribed by such of its employees as enter the service of the Railways on or after that late, and as may be eligible for subscribing to it. Such subscriptions shall be credited to the Provincial Government, and that Government shall be liable to make payment to the employees out of the Fund.
+
+[^8]: Subs. by Federal Adaptation of Laws Order, 1975 (P. O. No. 4 of 1975), s. 2 and Table.
+[^9]: Subs. by Federal Adaptation of Laws Order, 1975 (P. O. No. 4 of 1975), s. 2 and Table.
