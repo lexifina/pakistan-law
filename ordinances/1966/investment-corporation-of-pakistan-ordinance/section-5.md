@@ -1,0 +1,1 @@
+5. Shares deemed to be securities under certain Acts. The shares of the Corporation shall be deemed to be included among the securities enumerated in section 20 of the Trust Act, 1882 (II of 1882), and to be approved securities for the purpose of the Insurance Act, 1938 (IV of 1938), and the Banking Companies Ordinance, 1962 (LVII of 1962).

@@ -1,0 +1,1 @@
+21. Declaration of fidelity and secrecy. Every Director, member of the Executive Committee, adviser, auditor, consultant, agent, officer or servant of the Corporation shall, before entering upon his duties, make a declaration of fidelity and secrecy in the form set out in the Schedule.
