@@ -1,0 +1,1 @@
+4. Ordinance not to apply to evacuee trust properties.___ Nothing in this Ordinance shall apply to the evacuee trust properties forming party of Trust Pool and vested in the Federal Government under the Evacuee Trust Properties (Management and Disposal) Act, 1975 (XIII of 1975).
