@@ -1,0 +1,4 @@
+2. Measures under Art. 41 of the Charter of the United Nations.― If, under Article 41 of the Charter of the United Nations signed at San Francisco on the 26th day of June 1945, the Security Council of the United Nations calls upon the [^2][Federal Government] to apply any measures, not involving the use of armed force, to give effect to any decision of that Council, the [^2][Federal Government] may, by order published in the official Gazette, make such provisions (including provisions having extra-territorial operation) as appear to it necessary or expedient for enabling those measures to be effectively applied.[^3][* * * * * * *]
+
+[^2]: Subs. By F.A.O 1975, Art. 2 and Table, for “Central Government”.
+[^3]: Omitted vide amendment United Nations (Security Council) (Amendment) Act, 2020 dated 31 July 2020 (ACTXXI of 2020) “and without prejudice to the generality of the foregoing power, provision may be made for the punishmentof persons offending against the order”.

@@ -1,0 +1,4 @@
+[^1]: For Statement of Objects and Reasons, see Gazette of India, 1947, Pt., V.p.271 This Act has been applied to Baluchistan, see Gaz. of P., 1953, Pt. I,p. 8 and also applied in the Federated Areas of Baluchistan, see Gaz. of P.1953, Pt. I, p. 152. It has also been extended to the Leased Areas of Baluchistan, see the Leased Areas (Law) Order, (G.G.O.3 of 1950.)
+[^2]: Subs. By F.A.O 1975, Art. 2 and Table, for “Central Government”.
+[^3]: Omitted vide amendment United Nations (Security Council) (Amendment) Act, 2020 dated 31 July 2020 (ACTXXI of 2020) “and without prejudice to the generality of the foregoing power, provision may be made for the punishmentof persons offending against the order”.
+[^4]: Inserted vide amendment United Nations (Security Council) (Amendment) Act, 2020(ACTXXI of 2020 dated 31 July 2020
