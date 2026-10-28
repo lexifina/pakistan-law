@@ -1,0 +1,5 @@
+13. Bar to proceedings.___(1) No proceedings shall be taken against a repatriated prisoner unless the offence for which he has been arrested or detained is also an offence under the law in force in Pakistan or in the Province thereof to which he has been repatriated.
+(2) Prior sanction for prosecution. Where the offence charged against a repatriated prisoner is one for which a prosecution could not have been instituted in 1* * * India or, if the offence had been committed in Pakistan, in any Court in Pakistan, without the sanction of an authority specified by the relevant laws, no prosecution shall be instituted against such prisoner, nor shall any proceedings be commenced or continued against him without the sanction of the authority specified for the purpose by the law in force in the Province or, failing such authority, of the [^7][[^8][Federal Government] or] the Provincial Government.
+
+[^7]: Omitted and subs. by A.O., 1961, Art. 2 and Sch. (with effect from the 23rd March, 1956).
+[^8]: Subs. by F.A.O., 1975.
