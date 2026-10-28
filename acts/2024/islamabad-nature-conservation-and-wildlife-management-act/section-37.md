@@ -1,0 +1,1 @@
+37. Power to Make Rules.__ The Federal Government may, by notification in the official Gazette make rules for matters required to be prescribed under this Act or for any other matter required to give effect to the provisions of this Act.

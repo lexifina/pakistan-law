@@ -1,0 +1,4 @@
+9. Removal and Resignation.__ (1) The Chairperson or a Board Member may by writing under his hand resign from office.
+(2) The Chairperson or a Board Member may be removed by the Federal Government, from office if on inquiry he is found incapable of performing functions of his office by reason of mental incapacity or has been found guilty of misconduct or fails to disclose conflict of interest as provided for under this Act.
+(3) The inquiry under sub-section (2) shall be conducted in accordance with the Efficiency and Discipline Rules as applicable to Civil Servants by a committee constituted by the Minister-in-Charge to which the subject of the Board is assigned.
+(4) The accused shall be given a reasonable opportunity to be heard by the inquiry committee and shall only be found guilty if majority members of the inquiry committee come to that conclusion.

@@ -1,0 +1,1 @@
+39. Power to Issue Directives, Circulars, Guidelines, etc.__ The Board shall have the power to issue such directives, codes, guidelines, circulars or notifications as are necessary to carry out the purposes of this Act or the rules and regulations made hereunder, not inconsistent with the provjsions of this Act or the rules and regulations made hereunder.

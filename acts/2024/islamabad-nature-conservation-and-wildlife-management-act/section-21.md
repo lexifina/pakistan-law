@@ -1,0 +1,1 @@
+21. Restriction on export of wild animals, trophies, etc.__ No person shall export, or attempt to export, any wild animal, trophy, or meat except without first obtaining an export permit from the Board on such terms and conditions as deemed appropriate by the Board.

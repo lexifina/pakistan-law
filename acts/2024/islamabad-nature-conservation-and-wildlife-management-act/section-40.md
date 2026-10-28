@@ -1,0 +1,1 @@
+40. Sums payable to the Board to be recoverable as land revenue.__ All sums payable to the Board in accordance with the provisions of this Act and the rules, including penalties imposed by the Board, shall be recoverable as arrears of land revenue.

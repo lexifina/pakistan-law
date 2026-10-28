@@ -1,0 +1,3 @@
+14. Buffer Zones Around Protected Areas.__ (1) An area falling within 100 meters outside the boundary of a national park or a wildlife sanctuary will be considered a protected area buffer zone provided it is a state land or acquired for this purpose.
+(2) The developments in the buffer zones including structures, roads and buildings or any other infrastructure or facility will be designed and operated in such a manner that the disturbance to wildlife in the national park is minimised.
+(3) No development shall take place in a buffer zone unless a No Objection Certificate is taken from the Board prior to the start of development.

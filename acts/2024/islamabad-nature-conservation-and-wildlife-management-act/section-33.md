@@ -1,0 +1,1 @@
+33. Appeals from Orders of the Magistrate.__ Any person aggrieved by any final order or by any sentence of the Magistrate passed under this Act may, within thirty days of communication of such order or sentence, prefer an appeal to the Court of Session.
