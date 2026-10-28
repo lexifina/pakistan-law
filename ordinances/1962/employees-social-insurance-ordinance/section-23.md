@@ -1,0 +1,8 @@
+23. Officials of Institution to check employers books.___(1) Any official of the Institution specified in the regulations, may, for the purpose of inquiring into the correctness of any of the particulars stated in the records or returns referred to in section 22, or for the purpose of ascertaining whether any the provisions of this Ordinance have been complied with,-
+(a) require an employer to furnish to him such information as he may consider necessary; or
+(b) at any reasonable time enter any establishment or other premises occupied by such employer and require any person found in charge thereof to produce and allow him to examine such accounts, books and other documents relating to the employment of persons and payment of wages, or to furnish to him such information as he may consider necessary; or
+(c) examine, with respect to any matter relevant to the purpose aforesaid, the employer, his agent, or any person found in such establishment or other premises, or any other person whom the said official has reasonable cause to believe to be or to have been an insured person.
+(2) The official mentioned in sub-section (1) shall be bound to secrecy as regards all matters with which he becomes acquainted in the performance of his duties and which do not relate to matters provided for in this Ordinance.
+(3) If the employer fails to maintain records or to submit returns as required by regulations, or otherwise fails to comply with sub-section (1) and thereby makes [^7][if] difficult to ascertain the identity of persons required to be insured or the amount of contributions payable, contributions shall be assessed on the basis of such evidence as the Institution may find satisfactory for this purpose.
+
+[^7]: Sic. Should read ”it”.

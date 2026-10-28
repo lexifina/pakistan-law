@@ -1,0 +1,2 @@
+52. Non-duplication of benefits.___(1) An insured person shall not be paid for the same Non-duplication period more than one of the benefits referred to in sections 36, 37 and 40, namely, sickness benefit, maternity benefit and injury benefit, and where any person is entitled to more than one of these benefits he shall be given only one benefit which he chooses.
+(2) No person shall be entitled to sickness benefit or maternity benefit or injury benefit for any day for which he receives wages.

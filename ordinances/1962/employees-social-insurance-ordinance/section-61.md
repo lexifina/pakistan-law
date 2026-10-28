@@ -1,0 +1,1 @@
+61. Jurisdiction of insurance courts.—Except where appeals lie to a local committee in accordance with the provisions of the regulations, an insurance court shall have exclusive jurisdiction to hear and decide appeals from decisions of the authority referred to in section 56 in respect of all claims and questions arising in the insurance area.

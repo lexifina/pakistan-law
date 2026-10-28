@@ -1,0 +1,1 @@
+66. Stay of payment pending appeal.—Where the Institution has appealed against an order of an insurance court, that court may, and if so directed by the High Court, shall, pending the decision of the appeal, withhold the payment of any sum directed to be paid by the order appealed against.

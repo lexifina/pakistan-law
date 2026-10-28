@@ -1,0 +1,4 @@
+71. Exemption from Chapters III and V and levy of special tax.___(1) The [^11][Federal Government] may, after consultation with the Institution, by notification in the official Gazette, exempt any area or establishment from the operation of the provisions of Chapters III and V and shall in such area or establishment levy a tax equal to two percent of the total wages paid by the employer.
+(2) The said tax shall be assessed and collected in such manner as may be prescribed and the proceeds thereof shall he paid into a special account in the Employees’ Social Insurance Fund and shall be utilized for building up and improving medical facilities with a view to providing in due course medical care under this Ordinance to the employees of the area or establishment.
+
+[^11]: Subs by F.A.O., 1975, Art. 2 and Table, for “Central Government”.

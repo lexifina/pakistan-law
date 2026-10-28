@@ -1,0 +1,1 @@
+14. Filling of casual vacancies.—A member of the Governing Body or of the Medical Advisory Council appointed to fill a vacancy other than a full term vacancy shall hold office only for so long as the member in whose place he is appointed would have been entitled to hold office if the vacancy had not occurred.

@@ -1,0 +1,1 @@
+28. Extinguishment of claims to contributions.— The claim of the Institution for unpaid contributions shall be extinguished after five years following the financial year within which the liability for contributions was determined.

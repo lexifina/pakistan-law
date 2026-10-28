@@ -1,0 +1,1 @@
+59. Appeal from authority's decision.—Any person aggrieved by a decision of the authority referred to in section 56 may appeal to an insurance court constituted under section 60 or to a local committee appointed under section 18, in accordance with the regulations.

@@ -1,0 +1,1 @@
+62. Transfer of appeals from one insurance court to another.—Appeals may be transferred from one insurance court to another in such manner and in such circumstances as may be specified in the regulations.

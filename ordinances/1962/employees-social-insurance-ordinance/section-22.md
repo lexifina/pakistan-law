@@ -1,0 +1,1 @@
+22. Records and returns by employers.—Every employer shall keep such records and shall submit to the Institution such returns, in such form and containing such particulars relating to persons employed by him, as may be provided in the regulations.
