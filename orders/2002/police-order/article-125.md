@@ -1,0 +1,3 @@
+125. Power to search suspected persons or vehicles in street, etc.—When in a street or a place of public resort a police officer on reasonable grounds suspects a person or a vehicle to be carrying any article unlawfully obtained or possessed or likely to be used in the commission of an offence, he may search such person or vehicle; and if the account given by such person or possessor of the vehicle appears to be false or suspicious, he may detain such article after recording in writing the grounds of such action and issue a receipt in the prescribed form and report the facts to the officer in-charge of the police station for informing the court for proceeding according to law against the person.
+CHAPTER XIV
+SPECIAL MEASURES FOR MAINTENANCE OF PUBLIC ORDER AND SECURITY

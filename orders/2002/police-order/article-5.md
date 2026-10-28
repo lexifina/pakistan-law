@@ -1,0 +1,2 @@
+5. Emergency duties of police with regard to essential services.—(1) The Government may, in an emergency, by notification in the Official Gazette, declare any specified service to be an essential service to the community.
+(2) upon a declaration being made under clause (1) and so long as it remains in force, it shall be the duty of every police officer to obey any lawful order given by a senior police officer in relation to the declaration.

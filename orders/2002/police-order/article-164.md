@@ -1,0 +1,1 @@
+164. Coordination by Federal Government.—The Federal Government shall coordinate for the purpose of efficiency in the police administration among general police areas falling under the Federal or the Provincial governments.

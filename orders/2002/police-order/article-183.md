@@ -1,0 +1,1 @@
+183. Powers to prosecute under any other law not affected.—Nothing contained in this Order shall be construed to prevent any person from being prosecuted under any other law for the time being in force for any offence made punishable under this Order.

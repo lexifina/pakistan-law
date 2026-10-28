@@ -1,0 +1,2 @@
+20. Posting of heads of police training institutions.—(1) The Federal Government shall post a police officer of the rank of Inspector General of Police as Commandant of the National Police Academy.
+(2) Provincial Police Officer or Capital City Police Officer may post an officer not below the rank of Deputy Inspector General of Police as Commandant of the police training college and an officer not below the rank of Senior Superintendent of Police as Principal of each police training school within the general police area under his charge.

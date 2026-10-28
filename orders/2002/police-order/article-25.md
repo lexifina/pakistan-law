@@ -1,0 +1,2 @@
+25. Certificate of appointment.—(1) Officers of junior ranks shall on appointment receive a certificate in the form provided in the Third Schedule. The certificate shall be issued under the seal of such officer as Provincial Police Officer or Capital City Police Officer or City Police Officer may by general or special order direct.
+(2) A certificate of appointment shall become null and void whenever the police officer named therein ceases to belong to the police.

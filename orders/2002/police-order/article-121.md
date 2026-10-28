@@ -1,0 +1,2 @@
+121. Powers with regard to assemblies and processions violating the conditions of licence.— (1) Head of District Police or Assistant or Deputy Superintendent of Police or Inspector of police or an officer in-charge of a police station may stop any procession which violates the conditions of a licence granted under the last forgoing Article, and may order it or any assembly which violates any such conditions as aforesaid to disperse.
+(2) Any procession or assembly, which neglects or refuses to obey any order given under clause (1) shall be deemed to be an unlawful assembly.

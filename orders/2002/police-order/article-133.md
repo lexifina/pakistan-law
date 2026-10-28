@@ -1,0 +1,1 @@
+133. Authority of Head of District Police over the village police.—Head of District Police shall for the purpose of carrying this Order into effect, exercise authority and control over village watchmen or village police officers.

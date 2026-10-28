@@ -1,0 +1,1 @@
+78. Functions of the Selection Panel.—The selection panel shall invite applications or nominations from the public for selection of independent members, and after interviewing eligible and willing candidates, forward names of persons twice the number of appointments to be made to the Governor.

@@ -1,0 +1,1 @@
+174. Licences and written permissions to specify conditions, etc.—Any licence or written permission granted under the provisions of this Order shall specify the period, locality, conditions and restrictions subject to which the same is granted and shall be given under the signature of the competent authority.

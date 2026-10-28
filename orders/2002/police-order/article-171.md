@@ -1,0 +1,2 @@
+171. No police officer to be liable to any penalty or payment of damages on account of acts
+done in good faith in pursuance of duty.—No police officer shall be liable to any penalty or to payment of damages on account of an act done in good faith in pursuance or intended pursuance of any duty imposed or any authority conferred on him by any provision of this Order or any other law for the time being in force or any rule, order or direction made or given therein.

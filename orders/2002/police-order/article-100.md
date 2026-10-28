@@ -1,0 +1,13 @@
+100. Functions of the Federal Police Complaints Authority.—The Federal Police Complaints Authority shall perform the following functions—
+(a) receive from District Public Safety Commission or an aggrieved person in writing on an affidavit complaint of neglect, excess or misconduct against Islamabad Capital Territory Police Officer or any member of any Federal Law Enforcement Agency;
+(b) process the complaint and refer the ordinary cases to an appropriate authority for action and report and in serious cases initiate action on its own;
+(c) receive from the Islamabad District Public Safety Commission or the Capital City District Police Officer or Head of a Federal Law Enforcement Agency any report of death, rape or serious injury to any person in police custody and take steps to preserve evidence relating to such incident;
+(d) request the Chief Justice of the High Court, in serious cases, to appoint a District and Sessions Judge for a judicial enquiry;
+(e) appoint in appropriate cases a police officer belonging to the Federal Law Enforcement Agencies who is senior in rank to the officer complained against as an inquiry officer, and supervise the inquiry proceedings;
+(f) send a copy of the report to the competent authority and direct him for departmental action based on the findings of the enquiry or registration of a criminal case as appropriate and direct the competent authority to submit a report about the action taken on the findings of the report;
+(g) inform the complainant of the outcome of the enquiry in writing as soon as possible;
+(h) where the Federal Police Complaints Authority is not satisfied with the order in cases referred under clause (f), it may send a report to the next higher authority for revision of the order by the awarding officer and the process be repeated till it is considered by the final authority;
+(i) in case of any frivolous, false or vexatious complaint, initiate legal action against the complainant;
+(j) recommend disciplinary action against an enquiry officer for willful neglect or mishandling of an enquiry;
+(k) prepare and send to the Government an annual report on matters relating generally to its functions, including any matter to which it considers attention of the Government may be drawn by reason of gravity or other exceptional circumstances, for laying the report before Parliament;
+(1) establish when necessary in consultation with the Federal Government, regional offices anywhere in the country or with the agreement of the Provincial Government designate Provincial Police Complaints Authority or District Public Safety Commission to deal with the complaints of excess or neglect.

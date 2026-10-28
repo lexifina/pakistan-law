@@ -1,0 +1,1 @@
+184. Power to amend.—Without prejudice to the power of the Federal Government to amend this Order, any Provincial government may, with the approval of the Chief Executive of the Islamic Republic of Pakistan, amend, vary or modify any provision of this Order relating to the Province on the basis of its specific requirements and circumstances.

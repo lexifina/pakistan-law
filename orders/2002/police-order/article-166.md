@@ -1,0 +1,5 @@
+166. Criminal Statistics and reports.—(1) The Provincial Government shall at such times and in such form as the Federal Government may direct, transmit statistic and reports to the Federal Government with respect to officers, offenders, criminal proceedings and the state of law and order in the Province as the Federal Government may require.
+(2) The Federal Government shall cause a consolidated abstract of the information transmitted to it under clause (1) to be prepared and laid before the National Assembly.
+(3) The Federal Government may require a Provincial Government to submit reports on such matters as may be specified in the requirements on matters connected with police performance.
+(4) A requirement under clause (3) may specify the form in which a report is to be submitted.
+(5) The Provincial Government may direct the submission of such reports and returns by the Provincial Police Officers and other police officers as it may deem proper and may prescribe the form in which such returns shall be made.

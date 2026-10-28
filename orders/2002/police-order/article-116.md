@@ -1,0 +1,3 @@
+116. Withdrawal from duty and resignation, etc.—(1) No Police officer shall withdraw from the duties of his office unless expressly allowed to do so in writing by Head of district Police or by some other officer authorised to grant such permission
+Explanation: A police officer who being absent on leave fails without reasonable cause to report for duty on the expiration of such leave shall be deemed within the meaning of this Article to withdraw himself from the duties of his office.
+(2) No police officer shall resign his office unless he has given to his superior officer notice in writing for a period of not less than two months of his intention to resign.

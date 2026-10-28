@@ -1,0 +1,1 @@
+186. Existing police deemed to be constituted under this Order.—Without prejudice to the provisions contained in Article 185, the police functioning in the Provinces and in Islamabad Capital Territory immediately before the commencement of this Order shall on such commencement be deemed to be police constituted under this Order.

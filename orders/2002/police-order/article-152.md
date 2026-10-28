@@ -1,0 +1,1 @@
+152. Penalty for frivolous or vexatious complaint.—Any person who files a complaint against the police, which on enquiry by the Police Complaints Authority is held frivolous or vexatious, shall be punished on conviction with imprisonment for six months, or with fine, which may extend to fifty thousand rupees, or with both.

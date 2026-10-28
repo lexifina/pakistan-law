@@ -1,0 +1,1 @@
+154. Power to try offences summarily.—The court trying offences under this chapter shall have power to try such offences summarily in accordance with the procedure laid down for summary trial in the Code.

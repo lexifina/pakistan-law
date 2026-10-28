@@ -1,0 +1,1 @@
+150. Penalty for contravention of orders made under Article 124.—Whoever contravenes, or abets the contravention of any order made under Article 124 shall, on conviction, be punished with imprisonment which may extend to three months, or with fine which may extend to ten thousand rupees or with both.

@@ -1,0 +1,1 @@
+113. Punishments.—Subject to the rules, a member of the police may at any time be suspended, dismissed, compulsorily retired, reduced in rank or pay, within a time scale, fined, censured or awarded any other punishment in the prescribed manner.

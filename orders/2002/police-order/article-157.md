@@ -1,0 +1,1 @@
+157. Penalty for unnecessary delay in producing arrested persons in courts.—Any police officer who vexatiously and unnecessarily delays the forwarding to a court or to any other authority to whom he is legally bound to forward any arrested person, shall, on conviction, be punished with imprisonment for a term which may extend to one year and with fine.
