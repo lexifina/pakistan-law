@@ -1,0 +1,1 @@
+8. Pakistan National Formulary.— The Federal Government shall compile and publish in the official Gazette Pakistan National Formulary comprising all drugs allowed to be imported, manufactured or sold and such Formulary may be reviewed and modified from time to time.

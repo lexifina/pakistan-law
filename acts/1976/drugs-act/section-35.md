@@ -1,0 +1,2 @@
+35. Publication of offender’s name.— (1) If any person is convicted of an offence under this Act, it shall be lawful for the Drug Court to cause the offender’s name, place of residence, the offence of which he has been convicted and the penalty which has been inflicted upon him, to be published at the expense of such person in such newspapers or in such other manner as the Court may direct.
+(2) The expenses of such publication shall be recoverable in the same manner as a fine is recoverable.

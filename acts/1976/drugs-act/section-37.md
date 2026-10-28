@@ -1,0 +1,1 @@
+37. Inspectors to be public servants.— Every Inspector shall be deemed to be a public servant within the meaning of section 21 of the Pakistan Penal Code (Act XLV of 1860), and shall be officially subordinate to such authority as the Government appointing him may specify in this behalf.

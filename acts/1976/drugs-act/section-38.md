@@ -1,0 +1,1 @@
+38. Indemnity.— Except as otherwise expressly provided in this Act, no suit, prosecution or other legal proceeding shall lie against Government or any other authority or person for anything which is in good faith done or intended to be done under this Act or any rule.

@@ -1,0 +1,1 @@
+14. Federal Drug Laboratory and institutes, etc.— The Federal Government shall, as soon as may be, establish a Federal Drug Laboratory and may also set up such other institutes and drugs testing and research laboratories for the purposes of this Act as may be prescribed.

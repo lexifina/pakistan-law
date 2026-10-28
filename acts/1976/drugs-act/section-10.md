@@ -1,0 +1,2 @@
+10. Expert Committees.— (1) The Federal Government may constitute committees of experts on Drugs Evaluation, on Pakistan Pharmacopoeia, on Advertising and on such other matters as may be necessary for the purposes of this Act.
+(2) Each committee constituted under sub-section (1) shall consist of such members as the Federal Government may appoint from time to time and each such member shall hold office during the pleasure of the Federal Government.

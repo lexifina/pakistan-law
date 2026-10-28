@@ -1,0 +1,3 @@
+16. Government Analysts.— The Federal Government or a Provincial Government may, by notification in the official Gazette, appoint such persons it thinks fit, having the prescribed qualifications, to be the Federal Government Analysts or, as the case may be, Provincial Government Analysts, for such areas and in respect of such drugs or classes of drugs as may be specified in the notification:
+Provided that no person who has any financial interest in the manufacture, import, export or sale of drugs shall be so appointed:
+Provided further that a person serving under the Federal Government or another Provincial Government shall not be so appointed without the previous consent of that Government.

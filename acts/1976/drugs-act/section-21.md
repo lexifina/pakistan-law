@@ -1,0 +1,1 @@
+21. Disclosure of the name of the manufacturer.— Every person, not being the manufacturer of a drug or his agent for the distribution thereof, shall, if so required by an Inspector, disclose to him the name, address and other particulars of the manufacturer or other person from whom he acquired the drug.
