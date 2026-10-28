@@ -1,0 +1,9 @@
+[^7][5. Interim order of protection.—(1)] When the Commissioner has directed an inquiry under section 4, he may, if he thinks fit, further direct that, until he dismisses the application or appoints an officer under section 7, sub-section (2), clause (c),-
+(a) all proceedings then pending in any Civil or Revenue Court or Office in [^5][Pakistan], in respect of any of the debts and liabilities to which the debtor is subject, or which are charged on the whole or any part of his immoveable property, shall be stayed, and the operation of all processes, executions and attachments then in force for, or in respect of, such debts and liabilities shall be suspended; and
+(b) no fresh proceedings, processes, execution or attachments shall be instituted in, or issued by, any Civil Court or Revenue Court or Office in [^8][Pakistan] in respect of such debts and liabilities.
+[^9][(2) Every direction given under sub-section (1) shall be deemed to afford protection to sureties of the debtor as well as to the debtor himself, unless in any case a surety has, by his bond, expressly accepted liability thereunder in the event of an 'order being made in respect of the debtor's property under section 7, sub-section (2), clause (c).]
+
+[^5]: The original words “to Govt.” have successively been amended by A.O., 1937 and A.O., 1961, Art. 2 (with effect from the 23rd March, 1956) to read as above.
+[^7]: The original. s. 5 was re-numbered as sub-section (1) of that section by the Sindh Incumbered Estates (Amdt.) Act, 1906 (2 of 1906), s. 3.
+[^8]: Subs. by the Central Laws (Statute Reform) Ordinance, 1960 (21 of 1960), s. 3 and 2nd Sch. (with effect from the 14th October, 1955), for “the Provinces and the Capital of the Federation”, which had been subs. by A. 0.,1949, Arts. 3 (2) and 4, for “British India”.
+[^9]: Sub-section (2) ins. by the Sindh Incumbered Estates (Amdt.) 1906 (2 of 1906), s.3.

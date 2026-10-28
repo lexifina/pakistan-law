@@ -1,0 +1,1 @@
+36. Investigation to be deemed a judicial proceeding. Every investigation conducted by the manager with reference to any claim preferred before him under this Act, or to any matter connected with any such claim, shall be taken to be a judicial proceeding within the meaning of the Pakistan Penal Code (XLV of 1860).

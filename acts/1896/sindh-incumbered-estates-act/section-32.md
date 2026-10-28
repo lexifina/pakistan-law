@@ -1,0 +1,3 @@
+[^30][32. Power to call for proceedings and pass order thereon. The Provincial Government may, of its own motion or on the application of any person concerned, call for the proceedings in any case under this Act, and pass such order thereon consistent with the provisions of this Act as it thinks fit.]
+
+[^30]: Subs. by the Sind Incumbered Estates (Amdt.) Act, 1951 (Sind Act l7 of 1951), s. 2, for the original s. 32. This section has been amended in its application to the Province of West Pakistan (except the Capital of the Federation), by the West Pakistan Act 16 of 1957, s. 3 (3) and 3rd Sch. (with effect from the 14th October, 1955).4

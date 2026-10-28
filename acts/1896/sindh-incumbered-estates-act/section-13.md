@@ -1,0 +1,4 @@
+13. Claimants to present full particulars and documents.—(1) Every such claimant shall, along with his claim, present full particulars thereof.
+(2) Every document on which the claimant founds his claim, or on which he relies in support thereof, shall be delivered to the manager along with the claim.
+(3) If the document is an entry in any book, the claimant shall produce the book to the manager, together with a copy of the entry on which he relies. The manager shall mark the book for the purpose of identification and, after examining and comparing the copy with the original, shall return the book to the claimant.
+(4) If any document in the possession or under the control of the claimant is not delivered or produced by him to the manager along with the claim, the manager may refuse to receive such document in evidence on the claimant's behalf at the investigation of the case.

@@ -1,0 +1,4 @@
+## CHAPTER III
+## OF THE ORDER OF MANAGEMENT
+8. Order of management.—(1) An order made under section 7, sub-section (2), clause (c) (hereinafter called “the order of management”), shall extend to all immoveable property, including any interest in joint immoveable property, of or to which the debtor is on the date of its publication possessed or entitled in his own right, or which he is entitled to redeem, or which may be acquired by or devolve on him during the continuance of the management, and to all debts and liabilities to which he is subject, or which are charged on the whole or any part of his immoveable property on the said date, and to the amount of any loan which may be received by the manager in the manner hereinafter provided.
+(2) The management shall be deemed to commence from the date on which the order is published.

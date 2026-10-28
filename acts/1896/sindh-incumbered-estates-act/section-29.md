@@ -1,0 +1,4 @@
+29. Mortgages, etc., made by restored jagirdar valid only for this life. When a jagirdar or zamindar has been restored under section 27, sub-section (2), to the possession of any property, no mortgage, charge, lease or alienation of such property, or of any part thereof, made or granted by such jagirdar or zamindar shall be valid as to any time beyond his natural life [^28][unless made or granted with the previous sanction of the Commissioner], [^29][or in the case of a loan granted under the Land Improvement Loans Act, 1883 (XIX of 1883), or the Agriculturists, Loans Act, 1884 (XII of 1884), with the previous sanction of the officer granting such loan].
+
+[^28]: Ins. by the Bombay Repealing and Amending Act, 1919 (Bom. 2 of 1919), s. 2 and Sch..1.
+[^29]: Ins. by the Sindh Incumbered Estates (Amdt.) Act, 1929 (Bom. 11 of 1929), s. 2.
