@@ -1,0 +1,3 @@
+32. Filing of complaints with the Authority.__ (1) Any aggrieved person may file a complaint with the Authority, for any violation or contravention of the provisions of this Act or the rules and regulations made thereunder against any other Authority , Department , developer, allottee or real estate agent, as the case may be.
+Explanation.__ For the purpose of this sub-section “person” shall include the association of allottees or any voluntary consumer association registered under any law for the time being in force.
+(2) The form, manner and fees for filing complaint under sub-section (1) shall be such as may be specified by regulations.

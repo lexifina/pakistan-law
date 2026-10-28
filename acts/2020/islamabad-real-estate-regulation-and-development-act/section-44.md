@@ -1,0 +1,1 @@
+44. Penalty for providing false information.__ If any developer provides false information or contravenes the provisions of section 4, he shall be liable to a penalty which may extend up to five percent of the estimated cost of the real estate project, as determined by the Authority.

@@ -1,0 +1,4 @@
+8. Obligation of Authority consequent upon lapse of or on revocation of registration of a
+Developer.__ Upon lapse of the registration or on revocation of the registration under this Act, the Authority, may consult the Federal Government to take such action as it may deem fit including the carrying out of the remaining development works by an authority empowered by law or by the association of allottees or in any other manner, as may be determined by the Authority:
+Provided that no direction, decision or order of the Authority under this section shall take effect until the expiry of the period of appeal provided under the provisions of this Act:
+Provided further that in case of revocation of registration of a project under this Act, the association of allottees shall have the first right of refusal for carrying out of the remaining development works.

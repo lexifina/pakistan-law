@@ -1,0 +1,2 @@
+40. Powers of Authority to issue directions.__The Authority may, for the purpose of discharging its functions under the provisions of this Act or rules or regulations made thereunder, issue such directions from time to time, to the developers or allottees or real estate agents, as the case may be, as it may consider necessary.
+(2) All directions of the Authority shall be binding on all Law enforcement agencies in Islamabad and the District Administration which shall act in assistance of the Authority.

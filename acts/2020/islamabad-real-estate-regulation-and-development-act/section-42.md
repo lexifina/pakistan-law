@@ -1,0 +1,3 @@
+42. Rectification and review of orders.__ The Authority may, at any time within a period of two years from the date of the order made under this Act, with a view to rectifying any mistake apparent from the record, amend any order passed by it, and shall make such amendment, if the mistake is brought to its notice by the parties:
+Provided that no such amendment shall be made in respect of any order against which an appeal has been preferred under this Act:
+Provided further that the Authority shall not, while rectifying any mistake apparent from record, amend substantive part of its order passed under the provisions of this Act.
