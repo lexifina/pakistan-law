@@ -1,0 +1,11 @@
+## CHAPTER II
+## THE UNIVERSITY
+3. Establishment and incorporation of the University.—(1) There shall be established a University to be called the University of Islamabad in accordance with the provisions of this Act.
+(2) The University shall consist of the following, namely:–
+(a) the Patron, the Chancellor, the members of the Board of Governors and the Vice- Chancellor;
+(b) (c) the members of the authorities of the University established under section 16; and
+(d) all University teachers, employees and persons recognized as students of the University in accordance with terms prescribed from time to time; and all full– time officers and members of the staff of the University.
+(3) The University shall be a body corporate by the name of the University of Islamabad and shall have perpetual succession and a common seal, and may sue and be sued by the said name.
+(4) The principal seat of the University shall be at Islamabad and it may set up its campuses, colleges, institutes, offices, research or study centers and other facilities at such places in Pakistan as well as abroad as the Board of Governors may determine. However additional campuses shall be set up in other parts of country/abroad only after their evaluation by the Higher Education Commission to determine whether they meet the eligibility criteria fixed by the Commission.
+(5) The University shall be competent to acquire and hold property, both movable and immovable, and to lease, sell or otherwise transfer any movable and immovable property which may have become vested in or been acquired by it in a manner as prescribed.
+(6) Notwithstanding anything contained in any other law for the time being in force, the University shall have academic, financial and administrative autonomy, including the power to employ officers, teachers and other employees on such terms and conditions as may be prescribed, subject to the provisions of this Act. In particular, and without prejudice to the authority granted to the Commission by the law, the Government or an authority or auditor appointed by the Government shall have no power to question the policy underlying the allocation of resources approved by the Board of Governors in the annual budget of the University.
