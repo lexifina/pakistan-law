@@ -1,0 +1,2 @@
+26. Land regime.—(1) The Provincial Government of each Province or any concerned authority shall nominate, for each SEZ, a sub-registrar who shall be the exclusive authority with which all documents relating to that SEZ shall be liable to be registered under this Act, zone regulations and any other applicable law.
+(2) Notwithstanding any other law in force, a developer may not sell, sub-lease or otherwise transfer any rights with respect to any immovable property within a SEZ except through a duly registered instrument.

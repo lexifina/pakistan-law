@@ -1,0 +1,13 @@
+22. Sanctions against developers.—(1) The SEZ Authority may, if it is satisfied after notice and a hearing that a developer is not acting in accordance with the terms of its development agreement or is acting in violation of applicable zone regulations or applicable legislation and has failed to rectify such violation despite notice to this effect, suspend the development agreement of that developer and move for cancellation of such agreement to the BOA or impose such other penalty as may be provided under the applicable zone regulations or the development agreement.
+(2) Upon receipt of an application from the [^14][concerned] SEZ Authority seeking cancellation of a development agreement, the BOA shall give notice to the developer concerned, asking it to show cause why its development agreement should not be cancelled or why such lesser penalty as may be provided under applicable zone regulations should not be imposed.
+(3) Pending the final decision of the BOA on a proposal for cancellation of a particular development agreement, the SEZ Authority may appoint an interim administrator or take such interim measures as it is necessary to do so—
+(a) in the public interest; or
+(b) to prevent any of the affairs of any SEZ being conducted in a manner detrimental to the interests of stakeholders, zone enterprises or other persons whose interest are likely to be affected or in a manner prejudicial to the interests of the SEZ.
+(4) Pending the final decision of the BOA, on a proposal for cancellation of a particular development agreement, the SEZ Authority may, if it is satisfied that it is necessary to secure the proper management of any zone, issue directions to developers generally or to any developer in particular to carry out such changes as are necessary to rectify the situation and the developers shall be bound to comply with such directions.
+(5) Following a hearing in person, in which the developer may be represented by counsel, the BOA may impose such penalty as is provided by the applicable zone regulations or the development agreement, which may include cancellation of a development agreement or cancellation of any benefits allowed to a developer, provided that any cancellation of benefits to a developer shall be without prejudice to the rights and privileges of zone enterprises.
+(6) The BOA may only cancel a development agreement if it finds that—
+(i) the developer has violated its development agreement; and
+(ii) that the developer has failed to rectify such violation despite notice.
+(7)[^14][ * * * * * * *]
+
+[^14]: Subs. and omitted by Act No. XXXIV of 2026, s.14.

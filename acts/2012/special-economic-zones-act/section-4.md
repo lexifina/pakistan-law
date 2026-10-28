@@ -1,0 +1,1 @@
+4. Establishment of special economic zones.― The Federal Government and Provincial Governments may establish special economic zones by themselves or in collaboration with private parties under various modes of collaboration including public-private partnership or exclusively through the private parties as provided under this Act.
