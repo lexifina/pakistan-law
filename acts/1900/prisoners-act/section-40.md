@@ -1,0 +1,4 @@
+40. Persons confined beyond limits of appellate jurisdiction of High Court. Where a person is confined in a prison beyond the local limits of the appellate jurisdiction of a High Court, any Judge of such Court may, if he thinks that such person should be removed under this Part for the purpose of answering a charge of an offence or of giving evidence in any criminal matter in such Court or in any Court subordinate thereto, apply in writing to the [^51][Provincial Government] of the territories within which the prison is situate, and the [^51][Provincial Government] may, if it thinks fit, direct that the person be so removed, subject to such rules regulating the escort of prisoners as the [^52][Provincial Government] may prescribe.
+
+[^51]: Subs. by A. O.,1937, for “L. G.”.
+[^52]: Subs. ibid., for “G.G. in C.”

@@ -1,0 +1,3 @@
+4. Officers in charge of prisons to return writs, etc., after execution or discharge. The officer in charge of a prison shall forthwith, after the execution of every such writ, order or warrant as aforesaid other than a warrant of commitment for trial, or after the discharge of the person committed thereby, return such writ, order or warrant to the Court by which the same was issued or made, together with a certificate, endorsed thereon and signed by him, showing how the same has been executed, or why the person committed thereby has been discharged from custody before the execution thereof.
+_____
+P ART III.___ [PRISONERS IN THE PRESIDENCY-TOWNS.] Ommitted by A.O., 1949, Sch.
