@@ -1,0 +1,3 @@
+8. Suit for recovery of written off finances, etc. [^6][(1) Subject to sub-section (2) and notwithstanding anything contained in the Limitation Act, 1908 (IX of 1908) or any other law, a financial institution may, within five years, file a suit for the recovery of any amount written-off, released or adjusted under any agreement, contract, or consent, including a compromise or withdrawal of any suit or legal proceedings or adjustment of a decree between a financial institution and a customer, if it has reasons to believe that the amount was written-off, released or adjusted for political reasons or considerations other than bona fide business considerations.]
+
+[^6]: Subs. by Act No. XXXVIII of 2016, s. 4.

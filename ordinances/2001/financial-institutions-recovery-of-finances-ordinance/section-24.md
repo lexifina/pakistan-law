@@ -1,0 +1,2 @@
+24. Application of the Limitation Act, 1908 (Act IX of 1908). (1) Save as otherwise provided in this Ordinance, the provisions of the Limitation Act, 1908 (Act IX of 1908) shall apply to all cases instituted or filed in a Banking Court after the coming into force of this Ordinance.
+(2) A suit under section 9 may be entertained by a Banking Court after the period of limitation prescribed therefor, if the plaintiff satisfies the Banking Court that he had sufficient cause for not filing the suit within such period.

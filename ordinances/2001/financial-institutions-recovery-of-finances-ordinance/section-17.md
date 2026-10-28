@@ -1,0 +1,2 @@
+17. Final Decree.—(1) The final decree passed by a Banking Court shall provide for payment from the date of default of the amounts found to be payable on account of the default in fulfillment of the obligation, and for costs including, in the case of a suit filed by a financial institution cost of funds determined under section 3.
+(2) The Banking Court may, at the time of passing a final decree, also pass an order of the nature contemplated by sub-section (1) of section 16 to the extent of the decretal amount.
