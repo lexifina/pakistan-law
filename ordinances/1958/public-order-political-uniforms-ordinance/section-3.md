@@ -1,0 +1,4 @@
+3. Prohibition of uniforms in connection with political objects.___Subject as hereinafter provided, any person who in any public place or at any public meeting marches or parades in military order or wears uniform signifying his association with any political organization or with the promotion of any political object shall be guilty of an offence :
+Provided that if the District Magistrate is satisfied that the wearing of any such uniform as aforesaid on any ceremonial, anniversary, or other special occasion will not be likely to involve risk of public disorder, he may, with the previous consent of the [^1][Provincial Government], by written order permit the wearing of such uniform on that occasion either absolutely or subject to such conditions as may be specified in the order.
+
+[^1]: Subs. by the Central Adaptation of Laws Order, 1964 (President’s Order No. 1 of 1964), Art. 2 and Schedule.
