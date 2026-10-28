@@ -1,0 +1,2 @@
+14. Penalty.— (1) Any travel agency which contravenes or fails to comply with the provisions of this Act or the rules or violates the prescribed code of conduct shall, without prejudice to any other action that may be taken against it under this Act, be punishable with fine which may extend to twenty­five thousand rupees.
+(2) No court shall take cognizance of an offence punishable under this Act except upon a complaint made in writing by or under the authority of the Federal Government.
