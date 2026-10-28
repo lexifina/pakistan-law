@@ -1,0 +1,6 @@
+3. Appointment and duties of Competent Authority.—(1) The Federal Government may, by notification in the official Gazette, appoint one or more Competent Authorities for carrying out the purposes of this Act.
+(2) The Competent Authority may, for carrying out the purposes of this Act,—
+(a) prepare or cause to be prepared schemes of studies, curricula, manuscripts of text-books and schedules or strategy for their introduction in various classes of an institution in connection with the implementation of the education policy of the Federal Government;
+(b) approve manuscripts of text-books produced by other agencies before they are prescribed in various classes of an institution; and
+(c) direct any person or agency in writing to delete, amend or withdraw any portion, or the whole, of the curriculum, text-book or reference material prescribed for any class of an institution within a period specified in such directive.
+(3) Action on the directive of the competent Authority under clause (c) of sub-section (2) shall be taken as soon as possible by the person or agency and an implementation report shall be submitted to the Competent Authority within such period as may be laid down in the directive.
