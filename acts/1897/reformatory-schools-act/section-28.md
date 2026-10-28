@@ -1,0 +1,1 @@
+28. Penalty for abetting escape of youthful offender. Whoever abets an escape, or an attempt to escape on the part of a youthful offender from a Reformatory School, or from the employer of such youthful offender, shall be punishable with imprisonment for a term which may extend to six months, or with fine not exceeding two hundred rupees, or with both.

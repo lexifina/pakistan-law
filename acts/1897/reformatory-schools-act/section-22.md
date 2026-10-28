@@ -1,0 +1,4 @@
+22. Superintendent to be deemed guardian of youthful offenders.—(1) The Superintendent of a Reformatory School shall be deemed to be the guardian of every youthful offender detained in such school, within the meaning of [^21][Ordinance No. LVI of 1962].
+Power to apprentice youthful offender. — (2) If it appears to the Superintendent that any youthful offender licensed, under section 18 has behaved well during one or more periods of his license, the Superintendent may, with the sanction, of the Committee, apprentice him under the provisions of the said Act, and on such apprenticement the right to detain such youthful offender in a Reformatory School shall cease, and the unexpired term (if any) of his sentence shall be cancelled.
+
+[^21]: Subs. and omitted by Ord. XXVII of 1981, s. 5 and Sch. IV (only to the extent of ICT).
