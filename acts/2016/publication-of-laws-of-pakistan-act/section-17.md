@@ -1,0 +1,2 @@
+17. Translation of the laws of Pakistan.—(1) The Cell shall regulate the publication of translation of laws of Pakistan 2[in its respective domain] and issue guidelines, from time to time, for standard translation of laws of Pakistan in Urdu and other Provincial languages of Pakistan.
+(2) All the provisions applicable to the laws of Pakistan under this Act and the rules made thereunder shall, in so far as may be practicable, also apply to the translations of the laws of Pakistan and the publications thereof.

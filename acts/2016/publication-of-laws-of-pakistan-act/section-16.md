@@ -1,0 +1,1 @@
+16. Disclaimer by the publisher.—Any disclaimer given by the publisher in his publication containing a law of Pakistan shall not exonerate him from the civil and criminal liability created under this Act.
