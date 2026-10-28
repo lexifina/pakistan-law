@@ -1,0 +1,1 @@
+11. Penalty. Whoever contravenes any provision of this Ordinance or of any order made, notification issued or direction given under this Ordinance shall be punishable with imprisonment for a term which may extend to three years, or with fine, or with both.
