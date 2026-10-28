@@ -1,0 +1,1 @@
+9. Indemnity. No suit or other legal proceeding shall lie against the Federal Government or the Administrator or any other person in respect of anything in good faith done or intended to be done under this Ordinance.
