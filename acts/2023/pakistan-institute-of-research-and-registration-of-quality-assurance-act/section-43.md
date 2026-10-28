@@ -1,0 +1,1 @@
+43. Proceedings of authorities not invalidated by the reason of vacancies.— No act, resolution or decision of any authority shall be invalid by the reason of any vacancy on the Authority doing, passing, or making it or by reason of any want of qualification or appointment or nomination of any de-facto member or the authority, whether present or absent.

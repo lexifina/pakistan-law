@@ -1,0 +1,2 @@
+39. Benefits and Insurance.__ (1) The Institute shall constitute for the benefit of its employees in such manner and subject to such conditions as may be prescribed, such Schemes for the provisions of post-employment benefit as well as health and life insurance while ln service.
+(2) Where any provident fund has been constituted under this Act the provision of Provident Fund Act, 1925 (XIX of 1925) shall apply to such fund.

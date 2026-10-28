@@ -1,0 +1,1 @@
+46. Flaws in constitution of authority.—Where there is flaw in the constitution of an authority, as constituted by this Act, the statutes or the regulations, institutions or other body outside the Institute has been dissolved or has ceased to function or because of some other similar reasons, such flaws shall be removed in such manner as the Board of Governors directed.
