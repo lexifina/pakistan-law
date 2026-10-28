@@ -1,0 +1,10 @@
+4. Substitution of section 4, Act X of 2015.—In the said Act, for section 4, the following shall be substituted, namely:-
+“4. Local areas.—(1) For the purposes of this Act, the Government shall, by notification, specify the Islamabad Capital Territory into three Town Corporations, each Town Corporation shall comprise, as far as practicable, to the territorial limits of a National Assembly constituency within Islamabad Capital Territory.
+(2) Each Town Corporation shall comprise such number of Union Councils as may be notified by the Government. The Union Council shall be delimited on the basis of population equality, having regard to the latest official census and administrative convenience.
+(3) The Government shall, by notification, specify the limits of each Union Council comprised therein, and shall declare whether any area shall be constituted as, merged into, or cease to be a Union Council accordingly.
+(4) The Government may, by notification, after inviting public objections and suggestions in the prescribed manner, alter the limits of—
+(a) a Town Corporation; or
+(b) a Union Council,
+(5) Any two or more adjoining Union Councils within a Town Corporation may, after inviting public objections, by a resolution passed by a two-third majority of the total membership of each concerned Union Council, make a proposal to the Government for alteration of their respective boundaries, subject to the conditions specified in sub-section (4).
+(6) The Government may alter the limits of a Town Corporation or Union Council under this section after the initiation of delimitation proceedings, but shall not alter such limits after the announcement of the election schedule for a local government election in the relevant area.
+(7) Notwithstanding anything contained in this Act, the Metropolitan Corporation functioning before the commencement of this Ordinance shall continue to exist and shall exercise and perform all powers, functions and duties under this Act until such time as the Government, by notification in the official Gazette, constitutes and notifies Town Corporations in accordance with section 4(1).”.
