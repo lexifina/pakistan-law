@@ -1,0 +1,2 @@
+4. Jurisdiction of Special Court.___(1) Notwithstanding anything contained in the Code of Criminal Procedure, 1898 (Act V of 1898), or the Provincial Motor Vehicles Ordinance, 1965 (W.P Ordinance No. XIX of 1965), the traffic offences shall be triable exclusively by a Special Court.
+(2) If in the course of a trial before the Special Court, the Court is of opinion that any of the offences which the accused is alleged to have committed is not a traffic offence, the Court shall record such opinion and try the accused only for such offence, if any, as is a traffic offence.
