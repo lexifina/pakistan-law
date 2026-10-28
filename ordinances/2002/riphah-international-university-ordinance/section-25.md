@@ -1,0 +1,1 @@
+25. Rules.____ The Academic Council may make rules, consistent with this Ordinance, the Statutes and the Regulations, to regulate any other matter relating to the affairs of the University which under this Ordinance are not specifically required to be provided for by the Statutes or the Regulations.

@@ -1,0 +1,2 @@
+28. Removal of difficulties.____ (1) If any difficulty arises in giving effect to the provisions of this Ordinance, the Chancellor shall make such order, not inconsistent with the provisions of this Ordinance, as may appear to him to be necessary for removing the difficulty.
+(2) Where this Ordinance makes any provision for anything to be done, but no provision has been made as respects the authority by whom, or the time at which, or the manner in which, it should be done, then it shall be done by such authority, at such time and in such manner as the Chancellor may direct.
