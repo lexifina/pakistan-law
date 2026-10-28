@@ -1,0 +1,3 @@
+231. Omitted by Finance Act, 2005 471
+CHAPTER XII TRANSITIONAL ADVANCE TAX PROVISIONS
+231A. Omitted by the Finance Act, 2021 472

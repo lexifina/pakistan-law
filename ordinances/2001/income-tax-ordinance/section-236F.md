@@ -1,0 +1,1 @@
+236F. Omitted through Finance Act, 2020 486 236G. Advance tax on sales to distributors, dealers and wholesalers 486 236H. Advance tax on sales to retailers 487 236HA Omitted by the Finance Act, 2021 487

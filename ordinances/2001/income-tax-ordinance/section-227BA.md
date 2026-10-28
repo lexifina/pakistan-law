@@ -1,0 +1,5 @@
+227BA. Reward and benefits for certain persons 458 227C Omitted through Finance Act 2019 458 227D National faceless centre 459 227E E-hearing 459
+PART II DIRECTORATES-GENERAL
+228. The Directorate-General of Internal Audit 460 228A. Directorate General (Field Compliance), Inland Revenue. 460 229. Directorate General of Training and Research 461 230. Directorate General (Intelligence and Investigation), Inland Revenue .. 461
+PART III DIRECTORATES-GENERAL
+230A. Directorate-General of Withholding Taxes 462 230B. Directorate-General of Law 462 230C. Directorate-General of Research and Development 462 230D. Directorate-General of Broadening of Tax Base 462 230E. Directorate-General of Transfer Pricing 463 230F. Directorate-General of Immovable Property. 464 230G. Directorate General of Special Initiative 467 230H. Directorate General of Valuation 468 230I. Directorate General of Compliance Risk Management 468 230J. International Centre of Tax Excellence 468 230K. Tax Fraud Investigation Wing Inland Revenue 470

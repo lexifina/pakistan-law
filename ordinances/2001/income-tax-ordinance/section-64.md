@@ -1,0 +1,1 @@
+64. Omitted by Finance Act, 2015. 125 64A Section re-numbered as 60C 126 64AB Section re-numbered as 60D 126 64B. Tax credit for employment generation by manufacturers 126 64C. Omitted by Finance Act, 2021 128 64D. Tax credit for integration. 128 65. Miscellaneous provisions relating to tax credits 128

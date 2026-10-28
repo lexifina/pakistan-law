@@ -1,0 +1,3 @@
+120A. Omitted by Finance Act, 2013 245 120B. Restriction of proceedings 245 121. Best judgment assessment 245 122. Amendment of assessments 247 122A. Revision by the Commissioner 251 122B. Revision by the Chief Commissioner 252 122C. Omitted by the Finance Act, 2017 252 122D. Agreed assessment in certain cases 253 122E. Faceless audit and assessment. 254 123. 124. Provisional assessment in certain cases Assessment giving effect to an order .. 254 255
+124A. Powers of tax authorities to modify orders, etc. 257 125. Assessment in relation to disputed property 257 126. Evidence of assessment 258
+PART III APPEALS

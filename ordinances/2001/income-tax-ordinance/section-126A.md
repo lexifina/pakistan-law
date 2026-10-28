@@ -1,0 +1,1 @@
+126A. Omitted by the Finance Act, 2025 259 127. Appeal to the Commissioner (Appeals) 259 128. Procedure in appeal 261 129. Decision in appeal 262 129A. Faceless appeals 264 130. Appellate Tribunal 265 131. Appeal to the Appellate Tribunal 268 132. Disposal of appeals by the Appellate Tribunal 269 133. Reference to High Court 273 133A. Independent case scrutiny committee. 276
