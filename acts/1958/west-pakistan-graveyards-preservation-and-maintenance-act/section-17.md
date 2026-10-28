@@ -1,0 +1,1 @@
+17. Government to provide funds for compensation. The Government shall place at the disposal of the Committee such funds as may be necessary for the payment of compensation under section 8 and for the proper management of the graveyard.

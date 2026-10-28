@@ -1,0 +1,1 @@
+6. Application for exclusion of land from the area of graveyard. Any person who claims to have acquired any title to any land or property included within the limits defined in the notification issued under section 5, may within three months of the date of such notification, apply to the Government for the exclusion of such land or property from the area of the graveyard.

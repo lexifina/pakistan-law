@@ -1,0 +1,1 @@
+5. Preliminary notification. When a report under section 4 has been received the Government shall issue a preliminary notification defining the limits of the area proposed to be declared as the area of the graveyard specifying the encroachments and requiring, within a time to be specified, the removal of all encroachments from that area.

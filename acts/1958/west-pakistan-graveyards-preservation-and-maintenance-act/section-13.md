@@ -1,0 +1,1 @@
+13. Graveyard to be a trust. The possession of the entire land and property comprising the graveyard as defined in the notification issued under section 12 shall vest in the Committee and shall be held by it in trust for use as a graveyard and for such other ancillary purposes as may, in the opinion of the Government, be necessary for the proper maintenance of the graveyard.

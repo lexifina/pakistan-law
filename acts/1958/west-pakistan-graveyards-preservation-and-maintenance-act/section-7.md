@@ -1,0 +1,1 @@
+7. Appointment of a Tribunal. The Government shall appoint a Tribunal consisting of a person who is, has been or is qualified to be appointed a District and Sessions Judge to dispose of the applications presented under section 6 in accordance with the provisions of sections 8 and 9.

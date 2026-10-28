@@ -1,0 +1,1 @@
+11. Appeal. Any person aggrieved by a final order passed by the Tribunal in proceedings under sub-section (1) of section 8 or section 9 or 10 may appeal to the High Court within one month of the date of the order and any order passed by the High Court in appeal shall be final.
