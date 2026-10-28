@@ -1,0 +1,9 @@
+## CHAPTER-VII
+## CONTRACTS BY AUTHORITY, OUTSOURCING AND LICENSING
+23. Contracts by Authority etc.__ (1) Every contract on behalf of the Authority, shall be made by the Managing Director or such other officer of the Authority as may be generally or specially empowered in this behalf by the Authority and shall be sealed with the common seal of the Authority.
+(2) The Authority may enter into any contract or arrangement with any person, entity, company, agency, authority, or organization national or international and may outsource land port operations and any of its functions or activities, including development works, through any mode including pubic private partnerships:
+Provided that the land port operations can be out sourced to only such land port operators who is registered under the provisions of the Customs Act, 1969 (IV of 1969) and rules made thereunder.
+(3) Notwithstanding anything contained in any other law, the Authority shall prior to inviting proposals for bids, prescribed by regulations the criterion for selection of land port operator and Service Provider and award contracts accordingly.
+(4) For the performance of functions and carrying out activities, the Authority may delegate, outsource or lease or assign the right and collection of any user fees, dues or charges under this Act to such private entity, operator or entity as the case may be.
+(5) In accordance with the provisions of the Public Private Partnership Authority Act, 2017 (VIII of 2017), and rules and regulations made thereunder, the Governing Council may, by regulations, prescribe the manner, methods and procedures for undertaking public private partnerships under this Act.
+(6) In accordance with the provisions of the Public Procurement Regulatory Authority Ordinance, 2002 (XXII of 2002), any rules and regulations made thereunder, the Governing Council may, by regulations, prescribe the manner, methods and procedures for undertaking procurement under this Act.

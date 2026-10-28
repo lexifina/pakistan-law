@@ -1,0 +1,4 @@
+8. Meetings of the Authority.__ (1) The Chairperson may call and preside a meeting of the Authority at such times and at such places as may be specified by him or in his absence, the Additional Secretary of the Administrative Division may call and preside the meeting.
+(2) The quorum of a meeting of the Authority shall be the majority of the total members and all order and decisions of the Authority shall be taken by vote of majority of the members present, and shall be recorded, in writing, by the Secretary.
+(3) If an ex-officio Member is unable to attend the meeting, he may authorize any of his officer, not below the rank of BPS-20 or equivalent, to attend the meeting in his place.
+(4) No proceeding, meeting, or decision of the Authority shall be called in question or invalidated for the reason of a defect or vacancy in the constitution of the Authority.

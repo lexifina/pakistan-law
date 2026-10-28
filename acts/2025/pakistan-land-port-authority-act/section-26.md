@@ -1,0 +1,1 @@
+26. Cognizance of offences.__ Notwithstanding anything contained in any other law for the time being in-force, unless there is anything inconsistent with the provisions of this Act, the provisions of the Code of Criminal Procedure, 1898 (Act No. V of 1898) shall mutates mutandis apply to the proceedings under this Act.

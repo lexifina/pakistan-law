@@ -1,0 +1,1 @@
+43. Purchase, lease or exchange of property.__ The Authority may purchase, lease or exchange any land or building or any other property by entering into an agreement with the owner of the property, or a person legally competent to sell, lease out or exchange such property.

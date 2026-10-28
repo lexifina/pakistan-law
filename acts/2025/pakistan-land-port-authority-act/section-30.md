@@ -1,0 +1,1 @@
+30. Exemption and power to remit.__ In special cases, the Authority may, with the approval of the Governing Council, waive or remit in full the whole or any portion of fees, dues, charges, rentals and other amounts under section 29 on such terms as specified in the aforesaid approval.

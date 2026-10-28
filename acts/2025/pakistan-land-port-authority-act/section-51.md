@@ -1,0 +1,2 @@
+51. Confidential Information.__ (1) Except as provided under the Rules made under this Act, no person shall communicate or allow to be communicated, any record or information obtained pursuant to this Act, to a person not legally entitled to that record or information or allow any person not legally entitled to that record or information to have access to any record obtained under this Act.
+(2) Any person who contravenes the provisions of this section, shall be punished in such manner, as may be Prescribed.

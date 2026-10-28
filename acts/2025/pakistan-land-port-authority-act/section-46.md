@@ -1,0 +1,1 @@
+46. Industrial Relations Ordinance, 1969, etc. not to apply.__ Nothing contained in the Industrial Relations Act, 2012 (X of 2012) or in any other law relating to labour or trade unions for the time being in force shall apply in relation to the Authority or any of the members, employees, functionaries, officers, experts, consultants and advisors of the Authority.

@@ -1,0 +1,1 @@
+50. Authority to be exempt from taxation.__ Notwithstanding anything contained in any other law, for a period of five years starting from the commencement of this Act, the Authority shall be exempt from the payment of income tax. For this purpose, the Federal Government may take all necessary administrative measures, and pass all requisite orders, instructions or notifications.

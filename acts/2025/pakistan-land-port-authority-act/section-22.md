@@ -1,0 +1,5 @@
+22. Power to implement directions.__ (1) Any person may lodge a complaint regarding any of the matters enumerated in sub-section (1), to the Controller.
+(2) The Controller shall, either on his own or upon the complaint of any person under sub-section (2), immediately place the matter before the Management Board.
+(3) The Management Board, if the complaint pertains to any employee of the Authority or any land port operator, shall decide the matter within three days after providing such delinquent an opportunity of being heard. Where the complaint is against a person of the other Government Agencies, the matter shall be forwarded to the concerned officer of that Government Agency to be dealt under their respective laws.
+(4) Where a complaint has been received against Chairperson of the Management Board, the same shall be placed before the Authority, who shall decide the same within seven days, in the manner prescribed:
+Provided that the decision of the Authority, under this sub-section, shall be final.

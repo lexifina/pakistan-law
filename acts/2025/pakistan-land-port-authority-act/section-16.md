@@ -1,0 +1,1 @@
+16. Members Not to engage in other businesses.__ Any Member, except the president of the Federation of Pakistan Chambers of Commerce and Industry or his nominee, shall not, during their respective term of office, engage with, for compensation or profit, any person or entity engaged in land port operations, or any part thereof, under this Act.

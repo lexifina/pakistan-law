@@ -1,0 +1,9 @@
+## BORDER CONTROL
+14. Coordination, Trade Facilitation and Border Controls.__ (1) For the performance of functions under this Act, the Authority shall provide office space and areas, duly designated for different Government Agencies within each land port and ensure provision of basic requirements.
+(2) The Authority shall be solely responsible for coordinating with all relevant Government Agencies for performance of their functions and for implementing border control, and shall facilitate the working of such agencies at land ports.
+(3) For purposes mentioned in sub-section (2), the Authority shall issue standard operating procedures, code of operations and may enter into arrangements, where required, with Government Agencies.
+(4) The Authority may, whenever required, request the assistance of Government Agencies to maintain peace and security at land ports, in accordance with applicable laws.
+(5) Notwithstanding anything contained in any provisions of this Act, the Government Agencies shall discharge their functions under their respective laws.
+(6) If any dispute arises with regard to coordination amongst the Government Agencies, standards or in their roles and duties amongst each other or any other dispute under this Act, such disputes shall be settled by the Authority.
+(7) If any Government Agency is not satisfied with the resolution of the dispute under sub-section (6), such agency may refer the matter to the Governing Council, which shall decide upon the matter on expeditious basis and such decision shall be binding on all Government Agencies.
+(8) For the purposes of trade facilitation, integrated border management, interagency cooperation, implementing standards, reduction in dwell time and other interagency issues for clearance of goods, the working of relevant Government Agencies shall be coordinated for operational efficiency. The data and information in this respect shall be maintained and published by the Authority.
