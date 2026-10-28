@@ -1,0 +1,1 @@
+24. Act does not permit increase of rent if not otherwise permissible. ___Nothing in this Act shall be deemed to entitle a landlord to increase the rent of any premises in any case in which he would not be entitled to do so if this Act had not been enacted.

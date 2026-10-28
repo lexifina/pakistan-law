@@ -1,0 +1,1 @@
+14. Review. ___The Controller may review any order made or deemed to be made by him under this Act and the provisions of Order XLVII in the First Schedule to the Code of Civil Procedure, 1908 (V of 1908), shall so far as may be, apply to such review.

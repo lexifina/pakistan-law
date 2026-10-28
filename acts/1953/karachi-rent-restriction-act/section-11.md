@@ -1,0 +1,5 @@
+11. Easement not to be disturbed.___ 2[(1)] No landlord or his contractor workman or servant shall, without the previous written consent of the Controller or save for the purposes of effecting repairs or complying with a municipal requisition, wilfully disturb any convenience or easement annexed to the premises, or remove, destroy or render unserviceable anything provided for permanent use therewith or discontinue or cause to be discontinued any supply or service comprised in the fair rent.
+[^10][(2) Where a landlord contravenes the provisions of sub-section (1) the tenant in occupation of a premises may make an application the Controller complaining of such contravention.
+(3) If the Controller, on enquiry, finds that the tenant has been in enjoyment of the amenities and that they were cut off or withheld by the landlord without just or sufficient cause, he shall make an order directing the landlord to restore such amenities.]
+
+[^10]: Added. by the Karachi Rent Restriction (Amdt.) Ordinance No. XLVIII of 1962, ss. 5 and 6.
