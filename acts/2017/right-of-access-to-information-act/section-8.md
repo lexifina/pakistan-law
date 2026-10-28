@@ -1,0 +1,1 @@
+8. Computerisation and voluntary disclosure of record.— Each public body shall endeavour to ensure within the time prescribed in section 5 and that all record accessible under this Act is computerised and is available online so that authorized access to such public records is facilitated.

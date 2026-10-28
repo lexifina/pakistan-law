@@ -1,0 +1,1 @@
+12. Where information requested for is not held. —Where a public body does not hold information or record, the applicant shall be informed accordingly within ten working days of the receipt of the request.

@@ -1,0 +1,14 @@
+5. Publication and availability of record. — (1) The principal officer of each public body shall, within six months of the commencement of this Act, ensure that the following categories of information and record are duly published including uploading over the Internet in a manner which best ensures that these are accessible subject to reasonable restrictions based on limited resources:-
+(a) description of the public body's organisation and functions, duties, powers and any services it provides to the public, including a directory of its officers and employees, indicating their duties and functions and their respective remunerations, perks and privileges;
+(b) statutes, statutory rules, regulations, bye-laws, orders and notifications, etc. applicable to the public body disclosing the date of their respective commencement or effect;
+(c) substantive or procedural rules and regulations of general application evolved or adopted by the public body, including any manuals or policies used by its employees;
+(d) relevant facts and background information relating to important policies and decisions which have been adopted, along with a statement of the policies adopted by the public body and the criteria standards or guidelines upon which discretionary powers are exercised by it;
+(e) the conditions upon which members of the public can acquire any licence, permit, consent, approval, grant, allotment or other benefits of whatsoever nature from any public body or upon which transactions, agreements and contracts, including contracts of employment which can be entered into with the public body, along with particulars about the recipients of any concession, permit, licence or authorisation granted by the public body;
+(f) a description of its decision making processes as defined in the Federal Government's Secretariat Instructions, 2004 and any instructions for the time being in force for public to provide input into or be consulted about decisions;
+(g) detailed budget of the public body, including proposed and actual expenditures, original or revised revenue targets, actual revenue receipts, revisions in the approved budget and the supplementary budget;
+(h) the methods whereby information in the possession or control of the public body may be obtained and the prescribed fee required along with the name, title and contact details of the designated officials;
+(i) reports including performance reports, audit reports, evaluation reports, inquiry or investigation reports and other reports that have been finalised;
+(j) such other matters which the principal officer of the public body deems fit to be published in the public interest;
+(k) such other information as may be prescribed; and
+(I) camera footages at public places, wherever available, which have a bearing on a crime:
+Provided that if the information or record pertains to a period earlier than the year 2008, the same shall be published within reasonable time.

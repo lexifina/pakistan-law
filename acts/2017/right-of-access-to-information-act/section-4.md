@@ -1,0 +1,2 @@
+4. Maintenance and indexing of record. — (1) Subject to the provisions of this Act and rules made thereunder, the principal officer of each public body shall ensure that the record held by that body is properly maintained, so as to enable it to comply with its obligations under this Act.
+(2) Each public body shall bring its record management practices in line with the Secretariat Instructions, 2004 or any other instructions of the Federal Government.

@@ -1,0 +1,3 @@
+14. Time-limit for responding. —(1) Subject to the provisions of this· Act, a public body shall be required to respond to a request as soon as possible and in any case within ten working days of receipt of the request.
+(2) The period stipulated in sub-section (1) may be extended by maximum of further ten working days where it is necessary when the request requires a search through a large number of records or records located in different offices or consultation is required with third parties or other public bodies.
+(3) Information needed to protect the life and liberty of any individual shall be provided within three working days.
