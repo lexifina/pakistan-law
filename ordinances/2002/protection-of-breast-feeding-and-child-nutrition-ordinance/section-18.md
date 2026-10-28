@@ -1,0 +1,2 @@
+18. Responsibility of an individual for the act of a company, corporation, partnership or
+an institution. __Where the offence is found to have been committed by a company, corporation, partnership or an institution, as a result of an institutional or operational instructions issued by it or implemented by it, the company, corporation. partnership or the institution may be found guilty in addition to the individuals directly responsible for the commission of such offence.

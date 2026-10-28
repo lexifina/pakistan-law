@@ -1,0 +1,1 @@
+5. Meeting of the Board and. Provincial Committees.___The Secretary of the Board or, as the case may be, a Provincial Committee, shall call meetings of the Board or a Provincial Committee, as the case may be, at the direction of the Chairperson, and maintain minutes of such meetings.

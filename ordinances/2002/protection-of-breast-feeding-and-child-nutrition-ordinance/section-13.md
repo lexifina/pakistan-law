@@ -1,0 +1,3 @@
+13. Investigation and filing of case. ___ (1) Upon completion of an .investigation and receipt of a complete report, and after giving the concerned party an opportunity of being heard, the Board or a Provincial Committee, as the case may be shall recommend to the Federal Government whether or not institute prosecution under this Ordinance.
+(2) No Court shall take cognizance of any offence punishable under this Ordinance except on a report in writing by an officer authorized by the Federal Government, or any other person as the Federal Government may, by notification in the official Gazette, authorize in this behalf.
+(3) An offence punishable under this Ordinance shall be non-cognizable.
