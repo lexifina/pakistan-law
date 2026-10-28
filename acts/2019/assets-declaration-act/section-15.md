@@ -1,0 +1,1 @@
+15. Power to make rules.—The Board may, by notification in the official Gazette, make rules for carrying out the purposes of this Act including the manner, procedure, payment of tax and conditions under which the declaration under this Act shall be filed.

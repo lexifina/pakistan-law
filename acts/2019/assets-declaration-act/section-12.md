@@ -1,0 +1,1 @@
+12. Declaration not admissible in evidence.—Notwithstanding anything contained in any other law for the time being in force, nothing contained in any declaration made under this Act shall be admissible in evidence against the declarant for the purpose of any proceedings relating to imposition of penalty or adverse action or for the purposes of prosecution under any law.
