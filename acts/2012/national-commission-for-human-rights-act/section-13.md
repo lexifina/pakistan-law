@@ -1,0 +1,11 @@
+13. Powers relating to inquires.—(1) The Commission shall, while inquiring into complaints under this Act, have all the powers of a civil court trying a suit under the Code of Civil Procedure, 1908 (Act V of 1908), in respect of the following matters, namely:—
+(a) summoning and enforcing the attendance of witnesses and examining them on oath;
+(b) discovery and production of documents;
+(c) receiving evidence on affidavits;
+(d) requisitioning any public record or copy thereof from any court or office;
+(e) issuing commissions for the examination of witnesses or documents; and
+(f) any other matter which may be prescribed.
+(2) The Commission shall have power to require any person, subject to any privilege which may be claimed by that person under any law for the time being in force, to furnish information on such points or matters as, in the opinion of the Commission, may be useful for, or relevant to, the subject-matter of the inquiry and any person so required shall be deemed to be legally bound to furnish such information within the meaning of section 176 and section 177 of the Pakistan Penal Code (Act XLV of 1860).
+(3) The Commission shall be deemed to be a civil court to the extent that is described in sections 175, 178, 179, 180 and 228 of the Pakistan Penal Code, 1860 (Act XLV of 1860). If the offence is committed in the view or presence of the Commission, the Commission may, after recording the facts constituting the offence and the statement of the accused as provided for in the Code of Criminal Procedure, 1898 (Act V of 1898), forward the case to a Magistrate having jurisdiction to try the same and the Magistrate to whom any such case is forwarded shall proceed to hear the complaint against the accused as if the case has been forwarded to him under section 346 of the Code of Criminal Procedure, 1898 (Act V of 1898).
+(4) Every proceeding before the Commission shall be deemed to be a judicial proceeding within the meaning of sections 193, 196 and 228 of the Pakistan Penal Code, 1860 (Act XLV of 1860).
+(5) The Commission shall be deemed to be a civil court for the purposes of section 195 and Chapter XXVI of the Code of Criminal Procedure, 1898 (Act V of 1898).

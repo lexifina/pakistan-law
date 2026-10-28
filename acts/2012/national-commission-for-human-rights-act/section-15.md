@@ -1,0 +1,2 @@
+15. Procedure with respect to intelligence agencies.—(1) Notwithstanding anything contained in this Act, the functions of the Commission do not include inquiring into the act or practice of intelligence agencies and where a complaint is made to the Commission alleging that an act or practice of such an agency is inconsistent with or contrary to any human right, the Commission shall refer the complaint to the competent authority concerned.
+(2) The procedure thereafter shall be the same as in sub-section (1) of section 14 with respect to the armed forces.
