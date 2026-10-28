@@ -1,0 +1,7 @@
+## CHAPTER II
+## THE INSTITUTE
+3. Establishment and incorporation of the Institute. - (1) There shall be established an Institute to be called the Nippon Institute of Advanced Sciences, Sheikhupura.
+(2) The principal seat of the Institute shall be at Sheikhpura and it may set up its campuses in Pakistan and outside Pakistan with the approval of the Board.
+(3) The Institute shall be a body corporate by such name as may be notified and shall have perpetual succession and a common seal, and may sue and be sued by the said name:
+(4) The Institute shall be competent to acquire and hold property, both moveable and immovable, and to lease, sell or otherwise transfer any movable and immovable property which may have become vested in or been acquired by it.
+(5) Notwithstanding anything contained in any other law for the time being in force, the Institute shall have academic, financial and administrative autonomy, including the power to employ officers, teachers and other employees on such terms as may be prescribed, subject to the terms of this Act and the Higher Education Commission Act, 2002 (LIII of 2002). In particular, and without prejudice to the authority granted to the Commission by the law, the Government or an authority or auditor appointed by the Government shall have no power to question the policy underlying the allocation of resources approved by the Board of Governor in the annual budget of the Institute.
