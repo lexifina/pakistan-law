@@ -1,0 +1,12 @@
+41. Cessation of authority of guardian.—(1) The powers of a guardian of the person cease—
+(a) by his death, removal or discharge;
+(b) by the Court of Wards assuming superintendence of the person of the ward;
+(c) by the ward ceasing to be a minor;
+(d) in the case of a female ward, by her marriage to a husband who is not unfit to be guardian of her person or, if the guardian was appointed or declared by the Court, by her marriage to a husband who is not, in the opinion of the Court, so unfit; or,
+(e) in the case of a ward whose father was unfit to be guardian of the person of the ward, by the father ceasing to be so or, if the father was deemed by the Court to be so unfit, by his ceasing to be so in the opinion of the Court.
+(2) The powers of a guardian of the property cease__
+(a) by his death, removal or discharge;
+(b) by the Court of Wards assuming superintendence of the property of the ward; or
+(c) by the ward ceasing to be a minor.
+(3) When for any cause the powers of a guardian cease, the Court may require him or, if he is dead, his representative to deliver as it directs any property in his possession or control belonging to the ward or any accounts in his possession or control relating to any past or present property of the ward.
+(4) When he has delivered the property or accounts as required by the Court, the Court may declare him to be discharged from his liabilities save as regards any fraud which may subsequently be discovered.

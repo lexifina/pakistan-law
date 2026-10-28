@@ -1,0 +1,2 @@
+32. Variation of powers of guardian of property appointed or declared by the Court.
+Where a guardian of the property of a ward has been appointed or declared by the Court and such guardian is not the Collector, the Court may, from time to time, by order, define, restrict or extend his powers with respect to the property of the ward in such manner and to such extent as it may consider to be for the advantage of the ward and consistent with the law to which the ward is subject.

@@ -1,0 +1,1 @@
+30. Voidability of transfers made in contravention of section 28 or section 29. A disposal of immoveable property by a guardian in contravention of either of the two last foregoing sections is voidable at the instance of any other person affected thereby.

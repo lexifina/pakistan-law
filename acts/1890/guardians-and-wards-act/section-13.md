@@ -1,0 +1,1 @@
+13. Hearing of evidence before making of order. On the day fixed for the hearing of the application, or as soon afterwards as may be, the Court shall hear such evidence as may be adduced in support of or in opposition to the application.
