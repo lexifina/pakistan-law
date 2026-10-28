@@ -1,0 +1,2 @@
+5. Overriding effect.⸻ The Shaheed Zulfiqar Ali Bhutto Medical University Islamabad (Amendment) Act, 2018 (III of 2018) shall have override effect on the provision of this Act:
+Provided that in case of any controversy between the provisions of this Act and the Shaheed Zulfiqar Ali Bhutto Medical University Islamabad (Amendment) Act, 2018 (III of 2018), the provisions of the Shaheed Zulfiqar Ali Bhutto Medical University Islamabad (Amendment) Act, 2018 (III of 2018) shall prevail.
