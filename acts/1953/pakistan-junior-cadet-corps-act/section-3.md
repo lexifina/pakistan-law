@@ -1,0 +1,1 @@
+3. Constitution of Junior Cadet Corps. There shall be raised and maintained in the manner hereinafter provided a force, which shall be designated the Junior Cadet Corps, and shall consist of units constituted under section 4.
