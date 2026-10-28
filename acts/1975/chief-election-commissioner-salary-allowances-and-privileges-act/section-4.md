@@ -1,0 +1,1 @@
+4. Provident Fund. The Commissioner may, at his option, become a subscriber to the General Provident Fund and, if he so opts, shall subscribe to the Fund as a compulsory subscriber according to the General Provident Fund (Central Services) Rules.
