@@ -1,0 +1,9 @@
+4. Special Court.—(1) [^4][For the trial of any of the offences specified in sub-section (1) of section 3, the Federal Government may, by notification in the official Gazette, set up one or more Special Courts] composed of three persons each of whom is a Judge of a High Court, and shall nominate one of the said persons to be the President of the Special Court.
+[^5][(1A) The setting up of a Special Court under sub-section (1) shall not be deemed to affect the jurisdiction of any other Special Court in respect of the trial of a case pending before such other Special Court immediately before the setting up of the Special Court.]
+(2) If any member of the Special Court through death, illness or any other reason is unable to continue to perform his functions, the Federal Government may, by notification in the official Gazette, declare the office of such member to be vacant and appoint thereto another person qualified to hold the office.
+(3) If, in the course of a trial, any member of the Special Court is, for any reason, unable to attend any sitting thereof, the trial may continue before the other two members.
+(4) The Special Court shall not merely by reason of any change in its membership or the absence of any of its members from any sitting be bound to recall and rehear any witness who has already given any evidence and may act on the evidence already given or produced before it.
+(5) In the event of any difference of opinion among the members of the Special Court, the opinion of the majority shall prevail and the decision of the Special Court shall be expressed in terms of the views of the majority.
+
+[^4]: Subs. ibid., s. 4, for certain words (w.e.f. 14-9-1977).
+[^5]: New sub-section (1A) ins. by the Criminal Law Amendment (Special Court) (Amdt.) Ord. 1977(40 of 1977), s.4 (w.e.f. 14-9-1977).

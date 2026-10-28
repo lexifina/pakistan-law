@@ -1,0 +1,1 @@
+13. Act to override all other laws. The provisions of this Act shall have effect notwithstanding anything contained in the Code, the Evidence Act, 1872 (I of 1872), or any other law for the time being in force.
