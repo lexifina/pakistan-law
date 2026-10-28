@@ -1,0 +1,1 @@
+11. Employees to be public servants.—The Director General, employees and such other persons appointed under this Act, when acting or purporting to act in pursuance of any of the provisions of this Act, shall be deemed to be public servants within the meaning of section 21 of the Pakistan Penal Code, 1860 (Act XLV of 1860).

@@ -1,0 +1,1 @@
+20. Delegation of powers.—The Agency may, by general or special order and subject to such conditions as it may deem appropriate in writing delegate, all or any of its powers and functions to the Director General or any other officer of the agency under this Act.

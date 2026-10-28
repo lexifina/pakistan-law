@@ -1,0 +1,1 @@
+21. Assistance to Agency.—The Agency may seek assistance from all executive authorities of the Federation and in the provinces as may be required for the exercise or performance of Agency’s activities and functions under this Act.
