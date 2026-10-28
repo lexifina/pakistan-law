@@ -1,0 +1,1 @@
+21. Cancellation of license in case of ill-treatment. If it appears to the Superintendent that the employer of license in has ill-treated the youthful offender, or has not adequately provided for his lodging and maintenance, the Superintendent may cancel the license.

@@ -1,0 +1,1 @@
+20. Determination of license. If during the term of the license the employer named therein dies, or ceases from business or to employ labour, or the period for which the youthful offender has been directed to be detained in the Reformatory School expires, the license shall thereupon cease and determine.

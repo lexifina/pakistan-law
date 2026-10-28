@@ -1,0 +1,5 @@
+7. Inspection of Reformatory Schools.—(1) Every school intended to be established or used as a Reformatory School shall, before being used as such, be inspected Schools by the Inspector General, and if he finds that the requirements of section 6 have been complied with, and that, in his opinion, such school is fitted for the reception of such youthful offenders as may be sent there under this Act, he shall certify to that effect, and such certificate shall be published in the [^9][official Gazette], together with an order of the [^10][provincial Government] establishing the school as a Reformatory School or directing that it shall be used as such, and the school shall thereupon be deemed to be a Reformatory School.
+(2) Every such school shall, from time to time, and at least once in every year, be visited by the said Inspector General, who shall send to the [^10][Provincial Government] a report on the condition of the school in such form as the [^10][Provincial Government] may prescribe.
+
+[^9]: Subs. by A.O., 1937, for “local official Gazette”.
+[^10]: Subs. ibid., for “L. G.”.
