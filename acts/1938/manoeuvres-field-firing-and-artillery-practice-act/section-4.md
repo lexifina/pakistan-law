@@ -1,0 +1,1 @@
+4. Duty of Officer Commanding to repair damage. The Officer in Command of the military forces engaged in the manoeuvres shall cause all lands used under the powers conferred by this Chapter to be restored, as soon and as far as practicable, to their previous condition.
