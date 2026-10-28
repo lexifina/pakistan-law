@@ -1,0 +1,1 @@
+10. Appointment of the Managing Director.__ The Prime Minister shall appoint a Managing Director of the Authority who is serving or has served in BPS-22 having such qualifications, experience and on such terms and conditions as may be prescribed by Rules.

@@ -1,0 +1,3 @@
+39. Dispute Resolution.__ In case of any dispute between the Authority and any entity arising out of the public private partnership agreement or concession agreement or any other agreement having contract value above one hundred million rupees, then notwithstanding any provisions of the Act, the parties shall resolve the dispute in the following manner namely;__
+(a) the parties shall first deliberate to achieve a consensus; and
+(b) if no consensus is achieved, the parties shall settle the dispute in an amicable manner by mediation or arbitration as provided under any contract agreement entered into with the Authority.

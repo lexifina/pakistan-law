@@ -1,0 +1,1 @@
+54. Act not to derogate.__ The provisions of this Act shall be in addition to and not in derogation of any law governing any Government Agencies involved in connections with the affairs of land port and in case of any conflict the provisions of this Act shall prevail.

@@ -1,0 +1,2 @@
+53. Savings and Transition.__ Any existing contracts or arrangements of parties engaged in land port operations at land ports prior to the commencement of this Act shall continue till awarding of contracts or licenses under this Act by the Authority for such land ports:
+Provided that such transitory arrangements shall remain in force only for a period as deemed necessary by the Authority in the interest of fostering free competition.

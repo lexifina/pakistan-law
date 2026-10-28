@@ -1,0 +1,2 @@
+18. Declaration of Land Ports.__ The Authority may, with the concurrence of the concerned Provincial Government, from time to time, by notification in the official Gazette, declare, define, alter or extend the limits of any land port after the same have been duly verified under the Custom Act, 1969 (IV of 1969) for the purposes of this Act:
+Provided that such extension shall only apply to areas that are contiguous to the existing land port boundaries.

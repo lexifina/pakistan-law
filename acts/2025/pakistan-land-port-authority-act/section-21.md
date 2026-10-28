@@ -1,0 +1,1 @@
+21. Powers and function of Management Board.__ The Management Board shall monitor and regulate the activities of land port operators, Service Providers and coordinate with other Government Agencies for smooth operations at the land port, and for implementing Border Control as per the provision of this Act.

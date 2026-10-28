@@ -1,0 +1,1 @@
+28. Power of the Federal Government to issue Policy Guidelines.__ The Authority shall be bound to comply with the policy guidelines issued by the Federal Government, to the extent that these are not inconsistent with the provisions of this Act.

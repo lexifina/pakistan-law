@@ -1,0 +1,3 @@
+3. The Authority.__ (1) On commencement of this Act, there shall stand established an Authority to be known as the Pakistan Land Port Authority for carrying out the purposes of this Act.
+(2) The Authority shall be a body corporate, having perpetual succession and a common seal, with power to purchase, procure, sell, exchange, hold, acquire, and dispose of property, both movable and immovable, as well as interests therein, and may, by its name, sue or be sued.
+(3) The head office of the Authority shall be at Islamabad. The Authority may establish and operate regional offices at such other places, as the Authority may determine, from time to time.

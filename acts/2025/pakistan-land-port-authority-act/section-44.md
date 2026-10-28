@@ -1,0 +1,1 @@
+44. Custody and disposal of lost property.__ Subject to other provisions of this Act and Regulations as prescribed, the Authority shall provide for securing the safe custody and disposal of any property, which, while not in proper custody, is found on any premises belonging to the Authority or under its overall control.
