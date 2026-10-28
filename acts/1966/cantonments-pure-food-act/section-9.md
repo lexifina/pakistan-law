@@ -1,0 +1,1 @@
+9. Import or manufacture etc., without complying with rules.__ No person shall import, export, prepare, manufacture, keep or store for sale, or sell or offer to sell, any food, unless the rules providing for the mode of its manufacture, processing or preparation, packaging, labelling, consignment, delivery, standard of quality or fill of containers have been complied with.

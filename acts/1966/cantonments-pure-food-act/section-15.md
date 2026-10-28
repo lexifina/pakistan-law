@@ -1,0 +1,6 @@
+15. Appointment of Inspector.__ (1) The Director may appoint Inspectors in respect of all or any specified food, and an Inspector so appointed shall have jurisdiction in such area as the Director may specify.
+(2) Subject to any rules made in this behalf, a local authority shall appoint Inspectors in respect of all or any specified food, and an Inspector so appointed shall, unless the local authority otherwise directs, have jurisdiction within the limits of such local authority.
+(3) The Health Officer and the Sanitary Inspector of a local authority and such persons in the service of Pakistan or holding such offices and posts in or under a local authority as the [^6][Federal Government] may, by notification in the official Gazette, specify in this behalf, shall be ex officio Inspectors in respect of all foods within the limits of their respective jurisdiction.
+(4) The Director may exercise the powers and perform the functions of an Inspector under this Act and any Deputy Director or Assistant Director or any other officer subordinate to the Director may exercise such powers and perform such functions of an Inspector within such area as the Director may, by order in writing, direct.
+
+[^6]: Subs. by F.A.O., 1975, Art. 2 and Table for “Central Government”.

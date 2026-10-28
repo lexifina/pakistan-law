@@ -1,0 +1,1 @@
+34. Inspector, etc., to be public servant.—An Inspector while performing any of his functions under this Act and all other persons assisting him in the performance of such functions shall be deemed to be public servants within the meaning of section 21 of the Pakistan Penal Code (XLV of 1860).

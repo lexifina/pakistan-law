@@ -1,0 +1,3 @@
+28. Analysis by Chemical Examiner.__ (1) The Court may of its own accord or on the request of the accused cause any food or sample of food to be sent for analysis to the Chemical Examiner who shall thereupon analyse the same and report the results of the analysis to the Court in the form prescribed and the cost of such analysis shall be paid by the accused if the Court so directs.
+(2) The certificate of the Chemical Examiner shall, until the contrary is proved, be sufficient to prove the facts therein stated.
+(3) No person shall display or otherwise use the report of the Chemical Examiner for purposes of advertisement.
