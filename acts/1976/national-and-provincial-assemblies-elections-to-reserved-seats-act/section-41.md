@@ -1,0 +1,1 @@
+41. Penalty for corrupt practice. Any person guilty of corrupt practice shall be punishable with imprisonment for a term which may extend to two years, or with fine which may extend to five thousand rupees, or with both.

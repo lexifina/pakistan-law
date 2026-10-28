@@ -1,0 +1,1 @@
+4. Power to punish for contempt. The Commission, the Commissioner and the members of the Commission shall have the same powers to punish its or their contempt as are vested in a High Court under Article 204.

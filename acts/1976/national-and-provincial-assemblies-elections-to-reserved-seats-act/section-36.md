@@ -1,0 +1,1 @@
+36. Failure of petitioner to appear. Where, at any stage of the trial of an election petition, no petitioner makes an appearance, the Tribunal may dismiss the petition for default, and make such order as to costs as it may think fit.

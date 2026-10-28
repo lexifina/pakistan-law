@@ -1,0 +1,1 @@
+[^1]: For Statement of Objects and Reasons, see Gaz. of P ., 1976, Ext., Pt. III, p. 325. This Act has been r epealed in its application to the election to which the Repr esentation of the People Act, 1976 (85 of 1976) applies, see Act No. 85 of 1976, s. 109.

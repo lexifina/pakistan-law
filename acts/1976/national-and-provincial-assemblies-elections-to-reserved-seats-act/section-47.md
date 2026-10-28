@@ -1,0 +1,1 @@
+47. Punishment under this Chapter not in derogation of any other Liability. Any punishment imposed on any person for an offence punishable under this chapter shall be in addition to, and not in derogation of, any liability incurred by such person under any other provision of this Act.

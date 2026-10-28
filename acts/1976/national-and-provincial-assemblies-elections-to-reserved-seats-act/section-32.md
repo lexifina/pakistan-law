@@ -1,0 +1,2 @@
+32. Other provisions relating to Tribunal.—(1) An order of the Tribunal under section 27 shall take effect on the date on which it is made and shall be communicated to the Commissioner who shall publish it in the official Gazette.
+(2) The Tribunal shall after an election petition has been disposed of, forward the record thereof to the Commissioner who shall retain it for a period of five years from the date of its receipt and shall thereafter cause it to be destroyed.

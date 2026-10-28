@@ -1,0 +1,1 @@
+24. Powers of the Tribunal. The Tribunal shall have all the powers of civil court trying a suit under the Code of Civil Procedure, 1908 (Act V of 1908), and shall be deemed to be a civil court within the meaning of sections 480 and 482 of the Code of Criminal Procedure, 1898 (Act V of 1898).
