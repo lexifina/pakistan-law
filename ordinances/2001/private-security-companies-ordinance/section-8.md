@@ -1,0 +1,1 @@
+8. Exhibition of licence.__ Every licensee shall exhibit his licence or a certified copy thereof in a conspicuous place at his principal place of business and at every branch where the licensee carries on the business of private security company.

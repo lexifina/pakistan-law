@@ -1,0 +1,1 @@
+7. Appeal.__ Any person aggrieved by any order made by the Licensing Officer under section 6 may, within thirty days, appeal against such order to the Secretary, Ministry of Interior, Government of Pakistan, whose decision shall be final
