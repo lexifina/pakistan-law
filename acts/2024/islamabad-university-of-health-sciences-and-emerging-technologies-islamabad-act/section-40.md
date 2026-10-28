@@ -1,0 +1,1 @@
+40. Bar of Jurisdiction.―No Court shall have jurisdiction to entertain any proceedings, grant any injunctions or make any order relation to anything done in good faith or purported to have been done or intended under this Act.

@@ -1,0 +1,6 @@
+11. The Chancellor.―(1) The Chancellor of the University, who shall preferably be a person of eminence in letters, sciences, or social work, to be appointed by the Able Learning Company (Private) Limited on such terms and conditions as may be prescribed.
+(2) The Chancellor shall supervise the overall functioning of the University.
+(3) The Chancellor shall be the Chairperson of the Board of Governors.
+(4) If the Chancellor is satisfied that the proceedings of any Authority or orders of any officer are not in accordance with the provisions of this Act, the Statutes, the Regulations, or the Rules, he may after calling upon such Authority or officer to show cause in writing, appoint a five member review committee to examine and report to the Chancellor. The Review Committee shall be drawn from persons of eminence in academics and in the fields of law, accountancy and administration.
+(5) The Chancellor may subject to the provisions of this Act in his discretion, delegate all or any of the powers and functions of any Authority, officer, or employee of the University to any authority, officer, or employee.
+(6) Should the Chancellor be incapacitated from acting as such due to absence or any other cause, the Vice-chancellor or a nominee of the Chancellor shall act for him.

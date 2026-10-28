@@ -1,0 +1,2 @@
+23. The Resident Auditor.―(1) The Resident Auditor shall be a whole-time officer of the University, appointed by the Board in a prescribed manner, and shall be responsible for pre-audit of all payments from the University fund.
+(2) The Board of Governors may on the recommendations or advice of Vice-Chancellor, terminate the services of Resident Auditor on grounds of inefficiency or misconduct in accordance with the prescribed procedure.
