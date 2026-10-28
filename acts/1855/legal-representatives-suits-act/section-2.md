@@ -1,0 +1,3 @@
+2. Death of either party not to abate suit. No action commenced under the provisions of this Act shall abate by reason of the death of either party, but the same may be continued by or against the executors, administrators or representatives of the party deceased:
+Provided that, in any case in which any such action shall be continued against the executors, administrators or representatives of a deceased party, such executors, administrators or representatives may set up a want of assets as a defence to the action, either wholly or in part, in the same manner as if the action had been originally commenced against them.]
+Date: 13-09-2024
