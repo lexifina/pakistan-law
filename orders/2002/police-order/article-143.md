@@ -1,0 +1,1 @@
+143. Penalty for contravening orders, etc. under Article 118.—Whoever contravenes or abets the contravention of any order made under Article 118 or any of the condition of the licence issued under such regulations shall on conviction be fined up to ten thousand rupees.

@@ -1,0 +1,1 @@
+102. Removal of the members.—The procedure of the removal of the Chairperson and members of the Federal Police Complaints Authority shall be the same as for the members of the Federal Public Service Commission.

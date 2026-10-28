@@ -1,0 +1,2 @@
+170. Officers holding charge of or succeeding to vacancies competent to exercise
+powers.— Wherever in consequence of the office of Head of District Police becoming vacant, any officer who holds charge of such post or succeeds either temporarily or permanently to his office under the orders of the competent appointing authority, such officer shall be competent to exercise all the powers and perform all the duties respectively conferred and imposed by this Order on Capital City Police Officer, City Police Officer or District Police Officer.

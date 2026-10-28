@@ -1,0 +1,3 @@
+28. Powers of Provincial Police Officer, Capital City Police Officer and City Police Officer
+concerning police accounts.—(1) Provincial Police Officer, Capital City Police Officer or City Police Officer shall have authority to investigate and regulate all matters of accounts connected with the police and all persons concerned shall be bound to give reasonable aid and facilities in conducting such investigation and to conform to his orders consequent thereto.
+(2) The power of Provincial Police Officer, Capital City Police Officer and City Police Officer to regulate accounts under clause (1) shall be without prejudice to the Auditor General’s authority to audit police accounts.

@@ -1,0 +1,1 @@
+132. Control of camps, parades, etc.—If Head of District Police is satisfied that it is necessary in the interest of maintenance of public order, he may by a special order prohibit or restrict throughout the district or any part thereof all meetings and assemblies of persons for the purpose of training in the use of arms or taking part in any such camp, parade or procession.

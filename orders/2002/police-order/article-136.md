@@ -1,0 +1,2 @@
+136. Delivery of property to person entitled.—(1) Head of District Police on being satisfied of the title of any claimant to the possession or administration of the property specified in the proclamation issued under clause (1) of Article 135 order the same to be delivered to him.
+(2) In case where there is more than one claimant to the same property the matter shall be referred by the Head of District Police to the competent court.

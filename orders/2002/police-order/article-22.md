@@ -1,0 +1,1 @@
+22. Transfer to other police establishment.—Subject to rules, the appropriate Government may transfer any police officer appointed under this Order from police constituted for one general police area to another.

@@ -1,0 +1,1 @@
+141. Penalty for offences under Articles 138 to 140.—Any person who contravenes any of the provisions of Articles 138 to 140 shall, on conviction, be punished with fine, which may extend to ten thousand rupees, or, in default of payment, with imprisonment for a term not exceeding thirty days.

@@ -1,0 +1,2 @@
+147. Warning to first offender.—It shall be lawful for Head of District Police or any other officer authorized by him not below the rank of Inspector, to request the relevant court to issue in lieu of prosecution, a warning in writing to the accused in relation to first commission of any offence mentioned in Articles 138 to 140:
+Provided that for any subsequent offence mentioned in this Article the offender on conviction will be awarded at least half of the prescribed punishment.

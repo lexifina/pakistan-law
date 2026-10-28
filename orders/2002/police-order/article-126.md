@@ -1,0 +1,4 @@
+126. Employment of additional police to keep peace.—(1) Capital City Police Officer or City Police Officer and District Police Officer subject to approval of Provincial Police Officer may on application of any person depute any additional number of police to keep the peace, to preserve order, to enforce any provisions of this Order, or any other law, in respect of any particular class or classes of offences or to perform any other duties imposed on the police.
+(2) Subject to rules, such additional police shall be employed at the cost of the person making the application.
+(3) If the person upon whose application such additional police are employed gives one week’s notice for the withdrawal of the said police, he shall be relieved from the cost thereof at the expiration of such notice.
+(4) If there is any dispute on payment, Head of District Police on an application by the aggrieved party may refer the matter to the Government for final decision.

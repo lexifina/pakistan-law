@@ -1,0 +1,2 @@
+176. When licence or permission is revoked, the grantee would be deemed to be without
+licence.—When any such licence or written permission is suspended or revoked, or when the period for which the same was granted has expired, the person to whom the same was granted shall, for all purposes of this Order, deemed to be without a licence or written permission, until the order for suspending or revoking the same is cancelled, or until the same is renewed, as the case may be.

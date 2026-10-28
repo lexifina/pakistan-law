@@ -1,0 +1,1 @@
+180. Signature on notices may be stamped.—Every licence, written permission, notice or other document, not being a summons or warrant or search warrant, required by this Order, or by any rule hereunder, to bear the stamp and the signature of Head of District Police and it shall be deemed to be properly signed if it is a facsimile of the document bearing his signature.

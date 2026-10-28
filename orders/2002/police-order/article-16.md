@@ -1,0 +1,4 @@
+16. Administration of police in a district.—(1) Subject to this Order, the administration of police throughout a district, other than a capital city district and a city district, shall vest in a District Police Officer posted under Article 15.
+(2) The District Police Officer may delegate any of his powers and functions conferred on him to a Superintendent of Police, Assistant or Deputy Superintendent of Police posted under Article 17.
+(3) The Capital City Police Officer and the City Police Officer shall have administrative and financial powers of the head of an attached department.
+(4) A Capital City Police Officer posted under article 11 and a City Police Officer posted under Article 15 shall exercise the powers vested in them under clause (3) above and Article 10 subject to the operational control by the Provincial Police Officer.

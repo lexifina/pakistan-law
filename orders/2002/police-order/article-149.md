@@ -1,0 +1,1 @@
+149. False alarm of fire, etc.—Whoever knowingly gives or causes to be given a false alarm of fire to the fire brigade or to any officer or fireman thereof shall on conviction be punished with imprisonment for a term which may extend to three months or with fine which may extend to fifteen thousand rupees, or with both.

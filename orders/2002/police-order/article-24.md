@@ -1,0 +1,2 @@
+24. Oath or affirmation by members of police.—(1) Every member of the police shall on appointment make and subscribe before Provincial Police Officer or Capital City Police Officer or City Police Officer, or head of a training institution, an oath or affirmation according to the form set out in the second Schedule.
+(2) Assistant Superintendents of Police shall make and subscribe to the said oath or affirmation before Commandant, National Police Academy.

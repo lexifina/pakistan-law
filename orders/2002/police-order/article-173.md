@@ -1,0 +1,2 @@
+173. Notice of suit to be given with sufficient description of wrong complained of.—(1) In the case of an intended suit on account of an alleged wrong referred to in Article 172 by a police officer, the person intending to sue shall give two month’s notice as prescribed in section 80 of Civil Procedure Code 1908, of the intended suit with sufficient description of the wrong complained of.
+(2) The provisions of section 80 of the Civil Procedure Code, 1908, shall₋mutatis mutandis apply to the notice referred to in clause (1).

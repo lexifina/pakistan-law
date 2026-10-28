@@ -1,0 +1,2 @@
+167. Maintenance of Daily Diary at a police station.—(1) A register of Daily Diary shall be maintained at every police station in such form as shall, from time to time, be prescribed and to record therein the names of all complainants, persons arrested, the offences charged against them, the weapons or property that shall have been taken from their possession or otherwise, and the names of the witnesses who shall have been examined.
+(2) The District and Sessions Judge of the district may call for and inspect such Diary.

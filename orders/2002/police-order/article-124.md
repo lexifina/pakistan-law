@@ -1,0 +1,1 @@
+124. Erecting of barriers in streets, etc.—Any police officer may in an emergency temporarily close any street or public place through erection of barriers or other means, to prohibit persons or vehicles from entering such area.

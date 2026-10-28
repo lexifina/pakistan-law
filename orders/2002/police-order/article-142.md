@@ -1,0 +1,1 @@
+142. Suffering disorderly conduct.—Whoever being the keeper of any place of public amusement or public entertainment, knowingly permits or suffers disorderly behaviour or any gambling or any other criminal act, whatsoever, in such place, shall, on conviction be punished with fine which may extend to ten thousand rupees.

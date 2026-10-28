@@ -1,0 +1,1 @@
+145. Penalty for contravention of orders under Articles 131 and 132.—Whoever contravenes any order made under Article 131 and Article 132 shall, on conviction, be punished with imprisonment for a term, which may extend to three years, or with fine up to one hundred thousand rupees, or with both.
