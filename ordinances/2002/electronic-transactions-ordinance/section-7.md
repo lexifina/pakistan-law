@@ -1,0 +1,1 @@
+7. Legal recognition of electronic signatures.—The requirement under any law for affixation of signatures shall be deemed satisfied where electronic signatures or advanced electronic signature are applied.

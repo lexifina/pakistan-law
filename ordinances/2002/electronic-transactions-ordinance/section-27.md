@@ -1,0 +1,2 @@
+27. Appointment of offices, employees and advisers.—The Certification Council may appoint such officers, employees and advisers as it may consider necessary for the efficient performance of its functions on such terms and conditions as it may prescribe by the regulations.
+(2) The Certification Council may establish regional or local offices as may be necessary for efficient performance of its functions.

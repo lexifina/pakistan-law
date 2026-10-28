@@ -1,0 +1,1 @@
+8. Proof of electronic signature.—An electronic signature may be proved in any manner, in order to verify that the electronic document is of the person that has executed it with the intention and for the purpose of verifying its authenticity or integrity or both.

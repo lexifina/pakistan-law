@@ -1,0 +1,4 @@
+6. Requirement for retention.— The requirement under any law that certain document, record, information, communication or transaction be retained shall be deemed satisfied by retaining it in electronic form if:
+(a) the contents of the document, record, information, communication or transaction remain accessible so as to be usable for subsequent reference;
+(b) the contents and form of the document, record, information, communication or transaction are as originally generated, sent or received, or can be demonstrated to represent accurately the contents and form in which it was originally generated, sent or received; and
+(c) such document, record, information, communication or transaction, if any, as enables the identification of the origin and destination of document, record, information, communication or transaction and the date and time when it was generated, sent or received, is retained.

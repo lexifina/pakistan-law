@@ -1,0 +1,1 @@
+4. Requirement for writing.—The requirement under any law for any document, record, information, communication or transaction to be in written form shall be deemed satisfied where the document, record, information, communication or transaction is in electronic form, if the same is accessible so as to be usable for subsequent reference.
