@@ -1,0 +1,1 @@
+31. Bribery.—A telegraph officer shall be deemed a public servant within the meaning of sections 161, 162, 163, 164 and 165 of the Pakistan Penal Code (XLV of 1860); and in the definition of “legal remuneration” contained in the said section 161, the word “Government” shall, for the purposes of this Act, be deemed to include a person licensed under this Act.

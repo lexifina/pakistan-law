@@ -1,0 +1,4 @@
+14. Power to alter position of gas or water pipes or drains.— The telegraph authority may, for the purpose of exercising the power conferred upon it by this Act in respect of any property vested in or under the control or management of a local authority, alter the position thereunder on any pipe (not being a main) for the supply of gas or water, or of any drain (not being a main drain):
+Provided that—
+(a) when the telegraph authority desires to alter the position of any such pipe or drain, it shall give reasonable notice of its intention to do so, specifying the time at which it will begin to do so, to the local authority, and, when the pipe or drain is not under the control of the local authority, to the person under whose control the pipe or drain is;
+(b) a local authority or person receiving notice under clause (a) may send a person to superintend the work, and the telegraph authority shall execute the work to the reasonable satisfaction of the person so sent.
