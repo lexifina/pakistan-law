@@ -1,0 +1,9 @@
+# THE PAKISTAN CURRENCY ACT, 1950
+THE PAKISTAN CURRENCY ACT, 1950
+[^1]ACT No. XXIX OF 1950
+[11th April, 1950]
+An Act to provide for the issue and putting into circulation of Government of Pakistan one-rupee notes
+WHEREAS it is expedient that Government of Pakistan one-rupee notes should be issued and put into circulation ;
+It is hereby enacted as follows :___
+
+[^1]: The Act has been___ (i) applied to Baluchistan, see Gaz. of P.,1952, Pt. 1, p. 154; (ii) applied in the Federated Areas of Baluchistan, see Gaz. of P., 1953, Pt. 1, p. 152; (iii) extended to the Leased Areas of Baluchistan, see the Leased Areas (Laws) Order, 1950 (G.G.O. 3 of 1950); (iv) extended to the Baluchistan States Union, see the Baluchistan States Union (Federal Laws) (Extension) Order, 1953 (G. G. O. 4 of 1953); (v) extended to the State of Bahawalpur, see the Bahawalpur (Federal Laws) (Extension) Order, 1952 (G. G. O. 11 of 1952) ; and (vi) extended to the Khairpur State, see the Khairpur (Federal Laws) (Extension) Order, 1953 (G. G. O. 5 of 1953). This Act has been and shall be deemed to have been brought into force in Gwadur with effect from the 8th September, 1958, by the Gwadur (Application of Central Laws) Ordinance, 1960 (Ordinance No. XXXVII of 1960), s. 2. The Act, Rules, Notifns. and orders made under it, have been applied to the Tribal Areas or to the parts of those areas to which they have not been already applied, see the Tribal Areas (Application of Acts) Reg., 1965, Gaz. of P,,1965, Ext., pp. 1016-1018.
