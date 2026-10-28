@@ -1,0 +1,2 @@
+3. List of Moallims and their selection.—(1) The Federal government shall, keeping in view the welfare and convenience of the intending pilgrims, publish a list of Moailims from which an intending pilgrim may select a Moallim before proceeding for Haj from Pakistan and specify the manner in which a Moallim is to be so selected.
+(2) Selection of a Moallim made under sub-section (1) shall be final and no intending pilgrim shall be authorised to change that selection at any subsequent stage.
