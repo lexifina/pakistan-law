@@ -1,0 +1,2 @@
+4. Abolition of bonded labour system.— (1) On the commencement of this Act, the bonded labour system shall stand abolished and every bonded labourer shall stand freed and discharged from any obligation to render any bonded labour.
+(2) No person shall make any advance under, or in pursuance, of, the bonded labour system or compel any person to render any bonded labour or other form of forced labour.

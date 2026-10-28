@@ -1,0 +1,1 @@
+11. Punishment for enforcement of bonded labour. Whoever, after the commencement of this Act compels any person to render any bonded labour shall be punishable with imprisonment for a term which shall not be less than two years nor more than five years, or with fine which shall not be less than fifty thousand rupees, or with both.
