@@ -1,0 +1,6 @@
+5. Establishment of the Pakistan Environmental Protection Agency.—(1) The Federal Government shall, by notification in the official Gazette, establish the Pakistan Environmental Protection Agency, to exercise the powers and perform the functions assigned to it under the provisions of this Act and the rules and regulations made thereunder.
+(2) The Federal Agency shall be headed by a Director‑General, who shall be appointed by the Federal Government on such terms and conditions as it may determine.
+(3) The Federal Agency shall have such administrative, technical and legal staff as the Federal Government may specify, to be appointed in accordance with such procedure as may be prescribed.
+(4) The powers and functions of the Federal Agency shall be exercised and performed by the Director‑General.
+(5) The Director‑General may, by general or special order, delegate any of these powers and functions to staff appointed under sub-section (3).
+(6) For assisting the Federal Agency in the discharge of its functions, the Federal Government shall establish Advisory Committees for various sectors, and appoint as members thereof eminent representatives of the relevant sector, educational institutions, research institutes and non‑governmental organizations.

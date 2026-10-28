@@ -1,0 +1,13 @@
+7. Powers of the Federal Agency.—Subject to the provisions of this Act, the Federal Agency may—
+(a) lease, purchase, acquire, own, hold, improve, use or otherwise deal in and with any property both movable and immovable;
+(b) sell, convey, mortgage, pledge, exchange or otherwise dispose of its property and assets;
+(c) fix and realize fees, rates and charges for rendering any service or providing any facility information or data under this Act or the rules and regulations made thereunder;
+(d) enter into contracts, execute instruments, incur liabilities and do all acts or things necessary for proper management and conduct of its business;
+(e) appoint with the approval of the Federal Government and in accordance with such procedures as may be prescribed, such advisers, experts and consultants as it considers necessary for the efficient performance of its functions on such terms and conditions as it may deem fit;
+(f) summon and enforce the attendance of any person and require him to supply any information or document needed for the conduct of any enquiry or investigation into any environmental issue;
+(g) enter and inspect and under the authority of a search warrant issued by the Environmental Tribunal or Environmental Magistrate, search at any reasonable time, any land, building, premises, vehicle or vessel or other place where or in which, there are reasonable grounds to believe that an offence under this Act has been or is being committed ;
+(h) take samples of any materials, products, articles or substances or of the effluents, wastes or air pollutants being discharged or emitted or of air, water or land in the vicinity of the discharge of emission;
+(i) arrange for test and analysis of the samples at a certified laboratory;
+(j) confiscate any article used in the commission of the offence where the offender is not known or cannot be found within a reasonable time:
+Provided that the power under clauses (f), (h), (i) and (j) shall be exercised in accordance with the provisions of the Code of Criminal Procedure, 1898 (Act V of 1898), or the rules made under this Act and under the direction of the Environmental Tribunal or Environmental Magistrate; and
+(k) establish a National Environmental Coordination Committee comprising the Director‑General as its chairman and the Director‑Generals of the Provincial Environmental Protection Agencies and such other persons as the Federal Government may appoint as its members to exercise such powers and perform such functions as may be delegated or assigned to it by the Federal Government for carrying out the purposes of this Act and for ensuring inter provincial co‑ordination in environmental policies.
