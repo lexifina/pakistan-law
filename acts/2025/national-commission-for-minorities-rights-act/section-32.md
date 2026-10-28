@@ -1,0 +1,1 @@
+32. Indemnity.—No suit or any other proceeding shall lie against the Commission, Chairperson, member or employee of the Commission for anything which is done in good faith, in pursuance of this Act or the rules or regulations made thereunder or by or under the authority of the Commission.

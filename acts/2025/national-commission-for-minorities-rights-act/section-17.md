@@ -1,0 +1,1 @@
+17. Vacancy not to invalidate proceedings of Commission.—No act or proceedings of the Commission shall be invalid merely by reason of existing of a vacancy in or defect in constitution of the Commission.

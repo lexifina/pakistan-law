@@ -1,0 +1,1 @@
+14. Financial and legal support for rehabilitation.—Notwithstanding anything contained in other law for the time being enforce, the Federal Government shall allocate adequate rehabilitation fund to the Commission for extending financial and legal aid to the victims of the minority communities.

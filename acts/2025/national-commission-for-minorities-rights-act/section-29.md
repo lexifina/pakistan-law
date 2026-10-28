@@ -1,0 +1,1 @@
+29. Chairperson, members and employees of the Commission to be public servants.—The Chairperson, members and employees of the Commission shall be deemed to be public servants within the meaning of section 21 of the Pakistan Penal Code (Act XLV of 1860).

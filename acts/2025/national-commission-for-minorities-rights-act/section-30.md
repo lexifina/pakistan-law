@@ -1,0 +1,1 @@
+30. Returns or information.—The Commission shall furnish to the Federal Government such returns or other information with respect to its activities as the Federal Government may, from time to time, require.

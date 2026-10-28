@@ -1,0 +1,1 @@
+33. Power to make rules.— (1) The Commission shall, within six months of the commencement of this Act and with the approval of the Federal Government make rules for carrying out the purposes of this Act.
