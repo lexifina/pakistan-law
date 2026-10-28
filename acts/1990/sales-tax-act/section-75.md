@@ -1,0 +1,2 @@
+75. Application of the provisions of Act IV of 1969 to Sales
+Tax.– The Federal Government may, by notification in the official Gazette, declare that any of the provision of the Customs Act, 1969 (IV of 1969), relating to the levy of, and exemption from, customs duties, draw-back of duty, warehousing, confiscation, and procedure relating to offences and appeals shall, with such modifications and alterations as it may consider necessary or desirable to adapt them to the circumstances, be applicable in regard to like matters in respect of the tax imposed by section 3.]

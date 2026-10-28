@@ -1,0 +1,6 @@
+[^708][57. Rectification of Mistake.– (1) The officer of Inland Revenue, Commissioner, the Commissioner (Appeals) or the Appellate Tribunal may, by an order in writing, amend any order passed by him to rectify any mistake apparent from the record on his or its own motion or any mistake brought to his or its notice by a taxpayer or, in the case of the Commissioner (Appeals) or the Appellate Tribunal, the Commissioner.
+(2) No order under sub section (1) which has the effect of increasing an assessment, reducing a refund or otherwise applying adversely to the taxpayer shall be made unless the taxpayer has been given a reasonable opportunity of being heard.
+(3) Where a mistake apparent on the record is brought to the notice of the officer of Inland Revenue, Commissioner or Commissioner (Appeals), as the case may be, and no order has been made under sub section (1), before the expiration of the Financial year next following the date on which the mistake was brought to their notice, the mistake shall be treated as rectified and all the provisions of this Act shall have effect accordingly.
+(4) No order under sub-section (1) shall be made after five years from the date of the order sought to be rectified.]
+
+[^708]: Section 57 is substituted by Finance Act, 2013.

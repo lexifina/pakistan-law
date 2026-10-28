@@ -1,0 +1,10 @@
+[^771][74. Condonation of time-limit.– Where any time or period has been specified under any of the provisions of the Act or rules made there under within which any application is to be made or any act or thing is to be done, the [^772][Board] may, [^773][at any time before or after the expiry of such time or period,] in any case or class of cases, permit such application to be made or such act or thing to be done within such time or period as it may consider appropriate [:]
+Provided that the Board may, by notification in the official Gazette, and subject to such limitations or conditions as may be specified therein, empower any [Commissioner] to exercise the powers under this section in any case or class of cases [^774][:
+Provided further that regardless of anything stipulated in this section, or any provision of this Act, or any other applicable law currently in force, and notwithstanding any decision, order or judgement issued by any forum, authority or court, the maximum period of extension under this section by the Board or the Commissioner, as the case may be, shall not exceed two years in aggregate:
+Provided also that where there are reasons to believe that significant loss to exchequer or taxpayer has been caused by an act of omission or commission by the registered person or by any authority mentioned in section 30, a committee of members as notified by the Board may further condone the limitation specified for a period as it may deem fit, after providing a reasonable opportunity of being heard to the registered person concerned.
+Explanation.– For the purpose of this section, the expression “any act or thing is to be done” includes any act or thing to be done by the registered person or by the authorities specified in section 30 of this Act.]
+
+[^771]: Section 74 added by the Finance Ordinance, 2002.
+[^772]: Substituted for the words “Central Board of Revenue” by Finance Act, 2007.
+[^773]: Words added by Finance Act, 2022.
+[^774]: in section 74, in the proviso, for the full stop at the end, a colon substituted and thereafter new provisos added through Finance Act, 2025

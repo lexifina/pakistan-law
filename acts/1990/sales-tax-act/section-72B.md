@@ -1,0 +1,7 @@
+[^755][72B. Selection of audit by the Board.– (1) The Board may select persons or classes of persons for audit of tax affairs through computer ballot which may be random or parametric as the Board may deem fit.
+[^756][(1A) Notwithstanding anything contained in this Act or any other law, for the time being in force, the Board shall keep the selection parameters confidential.]
+(2) Audit of tax affairs of persons selected under sub-section (1) shall be conducted as per procedure given in section 25 and all the provisions of this Act shall apply accordingly.
+(3) For the removal of doubt, it is hereby declared that the Board shall be deemed always to have had, the power to select any persons or classes of persons for audit of tax affairs under this section.]
+
+[^755]: Section 72A inserted by Finance Act, 2010 w.e.f. June 5, 2010. The same amendment was made by Finance Amendment) Ordinance, 2010, promulgated as Ordinance no. III of 2010, the same amendment was made by Finance (Amendment) Ordinance, 2010, promulgated as Ordinance No. III of 2010, dated February 6, 2010, published in the official Gazette of Pakistan Extraordinary Part I at pages 23 to 53 and this amendment was made through Finance (Amendment) Ordinance, 2009, promulgated as Ordinance No. XXII of 2009, dated October 28, 2009, published in the Gazette of Pakistan Extraordinary Part I at pages 229 to 259.
+[^756]: New sub-section (1A) added through Finance Act, 2019.

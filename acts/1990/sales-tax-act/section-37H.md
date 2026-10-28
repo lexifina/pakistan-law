@@ -1,0 +1,1 @@
+37H. Place of Sittings.– A Special Judge shall ordinarily hold sittings at his headquarters but, keeping in view the general convenience of the parties or the witnesses, he may hold sittings at any other place.
