@@ -1,0 +1,1 @@
+22. Police­officers always on duty and may be employed in any part of district. Every police‑officer shall, for all purposes in this Act contained, be considered to be always on duty, and may at any time be employed as a police‑officer in any part of the general police‑district.

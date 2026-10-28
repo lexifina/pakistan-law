@@ -1,0 +1,1 @@
+54. Procedure for selection of independenLmembers.­ The procedure provided under sections 50 and 51 shall be applicable for selection of the narres of the independent members of the Capital City District Public Safe:y Commission.

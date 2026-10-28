@@ -1,0 +1,4 @@
+2. Constitution of the force. The entire police‑establishment under a 7[Provincial Government] 8[in a general Police district] shall, for the purposes of this Act, be deemed to be one 9police‑force, and shall be formally enrolled; and shall consist of such number of officers and men, and shall be constituted in such manner, 1* * * as shall from time to time be ordered by the 2[Provincial Government] 3* * *.
+4[Subject to the provisions of this Act the pay and all other conditions of service5 of members of the subordinate ranks of any police force shall be such as may be determined by the Provincial Government:]
+6[Provided that in a general police district notified as City District, the police force shall be organized on functional basis:
+Provided further that no recruitment or induction in the police force shall be made except in the [ranks of constable and Assistant Sub­Inspector of Police.]
