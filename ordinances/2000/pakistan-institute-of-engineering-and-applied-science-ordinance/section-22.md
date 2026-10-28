@@ -1,0 +1,4 @@
+22. Transfer of assets and liabilities etc.:___ Upon the commencement of this Ordinance,—
+(a) everything done, action taken, obligations and liabilities incurred, persons appointed or authorised, fellowships or scholarships instituted and orders issued prior to such commencement shall be continued and, so far as may be, be deemed to have been respectively done, taken, incurred, appointed or authorised, instituted or issued by the Institute;
+(b) all monies and properties held by the Institute immediately before such commencement shall stand transferred to, and vest in, the Institute; and
+(c) all laws, rules, regulations and bye-laws applicable to the Institute shall, in so far as they are not inconsistent with the provisions of this Ordinance, continue to be in force until they are repealed, rescinded or modified under this Ordinance.

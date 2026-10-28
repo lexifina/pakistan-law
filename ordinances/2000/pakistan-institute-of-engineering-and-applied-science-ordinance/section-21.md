@@ -1,0 +1,1 @@
+21. Indemnity:___ No suit, prosecution or other legal proceeding shall lie against the Institute, Commission or any officer of the Institute for anything which is done or intended to be done in good faith under this Ordinance.

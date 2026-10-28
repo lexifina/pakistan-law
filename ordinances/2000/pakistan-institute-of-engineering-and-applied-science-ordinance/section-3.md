@@ -1,0 +1,1 @@
+3. Establishment of the Institute:___ The Pakistan Institute of Engineering and Applied Sciences, Islamabad, as reconstituted in accordance with the provisions of this Ordinance shall be a body corporate having perpetual succession and a common seal with power to acquire, hold and dispose off property, both movable and immovable and shall by the said name sue and be sued.

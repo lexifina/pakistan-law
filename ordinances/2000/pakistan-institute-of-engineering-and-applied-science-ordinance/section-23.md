@@ -1,0 +1,1 @@
+23. Removal of difficulties, etc.:___If any difficulty arises in giving effect to any of the provisions of this Ordinance, the Commission may make such order, not inconsistent with the provisions of this Ordinance, as may appear to be necessary for removing such difficulty.
