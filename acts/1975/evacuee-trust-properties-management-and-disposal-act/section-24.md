@@ -1,0 +1,1 @@
+24. Recovery of arrears. Any sum due to the Board in respect of any evacuee trust property which is not paid within thirty days of its having become due shall be recoverable as an arrear of land revenue.

@@ -1,0 +1,1 @@
+9. Exemption of property in Trust Pool from process. No evacuee trust property shall be liable to be proceeded against for any claim in any manner whatsoever in execution of any decree or order or by any other process of Court or other authority.

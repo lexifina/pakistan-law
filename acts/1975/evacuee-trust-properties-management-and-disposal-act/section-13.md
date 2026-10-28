@@ -1,0 +1,1 @@
+13. Officers and staff to be public servants. All persons appointed under this Act, shall, subject to any special contract to the contrary, be deemed to be public servants within the meaning of section 21 of the Pakistan Penal Code (Act XLV of 1860).

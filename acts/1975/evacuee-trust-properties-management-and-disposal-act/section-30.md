@@ -1,0 +1,1 @@
+30. Preparation of scheme for management etc. Subject to the provisions of this Act and the rules, the Board shall, with the prior approval of the Federal Government, prepare one or more schemes for the management, maintenance and disposal of evacuee trust property and for the efficient performance of its functions.

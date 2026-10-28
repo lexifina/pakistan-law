@@ -1,0 +1,2 @@
+12. Appointment and duties of officers and staff.—(1) The Chairman may, with the prior approval of the Federal Government and on such terms and conditions as the Board may determine, appoint administrators, Deputy Administrators and Assistant Administrators, and may also appoint such other officers and staff as may be necessary for the efficient performance of the functions of the Board.
+(2) The Chairman may, by general or special order, provide for the distribution or allocation of work to be performed by the persons appointed under sub-section (1).
