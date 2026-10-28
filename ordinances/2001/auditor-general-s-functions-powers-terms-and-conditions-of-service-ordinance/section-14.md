@@ -1,0 +1,6 @@
+14. Powers of Auditor-General in connection with audit of accounts.__(1) The Auditor-General shall, in connection with the performance of his duties under this Ordinance, have authority—
+(a) to inspect any office of the accounts, under the control of the Federation or of a Province or of a district, including treasuries, and such offices responsible for the keeping of initial or subsidiary accounts;
+(b) to require that any accounts, books, papers and other documents which deal with, or form, the basis of or otherwise relevant to the transactions to which his duties in respect of audit extend, shall be sent to such place as he may direct for his inspection; and
+(c) to enquire or make such observations as he may consider necessary, and to call for such information as he may require for the purpose of the audit.
+(2) The officer incharge of any office or department shall afford all facilities and provide record for audit inspection and comply with requests for information in as complete a form as possible and with all reasonable expedition.
+(3) Any person or authority hindering the auditorial functions of the Auditor-General regarding inspection of accounts shall be subject to disciplinary action under relevant Efficiency and Discipline Rules, applicable to such person.
