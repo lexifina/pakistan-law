@@ -1,0 +1,3 @@
+3. Establishment of the Authority. — (1) The Government may, by notification in the official Gazette, establish the Pakistan Halal Authority for carrying out the purposes of this Act.
+(2) The Authority shall be a body corporate having perpetual succession and a common seal, with powers, subject to the provisions of this Act, to acquire and hold property, both movable and immovable, and shall by the said name sue and be sued.
+(3) The headquarters of the Authority shall be at Islamabad and it may, with the prior approval of the Government, set up offices at other places as, when and where required.

@@ -1,0 +1,1 @@
+19. Marketing of Halal products. —No food or non-food product shall be marketed or offered for sale with the description or representation of being a Halal article or product within the Islamabad Capital Territory unless it bears the Halal logo of the Authority or is certified to be Halal by a duly accredited Halal certification body.

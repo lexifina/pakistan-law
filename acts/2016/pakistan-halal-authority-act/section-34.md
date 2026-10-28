@@ -1,0 +1,1 @@
+34. Power to make regulations. —The Authority may, with the previous approval of the Government, by notification in the official Gazette, make regulations not inconsistent with this Act or the rules to carry out the purposes of this Act.

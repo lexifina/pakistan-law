@@ -1,0 +1,1 @@
+12. Authentication of orders and other instruments of the Authority. —All orders, decisions and other instruments issued by the Authority shall be authenticated only by the signatures of such officer or officers as are authorized by the Authority in this behalf.
