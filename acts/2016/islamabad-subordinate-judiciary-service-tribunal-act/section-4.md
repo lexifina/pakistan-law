@@ -1,0 +1,3 @@
+4. Constitution of benches.—(1) Notwithstanding anything contained in section 3, the Chairman may constitute a Bench consisting of two members with or without the Chairman and when so constituted, the Bench shall be deemed to be a Tribunal.
+(2) If a Bench is unable to arrive at a unanimous decision, in an appeal, the matter shall be placed before the full Tribunal and the decision of the Tribunal shall be expressed in terms of the opinion of the majority.
+(3) The Chairman may, at any stage of hearing of an appeal withdraw it from the Tribunal and entrust it to a Bench or may withdraw any appeal pending before a Bench and make it over to another Bench or to the Tribunal.
