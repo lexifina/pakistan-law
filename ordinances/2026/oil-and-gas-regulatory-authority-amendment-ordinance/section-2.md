@@ -1,0 +1,2 @@
+2. Amendment of section 2, Ordinance XVII of 2002.— In the Oil and Gas Regulatory Authority Ordinance, 2002 (XVII of 2002), hereinafter referred to as “the said Ordinance”, in section 2, for clause (ii), the following shall be substituted, namely:—
+“(ii) “Chairman” means the person appointed as Chairman of the Authority and includes the Vice-Chairman when acting as Chairman or the Civil Servant to whom the additional charge of the post of Chairman is assigned;”
