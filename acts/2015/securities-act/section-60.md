@@ -1,0 +1,2 @@
+60. Power of the Commission to appoint auditor.— (1) Where the Commission is satisfied that it is in the public interest to do so, it may appoint in writing an auditor for special audit, at the expense of the central depository, to examine, audit and report, either generally or in relation to any matter, on the books, accounts and records of a central depository.
+(2) The Commission may appoint special auditors to furnish the Commission with a regulation compliance audit report in the form and manner prescribed.

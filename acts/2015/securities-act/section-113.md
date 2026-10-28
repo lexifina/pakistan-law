@@ -1,0 +1,1 @@
+113. Appointment of manager to the offer.— Before making any public offer the acquirer shall appoint a manager to the offer who shall not be an associate, or a group company, of the acquirer or the target company.

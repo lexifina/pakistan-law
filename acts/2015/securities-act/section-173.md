@@ -1,0 +1,1 @@
+173. Act not to affect the powers of the State Bank of Pakistan.— Nothing in this Act shall be read or construed as diluting, interfering with or affecting the powers and functions of the State Bank of Pakistan under any law.

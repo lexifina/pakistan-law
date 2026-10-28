@@ -1,0 +1,1 @@
+114. Timing of the public announcement of intention.— Any person intending to acquire control or voting shares of the target company which may attract the provisions of section 111, shall make a public announcement of its intention to acquire in such manner as may be prescribed.

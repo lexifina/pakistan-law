@@ -1,0 +1,4 @@
+64. Licensing requirement.— (1) No person shall carry on a regulated securities activity or purport to do so, unless such person is licensed by the Commission under this Act and operates in accordance with such licence.
+(2) A licence granted under this Act shall specify the regulated securities activity or activities that the regulated person is permitted to undertake and such person shall be restricted to such regulated securities activity or activities so specified.
+(3) The Commission may, by notification in the official Gazette, exempt any financial institution or class of financial institutions from the operation of sub-section (1) subject to such terms and conditions as may be prescribed.
+Explanation.— For the purposes of this sub-section the expression “financial institution” shall have the same meaning as defined under clause (15A) of sub-section (1) of section 2 of the Companies Ordinance, 1984 (XLVII of 1984).

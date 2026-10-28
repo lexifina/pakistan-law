@@ -1,0 +1,3 @@
+112. Number of voting shares and offer price.— (1) The public offer by the acquirer shall be made for such minimum number of voting shares and for such minimum offer price as may be prescribed.
+(2) Where the number of voting shares offered for sale by the shareholders are more than the voting shares offered to be acquired by the acquirer, the acquirer shall, in consultation with the manager to the offer, accept the public offer or offers received from the shareholders on a proportional basis:
+Provided that acquisition of voting shares from a shareholder shall not be less than the minimum marketable lot or the entire holding if it is less than the marketable lot.

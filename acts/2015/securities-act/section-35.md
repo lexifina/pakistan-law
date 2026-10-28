@@ -1,0 +1,6 @@
+35. Accounts and audit.— (1) A clearing house shall keep proper books of accounts and records of its profit and loss, assets and liabilities and all other transactions of the clearing house as may be prescribed.
+(2) The clearing house shall send audited financial statements to the Commission along with auditors report of clearing house for the financial year, including a profit and loss account, balance sheet, cash flow statement and such other items as may be prescribed within three months after the end of each financial year or such later time as allowed by the Commission.
+(3) The Commission may, where it deems appropriate, also require operational and regulatory audit to be conducted by an independent auditor in a prescribed manner.
+(4) The auditors report shall be in such a manner as may be prescribed.
+(5) The auditors shall have a right of access at all reasonable times to the books, accounts, vouchers and other records of the clearing house and shall be entitled to require from officers of the clearing house such information and explanations as they consider necessary for the performance of their duties as auditor.
+(6) The accounting and other records required to be reported under this section shall be preserved by the clearing house for a period of ten years or such longer period as may be prescribed.

@@ -1,0 +1,7 @@
+## PART XI
+## OTHER MARKET ABUSES
+132. False trading and market rigging transactions.— (1) No person shall create or cause to be created or do anything that is calculated to create a false or misleading appearance of active trading in securities on a securities market or a false or misleading appearance with respect to the price of securities on the securities market and any contravention of this section shall be an offence.
+(2) Without limiting the general nature of what constitutes a false or misleading appearance of active trading under sub-section (1), a false or misleading appearance of active trading in securities is created for the purpose of this section if a person—
+(a) enters into or carries out, directly or indirectly, any transaction for the sale or purchase of securities that does not involve a change in the beneficial ownership of them or offers to do so;
+(b) offers to sell securities at a price that is substantially the same as the price at which he has made or proposes to make or knows that an associate of his has made or proposes to make, an offer to buy the same or substantially the same, number of them; or
+(c) offers to buy the securities at a price that is substantially the same as the price at which he has made or proposes to make or knows that an associate of his has made or proposes to make, an offer to sell the same or substantially the same, number of them.

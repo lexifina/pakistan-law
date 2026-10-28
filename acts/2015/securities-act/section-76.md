@@ -1,0 +1,1 @@
+76. Issue of contract notes.— A regulated person shall, in respect of every contract for the purchase, sale or exchange of securities entered into by him, whether as principal or agent, make out a contract note in such a manner as may be prescribed.
