@@ -1,0 +1,1 @@
+10. Amounts to be included in estimates of expenditure.― The President may, subject to any general or special order made by him, include the amounts in any year in the estimates of expenditure for the purpose of giving effect to the provisions of this Act, and such amounts shall be charged upon and paid out of the Federal Consolidated Fund.

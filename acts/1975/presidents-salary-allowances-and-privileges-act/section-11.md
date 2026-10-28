@@ -1,0 +1,5 @@
+11. Compensation in case of air accident.—(1) If the President, while travelling by air, on official duty, by any flight scheduled or unscheduled (including flight in a Government-owned aircraft of any type), dies or receives an injury as a result of an accident, the Government shall pay to the person or persons referred to in sub-section (2) a sum of [^6][one million] rupees, in the case of death, and an amount to be determined by the Government having regard to scales of compensation applied by insurance companies in like cases, in the case of injury.
+(2) The compensation shall be payable, in the case of injury, to the President and, in the case of death, to such member or members of his family, or, if there by no such member, such other person or persons as may be nominated by him, and in the absence of such nomination to his heirs.
+(3) A nomination under sub-section (2) may be made, and may also be revoked or altered, by a notice in writing signed by the President and addressed to the Accountant General, Pakistan Revenues.
+
+[^6]: Subs. by the Finance Act, 1996 (9 of 1996) S. 8.
