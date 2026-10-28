@@ -1,0 +1,2 @@
+3. Continuance of requisitions. Notwithstanding the repeal of the Defence of Pakistan Ordinance, 1971 (XXX of 1971) and the rules made thereunder, all requisitioned lands shall continue to be subject to requisition and the Federal Government may use or deal with any requisitioned land in such manner as may appear to it to be expedient:
+Provided that the Federal Government may at any .time release from requisition any requisitioned land.
