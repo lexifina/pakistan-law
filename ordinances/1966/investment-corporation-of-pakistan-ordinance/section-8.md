@@ -1,0 +1,2 @@
+8. Qualification of shareholders.__ (1) No person shall be qualified to be registered as a shareholder who is not, under any law relating to contracts for the time being in force, competent to enter into a contract.
+(2) If at any time after the registration of a person as a shareholder, it is found that he was not, at the time of registration, qualified to be so registered, he shall not be entitled to exercise any of the rights of a share holder otherwise than for the purpose of sale of his shares under the orders of a competent Court.

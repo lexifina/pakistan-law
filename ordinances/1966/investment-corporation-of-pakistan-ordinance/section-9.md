@@ -1,0 +1,1 @@
+9. Notice regarding trust. The Corporation shall not enter in its register of shareholders any notice of any trust express, implied or constructive, nor be under any obligation to receive any such notice.

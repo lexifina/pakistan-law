@@ -1,0 +1,1 @@
+25. Special powers. The Corporation’s commission, brokerage, fees and other charges for the underwriting and placement of any issue shall, notwithstanding anything contained in any other law be determined by the Corporation after negotiations.

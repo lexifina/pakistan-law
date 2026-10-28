@@ -1,0 +1,2 @@
+27. Disposal of profit.__ (1) The Corporation shall establish a Reserve Fund to which shall be credited such amount out of its net annual profit as the Board may determine.
+(2) After deducting the amount under sub-section (1) and making necessary provisions for depreciation of assets and such other matters as are usually provided for by investment companies and institutions or are considered expedient in their interest the Corporation may, out of the surplus remaining from that net annual profit, declare such dividends as may be approved by the Board.
