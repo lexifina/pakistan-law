@@ -1,0 +1,2 @@
+38. Power to obtain information and documents etc.—(1) The Corporation may call upon any person, authority, agency, bank or financial institution to furnish any information, documents, papers and accounts it may require for the purposes of this Ordinance.
+(2) Any person who does not or fails to furnish the information, documents, papers and accounts required by the Corporation under sub-section (1) shall be punishable with imprisonment of either description for a term which may extend to one year, or with fine or, with both.

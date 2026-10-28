@@ -1,0 +1,1 @@
+34. Exemption from taxes. —Notwithstanding anything contained in any other law for the time being in force, the Federal Government may exempt Corporation from the payment of, all or any other taxes, duties, levies, charges and fees payable under or pursuant to any Federal law, on its investment, income, assets or wealth.

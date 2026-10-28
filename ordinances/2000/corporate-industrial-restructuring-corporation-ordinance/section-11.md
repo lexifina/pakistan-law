@@ -1,0 +1,8 @@
+11. Guidelines for Corporation and the Governor State Bank. — The Corporation, and where a matter is referred by it to Governor State Bank under sub-section (1) of section 10, the Governor State Bank, shall take into consideration inter-alia the following factors as the Corporation, or as the case may be, the Governor State Bank, may deem fit having regard to the facts of each case, namely: —
+(a) the practical possibilities of the non-performing asset;
+(b) the possibility of re-scheduling of financial assistance;
+(c) the adequacy of the subsisting securities and the willingness of the obligor to provide sufficient additional security;
+(d) such other preventive, ameliorative and remedial measures including amalgamation or merger, change in management whether partial or whole or such incidental, consequential or supplemental measures as may be necessary;
+(e) examine the possibility of keeping alive a running project by providing reasonable financial assistance through financial institutions keeping in view the interest of both borrower and lender and avoiding unemployment;
+(f) where the obligor can make financial arrangement on a joint venture basis with a third person on mutually agreed terms so as to provide sufficient security to the satisfaction of the Governor State Bank or the Board for repayment of the outstanding amount or liability of the non-performing asset to be determined in accordance with the State Bank’s circulars, instructions, rules, regulations and the law; and
+(g) any other, facts and circumstances having regard to public interest and the objectives of the Ordinance.

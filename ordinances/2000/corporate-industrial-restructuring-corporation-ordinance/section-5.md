@@ -1,0 +1,2 @@
+5. Board and its Powers.—(1) The overall direction, management, control and superintendence of the affairs of the Corporation shall vest in the Board which may exercise all such powers and do all such acts and things as may be exercised and done by the Corporation as set out in section 18.
+(2) In discharging its functions, the Board shall act with prudence and sound business and financial considerations for and on behalf of all persons who have beneficial interest as creditors or otherwise are beneficiaries, including the financial institutions and Government entity.

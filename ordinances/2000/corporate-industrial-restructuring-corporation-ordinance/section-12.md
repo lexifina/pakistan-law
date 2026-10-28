@@ -1,0 +1,3 @@
+12. Administration Committee.—(1) The Administration Committee shall consist of the Chief Executive and four other members of the Corporation to be appointed from the fields of banking, law, finance, engineering, management or accountancy.
+(2) The minutes of every meeting of the Administration Committee shall be laid before the Board at its meeting next following the meeting of the Administration Committee.
+(3) Subject to the superintendence, direction and control of the Board, the Administration Committee may deal with any matter within the competence of the Board and may exercise such powers and perform such functions as may be assigned to it by the Board.
