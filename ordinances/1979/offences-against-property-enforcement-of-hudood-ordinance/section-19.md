@@ -1,0 +1,1 @@
+19. Return of property taken away during haraabah. The provisions of section 12 shall apply, mutatis mutandis for return of the property taken away during haraabah so however, that sub-section (2) of the said section shall have effect as if, for the word “Hadd” therein, the words “punishment of amputation or death” were substituted.

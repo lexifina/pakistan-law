@@ -1,0 +1,1 @@
+18. Cases in which punishment of amputation or death for haraabah shall not be imposed or enforced. The punishment of amputation or death shall not be imposed or enforced for the offence of haraabah in cases in which hadd may not be imposed for theft liable to hadd and the provisions of section 10 and section 11 shall apply mutatis mutandis to such cases.
