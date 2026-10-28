@@ -1,0 +1,2 @@
+FIRST SCHEDULE
+Karachi Port limits as defined under section 3 of the Karachi Port Trust Act, 1886, under the Port Act, 1908 and under S.R.O. 307(KE)/91, dated 5th October, 1991, inclusive of the harbour waters bonded area the Karachi Fisheries Harbour as defined under the Karachi Fisheries Harbour Authority Ordinance, 1984 including any wharves, building and other works made on behalf of the public for convenience of traffic, for safety of vessels, or for the improvement, maintenance and good governance of the harbour and including the vicinity of the Port limits.
