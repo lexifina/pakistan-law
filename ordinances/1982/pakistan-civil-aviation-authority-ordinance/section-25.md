@@ -1,0 +1,1 @@
+25. Certain existing arrangements to continue. All contracts and working arrangement made and all liabilities incurred by the Federal Government in connection with, or for the purpose of, the Department, before the establishment of the Authority, shall be deemed to have been made or incurred by the Authority and have effect accordingly.

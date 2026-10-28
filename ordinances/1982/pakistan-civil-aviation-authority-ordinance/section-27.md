@@ -1,0 +1,1 @@
+27. Power of the Authority to make regulations. The Authority may make regulations, not inconsistent with this Ordinance and the rules made thereunder, to provide for all matters for which provision is necessary or expedient for carrying out the purposes of this Ordinance.

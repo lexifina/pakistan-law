@@ -1,0 +1,1 @@
+10. Delegation of powers. The Authority may, by general or special order, delegate to the Executive Committee, the Director‑General or an officer of the Authority any of its powers, duties or functions under this Ordinance, subject to such conditions as it may think fit to impose.

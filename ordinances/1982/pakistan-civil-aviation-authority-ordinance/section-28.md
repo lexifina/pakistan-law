@@ -1,0 +1,1 @@
+28. Winding‑up of the Authority. No provision of any law relating to the winding‑up of bodies corporate shall apply to the Authority and the Authority shall not be wound up except by order of the Federal Government and in such manner as the Federal Government may direct.

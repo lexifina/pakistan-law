@@ -1,0 +1,3 @@
+8. Executive Committee.― (1) There shall be an Executive Committee of the Authority Consisting of the Director‑General, who shall be its head, and four other members, of whom three shall be nominated by the Board from amongst the most senior Officers of the Authority, and one to be nominated by the Ministry of Finance and designated as Finance Member.
+(2) The Executive Committee shall exercise such administrative, executive, financial and technical powers as may be delegated to it by the Authority:
+Provided that the Executive Committee may, in an emergency which in its opinion requires immediate action take such action as it considers necessary, and shall report it for approval to the Board in its next meeting.
