@@ -1,0 +1,1 @@
+36. Indemnity.—(1) No suit or legal proceedings shall lie against the Institute or any Authority, officer or employee of the Institute or any person in respect of anything which is done in good faith under this Act.

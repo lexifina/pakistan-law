@@ -1,0 +1,1 @@
+26. Amendments and Repeal of Statutes and Regulations.—The procedure for amending or repealing the Statutes and Regulations shall be the same as that prescribed respectively for framing or making Statutes and Regulations.

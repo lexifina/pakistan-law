@@ -1,0 +1,32 @@
+4. Powers, Purposes and Functions of the Institute.⸻The Institute shall have the following powers, namely:⸻
+i. to provide for education and scholarship in such branches of knowledge as it may deem fit, and to make provision for research, service to society and for the application, advancement and dissemination of knowledge in such manner as it may determine;
+ii. to prescribe courses of studies to be conducted by it;
+iii. to select and examine students and to award and confer degrees, diplomas, certificates and other academic distinctions to and on persons who have been admitted to and have passed its examinations under prescribed conditions;
+iv. to confer honorary degrees or other distinctions on approved persons in the manner prescribed;
+v. to provide for such instructions for persons not being students of the institute, as it may prescribe, and to grant certificates and diplomas to such persons;
+vi. to provide career counselling and job search services to students and alumni;
+vii. to maintain linkages with alumni;
+viii. to develop and implement fund-raising plans;
+ix. to provide and support the academic development of the faculty of the Institute;
+x. to confer degrees on persons who have carried out independent research under prescribed conditions;
+xi. to affiliate and disaffiliate educational institutions under prescribed conditions;
+xii. to inspect colleges and other educational institutions affiliated or seeking affiliation with it;
+xiii. to accept the examinations passed and the period of study spent by students of the Institute at other universities and places of learning equivalent to such examinations and periods of study in the Institute, as it may prescribe, and to withdraw such acceptance;
+xiv. to co-operate with other Universities, public authorities or private organizations, inside as well as outside Pakistan, in such manner and for such purposes as it may prescribe;
+xv. to select and promote faculties;
+xvi. to pursue research;
+xvii. to create posts for research, extension, administration and other related purposes and to appoint persons thereto;
+xviii. to recognize selected members of the teaching staff of affiliated colleges or educational institutions admitted to the privileges of the Institute or such other persons as it may deem tit, as Institute Teachers;
+xix. to institute and award financial assistance to students in need, fellowships, scholarships, bursaries, medals and prizes under prescribed conditions;
+xx. to establish teaching departments, schools, colleges, faculties, museums and other centers of learning, teaching, research and development and to make such arrangements for their maintenance, management and administration as it may prescribe;
+xxi. to provide for the residence of the students of the Institute and the colleges, to institute and maintain halls of residence and to approve or license hostels and lodgings;
+xxii. to maintain order, discipline and security on the campuses of the Institute;
+xxiii. to promote the extra-curricular and recreational activities of such students, and to make arrangements for promoting their health and general welfare;
+xxiv. to demand and receive such fees and other charges as it may determine;
+xxv. to make provision for research, advisory or consultancy services and technology incubation, and with these objectives to enter into arrangements with other institutions, public or private bodies, commercial and industrial enterprises under prescribed conditions;
+xxvi. to enter into, carry out, vary or cancel contracts;
+xxvii. to receive and manage property transferred and grants, contributions made to the Institute and to invest any fund representing such property, grants, bequests, trusts, gifts, donations, endowments or contributions in such manner as it may deem fit;
+xxviii. to provide for the printing and publication of research and other works;
+xxix. to affiliate itself or associate with other institutions, and establish facilities, in Pakistan or abroad for better discharge of its functions and responsibilities in accordance with the procedure approved by the Board of Governors;
+xxx. To decide teaching methods and strategies in order to ensure the most effective educational and other programmes;
+xxxi. to do all such other acts and things, whether incidental to the powers aforesaid or not, as may be requisite or expedient in order to further the objectives of the Institute as a place of education, learning, research and development.

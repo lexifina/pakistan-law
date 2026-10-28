@@ -1,0 +1,5 @@
+18. Meetings of the Board of Governors.⸻ (1) The Board of Governors shall meet at least twice during a year on dates to be fixed by the Vice-Chancellor.
+(2) A special meeting may be called at any time by the Patron or the Chancellor or the Vice- Chancellor or on a request in writing by not less than five members of the Board of Governors to consider a matter of urgent nature.
+(3) In case of a special meeting, not less than ten clear days' notice of a special meeting shall be given to the members of the Board of Governors and the agenda of the meeting shall be restricted to the matters for which such a special meeting is called, and the agenda shall be annexed to such notice.
+(4) The decisions of the Board of Governors shall be expressed in terms of the views of the majority of members present and voting and, if the members are equally divided, the Chairperson shall have the power to exercise a second or casting vote.
+(5) The quorum for a meeting of the Board of Governors shall be one half of its membership, a fraction being counted as one.
