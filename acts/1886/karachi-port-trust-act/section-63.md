@@ -1,0 +1,1 @@
+63. Board to revise and sanction the estimate. – The Board shall consider the estimate so submitted to them and shall, sanction the same either unuttered or subject to such alterations as they shall think fit.

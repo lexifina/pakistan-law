@@ -1,0 +1,1 @@
+41. Power to permit erection of private wharves, etc., within the port subject to conditions. The Board may, by an order in writing and subject to the conditions contained in the same, permit any person to make, erect or fix below high-water mark within the port any wharf, dock, quay, stage, jetty, pier, erection or mooring.

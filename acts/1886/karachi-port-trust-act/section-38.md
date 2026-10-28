@@ -1,0 +1,3 @@
+38. Accommodation to be provided for customs officers in wharves etc. appointed under Sea Customs Act. When Government appoint, under the provisions of any Act for the levy of sea custom duties, any wharf, quay, stage, jetty, pier, warehouse or shed provided under this Act for the use of seagoing vessels to be a wharf for the landing or shipping, or a warehouse for the storing of goods within the meaning of such Act, the Board shall set apart, maintain and secure on or in such wharf, quay, stage, jetty, pier, warehouse or shed such portion thereof or place therein, or adjoining thereto, for the use of the officers of customs as the [^95][Federal Government] approves or appoints in that behalf.
+
+[^95]: See foot-note 5 on page 16, supra

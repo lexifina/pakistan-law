@@ -1,0 +1,3 @@
+90. Port to be pollution free etc. – (1) The Board shall be responsible for maintaining the marine environments of the Port’s limit free from pollution of the sea.
+(2) No discharge of solid and liquid wastes, oily noxious, radioactive and hazardous substance, bilge discharges from tankers and vessels, residues and mixtures containing noxious solid and liquid wastes, deballasting of unwashed cargo tanks and line washing garbage or other substance as may be specified by the Board shall be made within the Port limits.
+(3) Any person contravening the provisions of sub-section (2) shall be liable to penalty not exceeding ten million rupees for each contravention in addition to the charges for cleaning of the Port and removal of pollution therefrom.

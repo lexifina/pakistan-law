@@ -1,0 +1,1 @@
+59D. Loans to be first charge on property and income of Board. – All loans repayable by the Board, whether contracted prior to or after the commencement of this section, shall, subject to the provisions of section 61, be a first charge on the income of the Board and on the property now vested, or which may hereafter become vested, in the Board.

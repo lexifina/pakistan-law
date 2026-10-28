@@ -1,0 +1,5 @@
+[^184][69A. Investment of balances in debentures issued by the Board. – (1) In respect of any balance which the Board are empowered to invest in public securities under the last preceding section, it shall be lawful for the Board to reserve and set apart for the purposes of any such investment any debentures to be issued on account of any loan for which the sanction of the [^185][Federal Government] shall have been obtained, provided that the intention to so reserve and set apart such debentures shall have been notified as a condition of the issue of the loan.
+(2) The issue of any such debentures direct to and in the name of “The Trustees of the Port of Karachi” shall not operate to extinguish or cancel such debentures, but every debenture so issued shall be valid in all respects as if issued to and in the name of any other person.
+
+[^184]: Ss 69A, 69B and 69C ins. by Bom. Act 2 of 1902, s. 27.
+[^185]: Subs. by the Karachi Port Trust (Amendment) Act, 1974 (45 of 1974), s. 2, for “Central Government” which had been subs. by the Repealing and Amending Ordinance, 1965 (10 of 1965) s. 3 and 2nd Sch., for “Governor in Council”.

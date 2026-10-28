@@ -1,0 +1,3 @@
+65. List of works to accompany estimates. – Together with the said estimate, the Board shall submit, [^171]*** to the Government, a list of the works which the Board propose to execute during the year to which the estimate relates, showing the order in which the said works are to be executed and the date within which each of them will probably be completed or, in the case of any work which will not be completed within the year, the progress intended to be made therewith during the said year.
+
+[^171]: The words “through the Commissioner” omitted by the Sind Laws Regulation, 1936 (6 of 1936), s.4 and Third Sch.

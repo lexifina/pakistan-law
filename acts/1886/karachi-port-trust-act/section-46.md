@@ -1,0 +1,7 @@
+46. Board’s lien for tolls and charges. For the amount of all tolls, dues, rates and charges leviable under this Act in respect of any goods; the Board shall have a lien on such goods, and shall be entitled to seize and detain the same until such tolls, dues, rates and charges are fully paid [^105][and for the amount of rent lawfully due on buildings, plinths, stcking areas and other premises, the property of the Board, and not paid after bills therefore have been duly preferred, the Board shall have a lien on all goods, therein or thereon, and shall be entitled to seize and detain the same].
+Tolls, dues, rates and charges in respect of goods to be landed shall become payable immediately on the landing of the goods and in respect of goods to be removed from the premises of the Board or to be shipped for export, shall be payable before the goods are removed or shipped.
+The lien for such tolls, dues, rates and charges shall have priority over all other liens and claims, except a lien for freight primage and general average, where such lien has been preserved in the manner hereinafter provided and a lien for money payable to [^106][the [^107][Federal Government] under any law for the time being in force.
+
+[^105]: Ins. by Karachi Port Trust (Amdt.) Act, 1914, s. 13.
+[^106]: Subs. by Federal Laws(Revision and Declaration) Act, 1951 (26 of 1951), s.5 and Fourth Sch., for “Her Majesty or the Secretary of State for India in Council”.
+[^107]: See footnote 2 on page 3, supra.

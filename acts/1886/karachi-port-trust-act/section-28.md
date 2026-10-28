@@ -1,0 +1,4 @@
+28. Transfer to the Board of the Karachi Harbour Board’s liabilities and claims. The loans specified in schedule B, which [^76][were] contracted by the Karachi Harbour Board and have not yet been discharged, and all other debts and obligations incurred, all contracts entered into, and all matters and things engaged to be done by, with or for the Karachi Harbour Board, shall be deemed to have been incurred, entered into or engaged, to be done by, with or for the Board; and all sums of money due to the said Karachi Harbour Board shall be deemed to be due to the Board;
+and all suits or other legal proceedings, civil or criminal, instituted, or which might, but for the passing of this Act, have been instituted, by or against the said Karachi harbour Board, may be continued or instituted by or against the Board.
+
+[^76]: Subs. by the Karachi Port Trust (Amdt.) Act, 1914 (Bom. Act 1 of 1914),s .11, for “have been”.
