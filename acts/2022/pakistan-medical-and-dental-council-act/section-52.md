@@ -1,0 +1,1 @@
+52. Transitory provision.—Upon the commencement this Act, the Council shall be constituted within sixty days, however; during the transitory period of sixty days, Minister-in-charge of the Division concerned shall exercise the powers of the Council, subject to the condition that all his decisions shall be ratified by the Council constituted after transitory period.

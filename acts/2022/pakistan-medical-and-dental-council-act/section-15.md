@@ -1,0 +1,1 @@
+15. Committee of the Council.—The Council and the board shall have the power to constitute necessary committees comprising its members and such other persons as the Council and the board deem proper for undertaking the functions of the Council or to advise and assist the Council and the board in exercise of its powers.

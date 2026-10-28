@@ -1,0 +1,4 @@
+12. Meetings of the board.—(1) The board shall meet at least once in three months at the office of the Council on such date and at such time as may be decided by the Chairman. A notice of the meeting shall be issued at least fourteen days prior to the meeting.
+(2) A meeting of the board for a specific purpose may be called by the Council at a date and time to be determined by the President of the Council in consultation with the Chairman of the board. In the absence of Chairman of the board, any member may preside over the meeting with the consensus of the present members.
+(3) A minimum of two-thirds of the members of the board shall form a quorum and all of the acts of the board shall be decided by a majority of the members present and voting.
+(4) The registrar of the Council shall act as secretary of the national medical and dental academic board.

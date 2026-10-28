@@ -1,0 +1,3 @@
+8. Meetings of the Council.—(1) The Council shall meet as often as required but at least once in every three months at such time and place as may be decided by the President. A notice of the meeting shall be issued fourteen days prior to the meeting with the exception of emergency meeting which may be called with requisition of minimum of seven members of the Council for which reasons shall be recorded in writing and conveyed to the division concerned.
+(2) Decision of majority members of the Council present and voting shall be construed a decision of the Council.
+(3) Seven members of the Council shall constitute a quorum for meetings of the Council.

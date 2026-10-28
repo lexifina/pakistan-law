@@ -1,0 +1,4 @@
+14. Registrar of the Council.—(1) The Council shall appoint through a transparent process on merit a registrar who shall act as the registrar to the Council and the board in the prescribed manner.
+(2) The registrar shall maintain all records of the Council and the board including recording and issuing the minutes of all meetings of the Council and the board in real time and as approved at the relevant meeting and shall under his signatures issue all notifications and decisions of the Council and the board as and when necessary.
+(3) The registrar shall be the custodian of the common seal of the Council.
+(4) The registrar shall cause to be displayed on the website of the Council all minutes of the meetings of the Council and the board as approved, audited accounts of the Council and all notifications and decisions of the Council and the board.

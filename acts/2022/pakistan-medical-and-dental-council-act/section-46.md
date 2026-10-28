@@ -1,0 +1,1 @@
+46. Indemnity.—No suit, prosecution or other proceedings shall lie against the Federal Government through Minister-in-charge, the division concerned, the Council, the board or any committee of the Council, President, or any member, officer or employee of the Council in respect of anything done or intended to be done in good faith under this Act.

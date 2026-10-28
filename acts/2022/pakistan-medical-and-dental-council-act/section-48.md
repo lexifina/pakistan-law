@@ -1,0 +1,2 @@
+48. Information to be furnished by the Council and publication thereof.—(l) The Council shall furnish such reports, copies of its minutes, abstracts of its accounts and other information to the Federal Government through Minister-in-charge as it may require.
+(2) The Federal Government through Minister-in-charge may publish, in such manner as it may think fit, any report, copy, abstract or other information furnished to it under this section or under section 21.

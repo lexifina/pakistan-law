@@ -1,0 +1,1 @@
+23. Arrangements for schemes with foreign countries.—At any time, the Council may enter into negotiations with the appropriate authority in any foreign country or organization, for the settling of a scheme for improvement of medical or dental education in Pakistan or postgraduate degrees or any matter or prospect related to the medical or dental profession.
