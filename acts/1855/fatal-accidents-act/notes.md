@@ -1,0 +1,6 @@
+[^1]: Short title given by the Short Titles Act, 1897 (14 of 1897). This Act is based on the Fatal Accidents Act, 1846 (9 & 10 Vict., c. 93). It has been declared to be in force in all the Provinces and the Capital of the Federation, except the Scheduled Districts, by the Laws Local Extent Act, 1874 (15 of 1874), s. 3. It has been declared by notification under s. 3(a) of the Scheduled Districts Act, 1874 (14 of 1874), to be in force in the following Scheduled Districts, namely:- Sind …………………………….See Gazette of India, 1880, Pt. I, p. 672. The Scheduled Districts of the Punjab (some of these and portions of others now form the N.W.F.P),-See Gazette of India, 1881, Pt. I, p.483.
+[^2]: The word "Indian" omitted by A. O. 1949, Sch.
+[^3]: The words “And it is enacted further that” rep. by the Repealing and Amending Act, 1914 (10 of 1914), Sch. II.
+[^4]: The words "and that every such action shall be brought within twelve calendar months after the death of such deceased person" rep. by the Indian Limitation Act, 1871 (9 of 1871). For limitation, see now the Limitation Act, 1908 (9 of 1908).
+[^5]: Certain words rep. by Act 10 of 1914, Sch. II.
+[^6]: Step-father and step-mother are designedly omitted.
