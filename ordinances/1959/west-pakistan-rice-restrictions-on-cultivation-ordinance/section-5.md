@@ -1,0 +1,1 @@
+5. Jurisdiction of civil court. No civil court shall have jurisdiction to entertain any claim, suit, prosecution or any other legal proceedings for anything done, or intended to be done in good faith under the provisions of this Ordinance, or the rules made and directions issued thereunder.
