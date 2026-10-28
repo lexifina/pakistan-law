@@ -1,0 +1,3 @@
+3. Inquiry into the conduct of certain persons subject to service law.—The conduct of a person subject to a service law shall, notwithstanding anything contained in such law, be inquired into by a board of inquiry in accordance with the provisions of this Ordinance and the rules made thereunder where the conduct to be inquired into___
+(a) relates to a period when he was serving or attached, except on secondment, in or to an organization or unit other than that of the service to which he belongs, or
+(b) is that of such person together with that of another person who was not, during the period to which the conduct relates, subject to the same service law.
