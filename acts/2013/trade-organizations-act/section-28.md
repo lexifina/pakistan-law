@@ -1,0 +1,1 @@
+28. Presumption as to orders.⸻ Where an order purports to have been made or signed by an authority or person in exercise of any power conferred by or under this Act, a court shall presume that such order was so made by that authority or person.

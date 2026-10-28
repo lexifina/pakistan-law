@@ -1,0 +1,6 @@
+4. Revocation of licences of existing trade organisations.⸻ (1) Except as hereinafter provided and notwithstanding anything in any other law for the time being in force and memorandum and articles of association of any trade organisation, any licence granted under section 3 of the repealed ordinance to an existing trade organisation shall stand revoked with effect from the 30th December, 2006 and such trade organisation shall be required to apply for grant of licence under this Act by the date notified by the Federal Government:
+Provided that revocation of licence of a trade organisation shall not prevent its members from assuming office, subject to section 11, consequent upon elections under the repealed ordinance.
+(2) The [^4][Regulator] shall decide the application for grant of licence within such period of its filing as notified by the [^4][Regulator].
+(3) An existing trade organisation which has applied for grant of licence within the time notified by the [^4][Regulator] shall continue to function as a trade organisation until the [^4][Regulator] decides its application for grant of licence and until the first elections are held according to rules made under this Act.
+
+[^4]: Subs. by Act No. IV of 2025, s.4.

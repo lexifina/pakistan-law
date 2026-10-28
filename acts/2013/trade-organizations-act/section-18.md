@@ -1,0 +1,1 @@
+18. Restriction on suits against trade organisations.⸻ Notwithstanding anything contained in any law for the time being in force or in the articles or memorandum of a registered trade organisation, no suit or other legal proceedings relating to affairs of a trade organisation shall be instituted or commenced in any court except High Court.

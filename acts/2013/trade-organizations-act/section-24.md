@@ -1,0 +1,1 @@
+24. Power to levy fee etc.⸻The Federal Government may levy and charge prescribed processing fee for grant of licence or renewal of licence to a trade organisation and for examining performance reports, audited accounts and other documents submitted to the Federal Government or the Regulator.

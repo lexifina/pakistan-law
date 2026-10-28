@@ -1,0 +1,6 @@
+19. Compulsory membership of trade organisations.⸻(1) Notwithstanding anything contained in any other law for the time being in force or in the articles or memorandum of association of any trade organisation or other company or in any agreement or other instrument, the [^13][division to which business of this Act stands allocated] may,⸻
+(a) subject to any rules made in this behalf, by order in writing, direct any firm, company or other concern engaged in any trade, commerce, industry or service to be a member of registered trade organisation specified in the order; or
+(b) if it considers expedient in the interest of trade, commerce, industry, or service, by notification in the official Gazette, direct all such firms, companies or concerns or any class thereof engaged in trade, commerce, industry or service, as may be specified in the notification subject to exception if any, to be members of the registered trade organisation or organisations specified in this behalf in such notification.
+(2) Upon the issue of an order or notification under sub-section (1), the registered trade organisation concerned shall admit as its member any firm, company or concern directed to be its member by such order or notification.
+
+[^13]: Subs. by Act No. IV of 2025, ss.13-14.
