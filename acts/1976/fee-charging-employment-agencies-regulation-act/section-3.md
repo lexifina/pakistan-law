@@ -1,0 +1,2 @@
+3. Prohibition to act as fee-charging employment agency. After the enforcement of this Act, no employment agency shall, save as hereinafter provided, act as a fee-charging employment agency in any area:
+Provided that an employment agency acting immediately before the enforcement of this Act as a fee-charging employment agency may continue so to act for, and may apply for a licence within, a period of six months from such enforcement.

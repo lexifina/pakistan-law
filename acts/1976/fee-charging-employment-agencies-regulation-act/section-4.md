@@ -1,0 +1,6 @@
+4. Appointment and powers of competent authority.—(1) The Federal Government may, by notification in the official Gazette, appoint an officer to be the competent authority for the purposes of this Act.
+(2) The competent authority or an officer uthorized by it in writing in this behalf may, with a view to securing compliance with the provisions of this Act or the rules, or any order or direction made or issued thereunder, or the terms or conditions of any licence,—
+(a) require any person to give such information or produce such documents in his possession with respect to any business or service of the nature of employment agency carried on or rendered by such person or any person employed by him as the competent authority or such officer may demand;
+(b) enter into and search any premises of an establishment or industry with such assistance as may be necessary and inspect any book or other document belonging to or under the control of any person acting or reasonably suspected to be acting as an employment agency; and
+(c) take on the spot or otherwise such evidence of any person as the competent authority or such officer may deem necessary:
+Provided that no one shall be required under this section to answer any question or give any evidence tending to incriminate himself.
