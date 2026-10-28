@@ -1,0 +1,2 @@
+23. Powers and duties of the Academic Council.— (1) The Academic Council shall be the academic body of the University and shall, subject to the provisions of this Ordinance and the Statutes, have the power to lay down proper standards of instruction, research and examinations and to regulate and promote the academic life of the University.
+(2) The Academic Council shall advise the Board of Governors on academic matters and shall exercise such powers and perform such duties as may be assigned to it by the Board of Governors and those prescribed by the Statutes.

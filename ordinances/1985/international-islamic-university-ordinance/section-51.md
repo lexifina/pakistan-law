@@ -1,0 +1,1 @@
+51. Removal of difficulties. If any difficulty arises as to the first constitution or reconstitution of any Authority upon coming into force of this Ordinance or otherwise in giving effect to the provisions of this Ordinance, the Chancellor may, on the recommendation of the Rector, give appropriate directions to remove such difficulty.

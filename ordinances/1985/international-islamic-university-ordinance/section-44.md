@@ -1,0 +1,1 @@
+44. Proceeding of Authorities not invalidated by vacancies. No act, proceedings, resolution or decision of any Authority shall be invalid by reason only of any vacancy in or any defect in the constitution of, or in the appointment or nomination of any member of, the Authority.

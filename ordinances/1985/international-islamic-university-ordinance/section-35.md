@@ -1,0 +1,1 @@
+35. Annual statement of accounts. The President shall submit each year a statement of expenditure and receipts of the University, duly audited by an external auditor appointed by the Board of Governors with his comments for consideration by the Board of Governors.

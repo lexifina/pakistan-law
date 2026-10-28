@@ -1,0 +1,1 @@
+39. Pension, insurance, gratuity, provident fund and benevolent fund. The University shall constitute for the benefit of its officers, teachers and other employees in such manner and subject to such conditions as may be prescribed such pension, insurance, gratuity, provident fund and benevolent fund schemes as it may deem fit.

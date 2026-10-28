@@ -1,0 +1,1 @@
+6. University open to all classes, creeds, etc. The University shall be open to all persons of either sex of whatever religion, race, creed, class or color who desire to receive higher education with Islamic orientation and no such person shall be denied the privileges of the University on the ground only of sex, religion, race, caste, creed, class, colour or domicile.

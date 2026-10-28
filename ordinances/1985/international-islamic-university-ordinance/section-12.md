@@ -1,0 +1,5 @@
+12. Rector.—(1) The Chancellor shall appoint a scholar of international repute or an educationist of distinction as Rector for such period and on such terms and conditions as he may determine.
+(2) The Rector, in the absence of the Chancellor and the Pro-Chancellor, shall preside at the convocation of the University and the meetings of the Board of Trustees and when present he shall preside over the meetings of the Authorities.
+(3) The Rector shall exercise general control and supervision over the affairs of the University and shall ensure that the provisions of this Ordinance, the Statutes, the Regulations, the Rules, policies and directions of the Board of Trustees are properly executed.
+(4) The Rector shall submit the plans of work, the budget, as approved by the Board of Governors, and a report on the activities of the University to the Board of Trustees.
+(5) The Rector shall perform such other functions as may be entrusted to him by the Chancellor, the Pro-Chancellor or the Board of Trustees.
