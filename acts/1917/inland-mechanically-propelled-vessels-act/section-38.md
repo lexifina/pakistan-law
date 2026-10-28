@@ -1,0 +1,3 @@
+38. Powers of courts as to evidence and regulation of proceedings. For the purpose of any investigation under this Chapter, the Court making the investigation shall, so far as relates to compelling the attendance and examination of witnesses, and the Production of documents and the regulation of the proceedings, have—
+(a) if the Court is a special Court-the same powers as are exercisable by the principal Court of ordinary criminal jurisdiction for the place at which the investigation is made; or
+(b) if the Court is a principal Court of ordinary criminal jurisdiction or the Court of the District Magistrate the same powers as are exercisable respectively by either Court in the exercise of its criminal jurisdiction.

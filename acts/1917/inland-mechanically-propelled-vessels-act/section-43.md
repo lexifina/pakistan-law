@@ -1,0 +1,1 @@
+43. Court to exercise its powers independently of the assessors. Notwithstanding the appointment under section 37 of an assessor or assessors by a Court making an investigation under this Chapter, the exercise of all powers conferred on such Court by this Act shall rest with the Court alone.

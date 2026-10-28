@@ -1,0 +1,1 @@
+60. Penalty for master failing to give notice of wreck or casualty. If any master wilfully fails to give notice, as required by section 32, of any wreck, abandonment damage, casualty, or loss, he shall be punishable with fine which may extend to five hundred rupees, and, in default of payment of such fine, with simple imprisonment for a term which may extend to three months.

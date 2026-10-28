@@ -1,0 +1,7 @@
+68. Power for Provincial Government to modify application of Act to certain
+mechanically propelled vessels. The [^137][Provincial Government] may, [^139]* * * by notification[^140] in the [^138][official Gazette], declare that all or any of the provisions of Chapters II and III shall not apply in the case of any specified class of [^138][mechanically propelled vessels], or shall apply; to them with such modifications as may be specified in the notification.
+
+[^137]: Subs. by A.O., 1937, for “L.G.”.
+[^138]: Subs. by A.O., 1937, for “local official Gazette.”
+[^139]: The words “with the previous sanction of the G. G. in C.” rep. ibid.
+[^140]: The vessels belonging to the Karachi Port Trust and plying within the limits of the Port of Karachi have been exempted for a certain period, from the provisions of Chapter III of this Act, by the Chief Commissioner of Karachi, see Gazette of Pakistan, 1954, Pt. V, p. 138. The steam vessels belonging to the Karachi Port Trust and plying within the limits of the Port of Karachi, shall be exempted from the provisions of Chapter III of the said Act, for a further period of 1 year w.e. f. 18th January, 1954, see Gazette of Pakistan, 1954, Pt. VI, p. 138. The provision of section 27 (b) of this Act shall not apply to the “Motor Launches of the Karachi Port Trust having engines of 44 Brake Horse Power for the period of 2 years w.e. f. 3. 2. 54, see Gazette of Pakistan, 1955, Pt. VI, p. 3.)

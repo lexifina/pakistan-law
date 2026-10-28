@@ -1,0 +1,3 @@
+58. Penalty for carrying excessive number of passengers on board. If an [^130][mechanically propelled vessel] has on board or in any part thereof a number of passengers which is greater than the number set forth in the certificate of survey as the number of passengers which the vessel or the part thereof is, in the judgement of the surveyor, fit to carry, the owner and the master shall each be punishable with fine which may extend to ten rupees for every passenger over and above that number.
+
+[^130]: Subs. by the Inland Steam-vessels (Amdt.) Act, 1951 (25 of 1951), s.2, for “inland steam-vessels”.
