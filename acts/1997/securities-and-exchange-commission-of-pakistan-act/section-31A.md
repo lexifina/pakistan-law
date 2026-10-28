@@ -1,0 +1,5 @@
+[^48][31A. Power of the Commission to call for information.—(1) Notwithstanding anything contained in any other law, the Commission or authorized investigating officer may, by notice in writing, require any person including financial institution to furnish it with such documents or information as it may require during the course of inquiry, inspection or investigation under this Act or any administered legislation within such time and verified in such manner as it may specify.
+(2) The duty to supply information under this section applies notwithstanding any other enactment or law in Pakistan including Banking Companies Ordinance, 1962 (LXII of 1962).
+(3) Any person who refuses to provide information required by the Commission under sub-section (1) shall be guilty of an offence and shall be liable on conviction to a fine which may extend to one million rupees or to imprisonment for a term not exceeding three years, or with both.]
+
+[^48]: Ins. and subs. by Act XXXVI of 2016, ss. 16 & 17.

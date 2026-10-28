@@ -1,0 +1,4 @@
+26. Power to obtain finance, borrow money and receive grants.—(1) The Commission may, from time to time, and with the approval of the Federal Government, obtain finance or borrow money from sources within Pakistan or from abroad, as the case may be, with such rate of return, profit, mark-up or interest payable thereon, as the case may be, and for such period and upon such terms as to the time and method of repayment and otherwise, in respect of any sums required by the Commission for meeting any of its obligations or performing any of its functions.
+(2) The Commission may also accept [^41][* * *] and with the approval of the Federal Government, grants from entities both domestic and international, including multilateral agencies.
+
+[^41]: Omitted and subs., by Ord. No. LV of 2000, Ss.11-12.

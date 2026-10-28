@@ -1,0 +1,1 @@
+14. Board may invite others to meetings. The Board may invite any person to attend any of its meetings or deliberations (including any of its committees) for the purpose of advising it on any matter under discussion but any person so attending shall have no right to participate in any decision or vote at the said meeting or deliberation.

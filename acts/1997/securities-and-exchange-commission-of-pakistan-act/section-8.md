@@ -1,0 +1,2 @@
+8. Appointment of employees of the Commission.—(1) The Commission may, from time to time, employ persons to be employees of the Commission who shall be paid such remuneration and allowances and shall hold their employment on such terms and conditions as may be determined by the Commission with the approval of the Board.
+(2) The employees of the Commission shall hold office during the pleasure of the Commission and shall be liable to disciplinary action in accordance with the procedure laid down by the Commission with the approval of the Board.

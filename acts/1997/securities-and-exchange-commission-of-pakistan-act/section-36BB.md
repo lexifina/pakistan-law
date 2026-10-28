@@ -1,0 +1,1 @@
+36BB. Power to call for information.—For the purposes of discharging its functions the AOB shall be empowered to seek such information from QAB, audit firms and public interest companies or from any other person, as deemed necessary by it.

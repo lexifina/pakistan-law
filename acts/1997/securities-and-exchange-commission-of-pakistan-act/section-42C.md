@@ -1,0 +1,3 @@
+42C. Proof of documents by production of certified copies.—Notwithstanding anything contained in the Code of Criminal Procedure, 1898 ( Act No. V of 1898), Qanun-e-Shahadat Order, 1984 (P.O. 10 of 1984) or any other law,—
+(a) any duly certified copy of extract from any document or record maintained by the Commission under this Act or any administered legislation shall be construed as sufficient evidence in any inquiry or investigation or legal proceedings before any tribunal, authority or court of law ;
+(b) no one shall without the permission of the Commission in writing, take over or remove any original document or register from the custody of the officer of the Commission maintained under this Act or any administrated law.
