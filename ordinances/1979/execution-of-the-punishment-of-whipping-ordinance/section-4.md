@@ -1,0 +1,1 @@
+4. Specifications of whip. The whip, excluding its handle, shall be of one single piece and preferably be made of leather, or a cane or a Branch of a tree, having no knob or joint on it, and its length and thickness shall not exceed 1.22 meters and 1.25 cm. respectively.

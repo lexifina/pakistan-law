@@ -1,0 +1,2 @@
+6. Custody of convict pending execution of punishment, etc.—(1) In the case of a convict to whom only the punishment of whipping has been awarded, he shall until the execution of the punishment is completed, be dealt with as if sentenced to simple imprisonment.
+(2) If, in the opinion of the authorized medical officer, a convict cannot, because of old age, ill-health or for any other reason, undergo the whole or any part of the punishment of whipping, the case shall be referred to the Court which may order the execution of the punishment in such manner as it may deem fit.
