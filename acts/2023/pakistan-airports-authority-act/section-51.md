@@ -1,0 +1,1 @@
+51. Summary trial for certain offences.___ (1) A Magistrate of the first class shall try an offence under this Act, except an offence under section 39, in a summary manner and may impose any amount of fine under this Act.

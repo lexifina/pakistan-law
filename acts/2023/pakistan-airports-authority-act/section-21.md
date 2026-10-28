@@ -1,0 +1,7 @@
+## CHAPTER IV
+## LAND AND OTHER PROPERTIES
+21. Acquisition of [^11][land] for the Authority.___ (1) The acquisition of any land or any interest in land for the Authority for the discharge of any of its functions under this Act shall be deemed to be an acquisition for a public purpose within the meaning of the Land Acquisition Act, 1894 (I of 1894), and the provisions of the said Act shall apply to all such proceedings.
+(2) The Director General or any officer of the Authority authorized by him for this purpose, may enter upon and survey any land, erect pillars for the determination of intended lines of works, drill bore holes, excavate land and do all other acts which may be necessary for the preparation of any scheme or in relation to discharge of any function or duty by the Authority, but if the affected land does not vest in the Authority, the power conferred by this sub-section shall be exercised in such manner as to cause least interference with and least damage to the rights of the owner or occupant thereof.
+(3) Where the Director General or an authorized officer enters into or upon any land in pursuance of sub-section (2), he shall at the time of entering or as soon thereafter as may be practicable, pay or tender payment for all damage done to the land and in case of dispute as to the sufficiency of the amount so paid or tendered, the dispute shall be referred to the Collector of the district whose decision shall be final.
+
+[^11]: Subs. by Act No. XLII of 2026, ss.11-12.

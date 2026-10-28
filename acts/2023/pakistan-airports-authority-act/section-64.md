@@ -1,0 +1,1 @@
+64. Duty to render assistance.___ On the request of the airport manager or an authorized officer, an officer of the Federal Investigation Agency established under the Federal Investigation Agency Act, 1974 (VIII of 1975), Airport Security Force or of the local police to whom this request is directed, shall, without unreasonable delay, render such assistance.
