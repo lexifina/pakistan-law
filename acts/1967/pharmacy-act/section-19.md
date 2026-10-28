@@ -1,0 +1,4 @@
+19. Approval of courses of study.⸻(1) Any institution or authority which conducts a course of study in pharmacy may apply to the Central Council for approval of such course of study for the purpose of admission to an approved examination.
+(2) The Central Council, if it is satisfied after such enquiry as it may think fit that the course of study for the approval of which an application has been made under sub-section (1) is in conformity with this Act and the regulations, shall submit the application together with its recommendation to the [^11][Federal Government] and shall, upon the approval of the course of study by the [^11][Federal Government], declare it, by notification in the official Gazette, to be an approved course of study for the purpose of admission to an approved examination.
+
+[^11]: Subs. by F.A.O., 1975 Art. 2 and Tabl
