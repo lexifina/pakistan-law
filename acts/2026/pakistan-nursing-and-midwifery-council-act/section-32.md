@@ -1,0 +1,3 @@
+32. Procedure for Registration.—Any person possessing a recognized qualification or recognized higher qualification, who is not disqualified for registration, may make an application, accompanied by the prescribed fee, for registration of his name in the register to the Council.
+(2) The Council shall, if it is satisfied that the applicant possesses a recognized qualification or recognized higher qualification and it is not disqualified for registration, register the name of the applicant in the register.
+(3) No application under sub-section (1) shall be rejected except after giving the applicant an opportunity of being heard.

@@ -1,0 +1,1 @@
+9. Vacancy not to invalidate proceedings.—No act or proceeding of the Council shall be invalid merely on the ground of the existence of any vacancy in, or any defect in the constitution of the Council.

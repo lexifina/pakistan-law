@@ -1,0 +1,3 @@
+41. Offences and penalties.—(1) Any person who commits an offence under this Act, or contravenes any provision of this Act, the rules or regulations made thereunder, shall be punishable in accordance with the Fourth and Fifth Schedules.
+(2) The Court of Sessions shall, in accordance with the Criminal Procedure Code, 1898 (Act V of 1898), try the offences mentioned in the fourth schedule, which shall be amended by the Council with the approval of the Division concerned.
+(3) The Council shall take cognizance of the offences mentioned in the fifth schedule, which shall be amended by the Council with the approval of the Division concerned.

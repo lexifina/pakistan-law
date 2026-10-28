@@ -1,0 +1,1 @@
+45. Directives from the Division concerned.—The Division concerned may, from time to time, issue to the council such policies, directives, and instructions as it may consider necessary for carrying out the purposes of this Act, and the Council shall be bound to act thereon.

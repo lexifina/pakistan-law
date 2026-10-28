@@ -1,0 +1,1 @@
+52. Removal of difficulties.—If any difficulty arises in giving effect to any provision of this Act, the Federal Government, through the Division concerned, may make such orders not inconsistent with the provisions of this Act as may appear to it to be necessary for the purpose of removing such difficulty.

@@ -1,0 +1,2 @@
+35. Renewal of License.— (1) The Council shall renew a license granted to a registrant subject to compliance with recognized standards and competencies after passing the prescribed training courses and the Continuous Professional Development (CPD) Program.
+(2) The Council shall prescribe training courses and a Continuous Professional Development (CPD) Program to be completed for renewal of the license.

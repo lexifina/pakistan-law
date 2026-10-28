@@ -1,0 +1,1 @@
+31. Maintenance of the Register.—The Council shall, for the purpose of registration of nurses, midwives, midwifery associates and nursing auxiliaries possessing recognized qualifications or recognized higher qualifications, maintain a register, which shall enter such particulars relating to the persons registered as may be prescribed under Regulations.

@@ -1,0 +1,1 @@
+22. Random revisits.—(1) Throughout the year, all accredited institutions, universities, or degree-awarding institutes and affiliating universities shall provide their data and information in respect of any changes in programs, students, teachers, available facilities, infrastructure, and land or area for review by the council.
