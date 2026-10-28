@@ -1,0 +1,1 @@
+4. Further operation of certain wills shall cease on the death of legatee-in-enjoyment. Where a will providing for more than one legatee succeeding to the testator's property one after the other is. Operative at the commencement of this Act, its further operation shall cease upon the death of the legatee-in-enjoyment.
