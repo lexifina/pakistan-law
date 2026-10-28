@@ -1,0 +1,8 @@
+9. Term of office of members.—(1) The members of the 7[Council] shall be nominated or elected, as the case may be , in such manner and for such term as may be prescribed by rules.
+[^19][(2) Every member of the Council shall, subject to the other provisions of this Act and as may be prescribed by rules, hold office for the prescribed term and cease to hold office at the expiry thereof.]
+(3) Members shall be eligible for re-nomination or re-election to the 7[Council] on the expiry of the prescribed term.
+[^19][(4) If a vacancy in the office of President, Vice-President or a member occurs during the prescribed term, through death, resignation, disability or otherwise, the vacancy shall be filled in accordance with the provisions of this Chapter.] _________________________________________________________________________________
+[^23][(5) The election or nomination of the members of the Council shall be held at least three months prior to the expiry of the prescribed tenure of the Council and expenditure on election shall be borne by the respective Council and if, at any time, the Council ceases to exist on expiry of its prescribed tenure, all powers and functions of the Council shall, till constitution of new Council or for a period of one year, be exercised and performed by such person or authority as may be appointed by the Federal Government in this behalf, as if such person or authority were the Council.]
+
+[^19]: Added and Subs. by by the Unani, Ayurvedic and Homoeopathic Practitioners (Amdt), Ordinance, 2002 (IV of 2002), ss.3-4.
+[^23]: Added by the Unani, Ayurvedic and Homoeopathic Practitioners (Amdt), Ordinance, 2002 (LXI of 2002), s.4.
