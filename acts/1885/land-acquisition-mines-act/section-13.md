@@ -1,0 +1,4 @@
+13. If mines worked contrary to provisions of this Act, Provincial Government may
+require means to be adopted for safety of land acquired. If it appears that any such mines have been worked contrary to the provisions of this Act, the [^17][Provincial Government] may, if it thinks fit, give notice to the owner, lessee or occupier thereof to construct such works and to adopt such means as may be necessary or proper for making safe the land acquired, and the works thereon, and preventing injury thereto; and if, after such notice, any such owner, lessee or occupier does not forthwith proceed to construct the works necessary for making safe the land acquired and the works thereon, the [^17][Provincial Government] may itself construct the works and recover the expense thereof from the owner, lessee or occupier.
+
+[^17]: Subs. by A. O., 1937, for “L.G.”.
