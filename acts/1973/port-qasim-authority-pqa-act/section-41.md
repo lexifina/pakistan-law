@@ -1,0 +1,1 @@
+41. Compensation. Where any land is acquired under this Act, there shall be paid compensation the amount of which shall be determined by the Deputy Commissioner who shall be guided by the provision of sections 42 and 43.

@@ -1,0 +1,1 @@
+54. Delegation of powers to Chairman, etc. The Authority may, by general or special orders, delegate to the Chairman, or a member or an officer of the Authority, any of its powers, duties or functions under this Act, subject to such conditions as it may think fit to impose.
