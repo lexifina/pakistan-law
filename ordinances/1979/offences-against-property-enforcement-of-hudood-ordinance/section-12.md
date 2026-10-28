@@ -1,0 +1,2 @@
+12. Return of stolen property.—(1) If the stolen property is found in the original or in an identifiable form, or in a form into or for which it may have been converted or exchanged, it shall be caused to be returned to the victim, whether it is in the possession of, or has been recovered from the offender or any other person.
+(2) If the stolen property is lost or consumed while in the offender’s possession and the hadd, is enforced against him, the offender shall not be required to pay compensation.

@@ -1,0 +1,1 @@
+15. Definition of haraabah. When any one or more persons, whether equipped with arms or not, make show of force for the purpose of taking away the property of another and attack him or cause wrongful restraint or put him in fear of death or hurt, such person or persons, are said to commit haraabah.

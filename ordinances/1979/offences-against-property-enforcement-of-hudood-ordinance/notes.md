@@ -1,0 +1,5 @@
+[^1]: This Ordinance has been applied to the Provincially Administered Tribal Areas of Baluchistan, by Baluchistan Govt. Notification No. S.O. (TA)-3 (46)/79, dated 29-4-1979, see Baluchistan Gazette, 1979, Ext. (Issue No. 58, dated 14-6-1979). This Ordinance has been applied to the Federally Administered Tribal Areas, by S.R.O. No. 362 (l)/79, dated 23-4-1979, see Gaz. of P., 4979, Ext., Pt. II, p. 632. This Ordinance has also been applied to the Provincially Administered Tribal Areas of the N.W.F.P. by Notification No. 127-HD (T.A. HI)/79-H, dated the 26th May, 1979, see Gaz. of N.W.F.P. Ext. 1979, p. 1101.
+[^2]: Subs, by the Offences Against Property (Enforcement of Hudood) (Amdt.) Ordinance, 1980 (19 of 1980), s. 2, for “High Court”.
+[^3]: Subs, by the Offences Against Property (Enforcement of Hudood) (Amdt.) Ordinance. 1980 (19 of 1980) s. 3, for full stop.
+[^4]: Added ibid.,
+[^5]: Ins. by the Offences Against Property (Enforcement of Hudood) (Amdt.) Ordinance, 1982 (2 of 1982), s. 2.

@@ -1,0 +1,4 @@
+22. Punishment for attempts to commit offence punishable by this Ordinance. Whoever attempts to commit an offence punishable under this Ordinance, or to cause such an offence to be committed, and in such attempt does any act towards the commission of the offence, shall, where no express provision is made by this Ordinance for the punishment of such attempt, be punished with imprisonment of either description for a term which may extend to ten years.
+Illustrations
+(a) A makes an attempt to steal some jewels by breaking open a box, and finds after so opening the box that there is no jewel in it. He has done an act towards the commission of theft, and therefore, is guilty under this section.
+(b) A makes an attempt to pick the pocket of Z by thrusting his hand into Z’s pocket. A fails in the attempt in consequence of Z’s having nothing in his pocket A is guilty under this section.

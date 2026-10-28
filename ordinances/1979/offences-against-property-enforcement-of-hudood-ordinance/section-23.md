@@ -1,0 +1,2 @@
+23. Application of certain provisions of Pakistan Penal Code (Act XLV of 1860). (1) Unless otherwise expressly provided in this Ordinance, the provisions of sections 34 to 38 of Chapter II, section 71 and section 72 of Chapter III and section 149 of Chapter VIII of the Pakistan Penal Code, (Act XLV of 1860), shall apply, mutatis mutandis in respect of offences under this Ordinance.
+(2) Whoever is guilty of the abetment of and offence liable to hadd under this Ordinance shall be liable to the punishment provided for such offence as tazir.

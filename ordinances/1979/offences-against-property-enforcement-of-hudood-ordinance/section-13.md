@@ -1,0 +1,1 @@
+13. Theft liable to tazir. Whoever commits theft which is not liable to hadd or for which proof in either of the forms mentioned in section 7 is not available, or for which hadd may not be imposed or enforced under this Ordinance, shall be liable to tazir.
