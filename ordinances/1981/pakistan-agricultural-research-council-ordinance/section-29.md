@@ -1,0 +1,2 @@
+29. Indemnity of Council, etc. ___(1) No suit, prosecution or other legal proceedings shall lie against the Council or any member or any other officer or staff of the Council for anything in good faith done or intended or purported to be done under this Ordinance or rule, regulation or order made thereunder.
+(2) The Council shall not be responsible for any misfeasance, malfeasance or non-feasance of any officer or employee, for the time being of the Council.

@@ -1,0 +1,1 @@
+34. Removal of difficulties. If any difficulty arises in giving effect to any provisions of this Ordinance, the Federal Government may make such order, not inconsistent with the express provisions of this Ordinance, as may appear to it to be necessary or expedient for the purpose of removing the difficulty.

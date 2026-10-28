@@ -1,0 +1,1 @@
+24. Annual report. The Council shall furnish to the Federal Government, as soon as possible after the end of each financial year, but not later than the last day of December next following, a report on the conduct of its affairs for that year, and shall publish the same alongwith a Summary of the accounts for that year.

@@ -1,0 +1,1 @@
+10. Whole-time members. The whole-time members shall be appointed by the President of Pakistan for a period of three years and shall perform such functions and exercise such powers as are assigned to them by or under this Ordinance and shall be eligible for re-appointment.

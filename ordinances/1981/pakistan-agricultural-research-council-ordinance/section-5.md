@@ -1,0 +1,1 @@
+5. Directions from the Government. In discharging its functions, the Council shall be bound by such directives and orders, if any, as may be given to it on any questions of policy by the Federal Government which shall be the sole judge as to whether a question is a question of policy.

@@ -1,0 +1,1 @@
+22. Borrowing Power. The Council may, with the previous sanction of the Federal Government, and on such terms and conditions as may be approved by the Federal Government, borrow in Pakistan currency or foreign currency.

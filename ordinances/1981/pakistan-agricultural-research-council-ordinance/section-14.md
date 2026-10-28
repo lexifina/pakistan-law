@@ -1,0 +1,1 @@
+14. Validity of Proceedings. No act, proceeding, decision or order of the Council, Board or Executive Committee shall be invalid by reason only of the existence of a vacancy in, or any defect in the constitution of the Council, Board or Executive Committee.
