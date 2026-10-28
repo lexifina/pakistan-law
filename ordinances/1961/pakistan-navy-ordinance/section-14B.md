@@ -1,0 +1,5 @@
+14B. Reappointment [^31][and/or] extension of the Chief of the Naval Staff.—(1) Notwithstanding anything contained in this Act or any other law for the time being in force, the President, on the advice of the Prime Minister, may reappoint the Chief of the Naval Staff for additional tenure of [^32][five (05)] years, [^31][**] [^32][ and/or] extend the tenure(s) of the Chief of the Naval Staff up to [^32][five (05)] years, on such terms and conditions, as may be determined by the President,on the advice of the Prime Minister, in the national security interest or exigencies, from time totime.
+(2) Notwithstanding anything contained in this Act or any other law, or any order or judgment of any Court, the appointment, reappointment or extension of the Chief of the Naval Staff, or the exercise of discretion by the appointing authority in this regard, shall not be called into question before any Court on any ground whatsoever.
+
+[^31]: Omitted and subs. by Act No. XXXV of 2025, ss. 2-4(It comes into force at once and shall always be deemed to have been part of the Pakistan Navy Ordinance 1961(XXXV of 1953))
+[^32]: Subs. by Act No. XXXV of 2024, ss.2-

@@ -1,0 +1,1 @@
+118. Presumption as to signature. In any proceeding under this Ordinance, any application, certificate, warrant, reply or other document purporting to be signed by an officer in the service of the Government shall, on production, be presumed to have been duly signed by the person by whom and in the character in which it purports to have been signed, until the contrary is shown.

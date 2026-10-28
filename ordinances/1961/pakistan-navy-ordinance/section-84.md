@@ -1,0 +1,2 @@
+84. Pay and allowances during trial. In the case of any person subject to this Ordinance who is in naval or civil custody on a charge for an offence, the prescribed officer may direct that the whole or any part of the pay and allowances of such person shall be withheld, pending the result of his trial on the charge against him:
+Provided that no part of the pay and allowances shall be withheld in the absence of any such direction.

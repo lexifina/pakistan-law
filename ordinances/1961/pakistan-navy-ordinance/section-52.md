@@ -1,0 +1,1 @@
+52. Annoyance by flying: Every person subject to this Ordinance who, being the pilot of one of the Government’s aircraft, flies it so as to cause, or to be likely to cause, unnecessary annoyance to any person shall be liable to be dismissed from the service.

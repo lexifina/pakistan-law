@@ -1,0 +1,2 @@
+## (v) Desertion and Absence without Leave
+45. Definition of desertion. A person is guilty of desertion within the meaning of this Ordinance if he leaves or fails to attend at his ship or place of duty with the intention of remaining permanently absent from duty without proper authority or if, having left or failed to attend at his ship or place of duty in any circumstances, he does any act with the like intention.

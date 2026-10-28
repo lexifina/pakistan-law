@@ -1,0 +1,5 @@
+25. Immunity from arrest for debt. (1) No officer [^45][, chief petty officer or sailor] shall, so long has he is subject to this Ordinance, be liable to be arrested for debt under any process issued by, or by the authority of, any civil or revenue Court or any public servant.
+(2) The Judge of any such Court or the said officer shall examine into any complaint made by such person or his superior officer of the arrest of such person contrary to the provisions of this section, and if satisfied that the arrest was made in contravention of preceding sub-section shall by warrant under his hand, discharge the person arrested, and may award reasonable costs to the complainant who may recover these costs in like manner as he might have recovered costs awarded to him by a decree against the person obtaining the process.
+(3) For the making of such complaint and for the recovery of such costs, no court-fee shall be payable by the complainant.
+
+[^45]: Subs. by Ord. 55 of 1980, s. 10, for “and rating”.

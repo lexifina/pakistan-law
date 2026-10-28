@@ -1,0 +1,4 @@
+161. Fresh sentence after suspension. Where an offender, while a sentence on him is suspend under this Ordinance, is sentenced for any other offence, then
+(a) if the further sentence is also suspended under this Ordinance, the two sentences shall run concurrently ;
+(b) if the further sentence is for a period of three months or more and is not suspended under this Ordinance, the offender shall also be committed to prison or naval custody for the unexpired portion of the previous sentence, but both sentences shall run concurrently ; and
+(c) if the further sentence is for a period of less than three months and is not suspended under this Ordinance the offender shall be so committed on that sentence only, and the previous sentence shall, subject to any order which may be passed under section 159 or section 160, continue to be suspended.

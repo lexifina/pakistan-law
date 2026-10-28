@@ -1,0 +1,1 @@
+184. For subsequent offence separate court. For any offence or offence committed by any officer or chief petty officer or sailor, or officers and chief petty officer and sailors after the wreck, loss, destruction or capture of any naval ship or naval vessel, a separate court-martial shall be held for the trial of such offender or offenders.
