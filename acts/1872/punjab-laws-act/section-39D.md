@@ -1,0 +1,5 @@
+39D. Notice of taxes proposed to be levied.—When [^14][the Provincial Government] has, under section 39C, directed that taxes shall be levied in any town or village, the Deputy Commissioner may from time to time issue a public notice in such town or village explaining the nature of the taxes he proposes to levy.
+Objections to taxation.—Any inhabitant of such town or village objecting to the taxation thus proposed may, within fifteen days from the publication of such notice, send his objection in writing to the Deputy Commissioner.
+Procedure thereon.—After the expiry of fifteen days from the publication of the notice, the Deputy Commissioner may submit for the information of [^14][the Provincial Government] a report of the proposal made by him. Such report shall contain specific mention of the objections (if any) urged to his proposal and his opinion on such objections. No such tax shall be levied until it has, upon such report, been approved by [^14][the Provincial Government].
+
+[^14]: Subs. by A.O., 1937, for “the L.G.”

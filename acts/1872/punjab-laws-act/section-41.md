@@ -1,0 +1,2 @@
+## TRACK LAW
+41. Trackers may call for assistance in carrying on tracks. When an offence is, has been, or may reasonably be supposed to have been committed, and the tracks of the persons who may reasonably be supposed to have committed such offence, or of any animal or other property reasonably supposed to be connected with such offence, are followed to a spot within the immediate vicinity of a village, the person following such tracks may call upon any headman or village-watchman in such village to assist in carrying on the tracks.
