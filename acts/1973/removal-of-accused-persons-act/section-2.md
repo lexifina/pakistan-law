@@ -1,0 +1,1 @@
+2. Removal of prisoners, etc.— Notwithstanding anything contained in any other law for the time being in force, the Federal Government may, by general or special order, provide for the removal of any accused person or class of accused persons held in custody in any Province to any other Province to be held in custody therein.
