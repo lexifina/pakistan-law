@@ -1,0 +1,3 @@
+26. Prosecution of the offences.—(1) No prosecution for offences punishable under this Act shall be instituted except upon a complaint with the previous sanction of the appropriate Government.
+(2) All the offences under this Act are bailable and compoundable.
+(3) The authorized officer in a ease where he deems it fit and proper so to do, may compound any offence committed by a person which is punishable under this Act on payment, within such time as may be specified in the order, of such sum of money, as may be so specified, which shall not exceed fifty per centum of the amount of the maximum fine to which the person would have been liable if he had been convicted of the offence.

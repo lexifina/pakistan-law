@@ -1,0 +1,1 @@
+27. Protection of action taken in good faith.—No suit or other legal proceeding shall lie against the appropriate Government, the School Management Committee or any other person, in respect of anything which is in good faith done, in pursuance of this Act, or any rules or order made there under.

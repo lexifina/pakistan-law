@@ -1,0 +1,3 @@
+6. Duty of appropriate Government to establish school.—(1) The appropriate Government shall, for carrying out the provisions of this Act, establish, within such limits of neighbourhood as may be prescribed, a school, within a period of three years from the commencement of this Act.
+(2) The appropriate Government shall encourage enterprises, institutions and other segments of society, by offering incentives, to establish schools to facilitate free and compulsory education.
+(3) The appropriate Government shall establish a system of grants-in-aid to support the school attendance of poor students.

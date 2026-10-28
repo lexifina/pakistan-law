@@ -1,0 +1,1 @@
+9. Appropriate Government to provide pre-school education.—The appropriate Government may make necessary arrangements for providing free pre-school education and early childhood care for the children above the age of three years until they join the school for education.

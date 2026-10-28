@@ -1,0 +1,4 @@
+15. Norms and standards of school.—(1) No school shall be established or registered or continue to Function, unless it fulfils the prescribed norms and standards.
+(2) Where a school established before the commencement of this Act does not conform to the prescribed norms and standards, it shall take steps to conform to prescribed norms and standards at its own expense, within a period of two years.
+(3) Where a school fails to conform to the prescribed norms and standards within two years, the prescribed authority shall withdraw registration granted to such school.
+(4) Any person who continues to run a school after the registration is withdrawn, shall be liable to fine which may extend to two hundred thousand rupees and in case of continuing contraventions, to a fine of twenty five thousand rupees for each day during which such contravention continues.
