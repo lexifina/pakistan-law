@@ -1,0 +1,4 @@
+5. Licensing.___ (1) The Federal Government shall frame and notify the licenses required under this Act, and also adopt and notify the procedures under which such licenses shall be approved or rejected.
+(2) Licenses for export of goods and technologies for peaceful applications may be approved unless the Government determines that the export would be in contravention of the provisions of this Act.
+(3) An exporter is under legal obligation to notify to the competent authority if tile exporter is aware or suspects that the goods or technology are intended, in their entirety or in part, in connection with nuclear or biological weapons or missiles capable of delivering such weapons.
+(4) Nothing in this Act shall be taken to prohibit the export of licensed goods and technology, provided that all conditions attached to the said license are complied with.

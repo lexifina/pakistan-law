@@ -1,0 +1,3 @@
+10. Diversion of controlled goods or technologies to unauthorized use. Whenever the Federal Government determines that a recipient of controlled goods or technologies has knowingly diverted these goods or technologies to unauthorized use in violation of the conditions of an export license issued by the Government of Pakistan, the Federal Government or officials of the appropriately designated agency may deny―
+(a) further export to that recipient of goods or technologies for a specified period for each offence; or
+(b) the recipient the privilege of exporting products into Pakistan for a specified period for each offence.
