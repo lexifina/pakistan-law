@@ -1,0 +1,9 @@
+6. Polygamy.⸺(1) No man, during the subsistence of an existing marriage, shall, except with the previous permission in writing of the Arbitration Council, contract another marriage, nor shall any such marriage contracted without such permission be registered under this Ordinance.
+(2) An application for permission under sub-section (1) shall be submitted to the Chairman in the prescribed manner, together with the prescribed fee, and shall state reasons for the proposed marriage, and whether the consent of the existing wife or wives has been obtained thereto.
+(3) On receipt of the application under sub-section (2), t he Chairman shall ask the applicant and his existing wife or wives each to nominate a representative, and the Arbitration Council so constituted may, if satisfied that the proposed marriage is necessary and just, grant, subject to such conditions, if any, as may be deemed fit, the permission applied for.
+(4) In deciding the application the Arbitration Council shall record its reasons for the decision, and any party may, in the prescribed manner, within the prescribed period, and on payment of the prescribed fee, prefer an application for revision, [^10][to the Collector] concerned and his decision shall be final and shall not be called in question in any Court.
+(5) Any man who contracts another marriage without the permission of the Arbitration Council shall⸺
+(a) pay immediately the entire amount of the dower, whether prompt or deferred, due to the existing wife or wives, which amount, if not so paid, shall be recoverable as arrears of land revenue; and
+(b) on conviction upon complaint be punishable with simple imprisonment which may extend to one year, or with fine which may extend to five thousand rupees, or with both.
+
+[^10]: Subs. by F.A.O., 1975, Art. 2 & Sch., for certain words.

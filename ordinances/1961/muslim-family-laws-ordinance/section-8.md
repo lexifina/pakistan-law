@@ -1,0 +1,1 @@
+8. Dissolution of marriage otherwise than by talaq.⸺Where the right to divorce has been duly delegated to the wife and she wishes to exercise that right, or where any of the parties to a marriage wishes to dissolve the marriage otherwise than by talaq, the provisions of section 7 shall, mutatis mutandis and so far as applicable, apply.
