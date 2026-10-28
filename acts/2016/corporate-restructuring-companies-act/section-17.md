@@ -1,0 +1,1 @@
+17. Power to issue directives, circulars, guidelines, etc.⸺The Commission may from time to time issue such directives, circulars, guidelines, etc. as may be necessary for carrying out the purposes of this Act or the rules and regulations made thereunder.

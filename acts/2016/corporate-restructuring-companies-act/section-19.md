@@ -1,0 +1,3 @@
+[^18][19. Validation of Laws.—Notwithstanding anything contained in any other law, all transfer of non-performing assets undertaken, orders made, proceedings taken and act done, rules, regulation, circulars, notification and other legal instruments made at any time until the enactment of the Corporate Restructuring Companies (Amendment) Act, 2021 are declared and affirmed to have been and shall deemed to have always been, validly undertaken, made, decided, taken or done and shall not be called in question in any court on any ground whatsoever.]
+
+[^18]: Ins. new “section 19”by the Corporate Restructuring Companies (Amendment) Act, 2021 (XXXII of 2021), s. 10.
