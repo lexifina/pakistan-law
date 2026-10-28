@@ -1,0 +1,1 @@
+7. Service of Orders under Section 4, 5 or 6. An order under Sections 4, 5 or 6 may be served on the Manager by delivery at the office of the Bank. If service of the order is refused or any attempt is made to avoid it, the order may be affixed on the premises of the Bank in the presence of two witnesses and the order shall then be deemed to have been duly served.
