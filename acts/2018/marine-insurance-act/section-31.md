@@ -1,0 +1,1 @@
+31. Construction of terms in policy.— Subject to the provisions of this Act and unless the context of the policy otherwise requires, the terms and expressions mentioned in the Schedule to this Act shall be construed as having the scope and meaning in that Schedule assigned to them.

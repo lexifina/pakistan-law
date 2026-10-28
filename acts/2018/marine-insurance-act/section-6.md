@@ -1,0 +1,7 @@
+## CHAPTER-III
+## INSURABLE INTEREST
+6. Avoidance of wagering or gaming contracts.— (1) Every contract of marine insurance by way of gaming or wagering is void.
+(2) A contract of marine insurance is deemed to be a gaming or wagering contract,—
+(a) where the insured has not an insurable interest as defined in section 7 and the contract is entered into with no expectation of acquiring such an interest; or
+(b) where the policy is made “interest or no interest,” or “without further proof of interest than the policy itself,” or “without benefit of salvage to the insurer,” or subject to any other like term:
+Provided that, where there is no possibility of salvage, a policy may be effected without benefit of salvage to the insurer.

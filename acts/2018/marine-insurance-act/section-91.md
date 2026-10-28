@@ -1,0 +1,1 @@
+91. Certain provisions to override the Transfer of Property Act 1882.— Nothing in clause (e) of section 6 of the Transfer of Property Act, 1882 (IV of 1882), shall affect the provisions of sections 16, 51, 52 and 80.

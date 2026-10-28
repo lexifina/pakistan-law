@@ -1,0 +1,3 @@
+8. When interest must attach.— (1) The insured must be interested in the subject has matter insured at the time of the loss though he need not be interested when the insurance is effected:
+Provided that where the subject-matter is insured “lost or not lost,” the insured may recover although he may not have acquired his interest until after the loss, unless at the time of effecting the contract of insurance the insured was aware of the loss, and the insurer was not.
+(2) Where the insured has no interest at the time of the loss, he cannot acquire interest by any act or election after he is aware of the loss.

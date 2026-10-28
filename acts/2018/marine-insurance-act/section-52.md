@@ -1,0 +1,2 @@
+52. Insured who has no interest cannot assign.— Where the insured has parted with or lost his interest in the subject-matter insured and has not, before or at the time of so doing, expressly or impliedly agreed to assign the policy any subsequent assignment of the policy is in-operative:
+Provided that nothing in this section affects the assignment of a policy after loss.

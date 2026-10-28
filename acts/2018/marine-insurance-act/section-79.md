@@ -1,0 +1,4 @@
+79. Suing and laboring clause.—(1) Where the policy contains a suing and laboring clause, the engagement thereby entered into is deemed to be supplementary to the contract of insurance and the insured may recover from the insurer any expenses properly incurred pursuant to the clause, notwithstanding that the insurer may have paid for a total loss or that the subject-matter may have been warranted free from particular average, either wholly or under a certain percentage.
+(2) General average losses and contributions and salvage charges, as defined by this Act, are not recoverable under the suing and laboring clause.
+(3) Expenses incurred for the purpose of averting or diminishing any loss not covered by the policy are not recoverable under the suing and laboring clause.
+(4) It is the duty of the insured and his agents, in all cases, to take such measures as may be reasonable for the purpose of averting or minimizing a loss.

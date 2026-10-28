@@ -1,0 +1,1 @@
+42. Warranty of legality.— There is an implied warranty that the adventure insured is a lawful one and that, so far as the insured can control the matter, the adventure shall be carried out in a lawful manner.

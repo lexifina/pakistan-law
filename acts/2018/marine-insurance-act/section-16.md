@@ -1,0 +1,2 @@
+16. Assignment of interest.— Where the insured assigns or otherwise parts with his interest in the subject-matter insured, he does not thereby transfer to the assignee his rights under the contract of insurance, unless there be an express or implied agreement with the assignee to that effect:
+Provided that the provisions of this section shall not affect a transmission of interest by operation of law.

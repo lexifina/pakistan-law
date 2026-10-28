@@ -1,0 +1,1 @@
+29. Unvalued policy.— An unvalued policy is a policy which does not specify the value of the subject-matter insured, but, subject to the limit of the sum insured, leaves the insurable value to be subsequently ascertained, in the manner herein before specified.
