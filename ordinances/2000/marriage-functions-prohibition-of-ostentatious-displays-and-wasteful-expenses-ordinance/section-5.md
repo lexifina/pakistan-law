@@ -1,0 +1,1 @@
+5. Application of the Ordinance to hotels, restaurants, etc. No person owning or running a hotel, restaurant, wedding hall, community centre, or club being the site of a marriage ceremony or any caterer shall serve or allow any one to serve any meals or edibles to the persons participating in the marriage ceremony other than hot and cold soft drinks.

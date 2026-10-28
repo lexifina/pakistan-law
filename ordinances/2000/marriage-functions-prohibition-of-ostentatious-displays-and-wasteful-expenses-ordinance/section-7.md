@@ -1,0 +1,3 @@
+7. Cognizance of offences.—(1) The offences under this Ordinance shall be noncognizable and no court shall take cognizance of an offence under this Ordinance except on a complaint in writing by an officer or agency as the Federal Government or a Provincial Government may, by notification in the official Gazette, appoint.
+(2) No court inferior to that of the Magistrate of the first class shall try an offence under this Ordinance.
+(3) Notwithstanding anything contained in section 32 of the Code of Criminal Procedure, 1898, (Act V of 1898) it shall be lawful for any Magistrate of the first class to pass any sentence authorized by this Ordinance even if such sentence exceeds his power under the said section 32.
