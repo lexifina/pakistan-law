@@ -1,0 +1,1 @@
+18. Power to make regulations.___The Commandant may, with the prior Approval in writing of the Chairman, make regulation consistent with this Ordinance and the rules for carrying out the purposes of this Ordinance.

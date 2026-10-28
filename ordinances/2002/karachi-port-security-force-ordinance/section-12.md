@@ -1,0 +1,1 @@
+12. Offences relating to prohibited appliances. Whoever carries or is found in possession of any items the carrying or possession of which is prohibited by rules made under this Ordinance, shall be punished with fine which shall not be less than rupees ten thousand and may extend to rupees twenty five thousand and such items shall be forfeited to the Chairman.

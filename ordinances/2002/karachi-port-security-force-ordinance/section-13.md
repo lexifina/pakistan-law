@@ -1,0 +1,1 @@
+13. Punishment for abetment of certain offences. Whoever aids or abets the commission of any offence under this Ordinance, its rules or regulations shall be punishable with the punishment provided for the offence under Ordinance.
