@@ -1,0 +1,9 @@
+4. Power to pass orders for the transfer of assets.⸻ (1) During the validity period and subject to a prior Company request, the Federal Government may issue orders providing for the transfer of specified assets to a relevant entity substantially on the terms set forth in the relevant arrangement.
+(2) The orders shall binding on the Company, the relevant entity and any other person having any right, claim or liability in relation to the Company or any relevant entity.
+(3) As and from the date specified in the order, the specified assets shall, by virtue and to the extent provided in the relevant order, stand transferred to, and vest in, the relevant entity, without any conveyance, alienation or assignment and without any further act, deed or registration and without discharging or invalidating any contract, and be subject to the terms of the relevant order in all cases.
+[^2][(4) Representation on the Board of Directors and all other rights and privileges of shareholders of the company, or any of its subsidiary companies, shall be proportionate to shareholding]
+[^2][* * * * * * *]
+(5) The Federal Government shall carry out or cause to be carried out valuation of the assets of the Company, and its subsidiary companies carrying on air-transport business, by a recognized valuator before transferring any shares of these companies to a third party.
+[^2][(6) Notwithstanding anything contained in the Public Procurement Regulatory Authority Ordinance, 2002 (XXII of 2002) and the rules and regulations made thereunder, the procurement rent and lease of aircraft and parts thereof and such other items as the Federal Government may from time to time specify through a notification in the official Gazette by the Company shall be made through one or more committees in the manner prescribed by the rules.]
+
+[^2]: Subs. and omitted by Act No. LVII of 2023, s. 3.

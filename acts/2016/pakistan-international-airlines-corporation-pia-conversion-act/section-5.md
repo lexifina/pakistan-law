@@ -1,0 +1,1 @@
+5. Guarantees to remain in force.⸻ Notwithstanding the repeal of the PIAC Act, all guarantees given by the Federal Government to any person, including foreign or local institutions, to secure any of the liabilities of the Corporation shall remain in full force and affect as though they were given on behalf of the Company.

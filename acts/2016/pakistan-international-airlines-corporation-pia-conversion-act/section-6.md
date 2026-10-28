@@ -1,0 +1,1 @@
+6. Waiver from taxes, duties, fees etc.⸻ The Federal Government may, by notification in the Official Gazette, waive any tax, duty, fee or any other charge that may be payable under any Federal law for the time being in force.
