@@ -1,0 +1,2 @@
+3C. Revision.___The Federal Government may, on the application of any person aggrieved by an order passed by the authority under section 3B, if the application is made within thirty days of the communication of such order to him, pass such order in relation thereto as it thinks fit :
+Provided that no order under this section shall be passed unless the person likely to be affected thereby has been given an opportunity of showing cause against it or of being heard personally or through counsel or a duly authorised agent.]

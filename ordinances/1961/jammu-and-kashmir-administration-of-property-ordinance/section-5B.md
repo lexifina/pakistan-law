@@ -1,0 +1,5 @@
+5B. Bar of legal proceedings, etc.___(1) No suit, prosecution or other legal proceeding shall lie against Government, the [^7][Administrator] or any other person for anything which is in good faith done or intended to be done under this Ordinance.
+(2) Properties vested in the [^8][Federal Government] under section 2 shall be exempt from all legal processes, including seizure, distress, ejectment, attachment or sale by any officer of a Court or any other authority, and [^7][no Court shall have jurisdiction, or entertain any proceedings, in respect of any such property or of any matter within the competence of the Federal Government, the Administrator or other authority and no injunction or other order of whatever kind shall be passed or made by any Court or other authority in respect of any such property or of any action taken or to be taken in exercise of any power conferred by or under this Ordinance].
+
+[^7]: Subs. by Act No. XVIII of 1977, Ss. 4, 5, 6 and 7.
+[^8]: Subs. by F.A.O., 1975, Art. 2 and Table.
