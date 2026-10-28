@@ -1,0 +1,2 @@
+19. Delegation of power.— (1) The National Council may delegate all or any of its powers under this Ordinance to any of its members or to a Provincial Council, subject to such conditions as it may specify.
+(2) The Provincial Council may delegate all or any of its powers under this Ordinance, including any of the powers delegated to it under sub-section (1) to any of its members, subject to such conditions as it may specify.

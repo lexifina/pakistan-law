@@ -1,0 +1,1 @@
+20. Penalty. Any establishment which fails to pay into the Fund any sum it is required to pay under section 11 shall be punishable with fine which may extend to one thousand rupees and. in the case of non-payment of fine, with an additional fine which may extend to ten rupees for every day during which the payment of fine is not made.

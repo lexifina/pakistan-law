@@ -1,0 +1,1 @@
+11. Establishment to pay to the Fund. An establishment which does not employ a disabled person as required by section 10 shall pay in to the Funds each month the sum of money it would have paid as salary or wages to a disabled person had he been employed.
