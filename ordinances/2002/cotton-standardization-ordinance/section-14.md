@@ -1,0 +1,3 @@
+14. Duties of a Classer.⎯(1) The Classer shall supervise the standardization procedures and technical requirements by a ginning factory with which his assignment has been made under sub-section (1) of section 13.
+(2) In order to carry out his duties under sub-section (1), the Classer shall be empowered to visit the assigned ginning factory and he may examine any cotton being ginned and take samples thereof for classification.
+(3) If a Classer has reasons to believe that the standardization procedures and technical requirements are not complied with by a ginning factory, the Classer shall inform the Inspector by a written memorandum with copy to the Institute.

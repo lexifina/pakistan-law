@@ -1,0 +1,2 @@
+21. Savings. All rules made and in force immediately before the commencement of this Ordinance shall, in so for as they are not inconsistent with the provisions of this Ordinance having regard to various matters which by this Ordinance have to be regulated or prescribed by rules, continue to be in force, until they are repealed, replaced, rescinded or modified in accordance with the provisions of this Ordinance.
+________________________

@@ -1,0 +1,1 @@
+10. Officers and staff etc. to be public servants. The officers and staff of the Institute shall be deemed to be public servants within the meaning of section 21 of the Pakistan Penal Code (Act XLV of 1860).
