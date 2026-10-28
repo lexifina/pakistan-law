@@ -1,0 +1,1 @@
+13. Shuhada Package.__ An advocate who is the victim of any act of terrorism or other aggression while performing his professional duty, whose assailants are unknown, his family shall be entitled to the Shuhada package as is admissible to gazetted officers in BPS-18 of the Government.

@@ -1,0 +1,2 @@
+8. Joint Trials.__ (1) While trying an offence under this Act, the Court may also try, at the same trial, any other offence with which an accused may be charged under the Code, if the offence is connected with such other offence.
+(2) Where in the course of trial of an offence under this Act, it is found that the accused person has also committed another offence under any other law for the time being in force, the Court may convict an accused for such other offence and pass sentence authorized by such other law.

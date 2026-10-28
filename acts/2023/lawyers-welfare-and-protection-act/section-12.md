@@ -1,0 +1,1 @@
+12. Financial Facilities.__ All financial institutions shall extend to the advocates the provision of financial facilities without discrimination in any manner whatsoever, and in case of any violation, on the complaint of aggrieved advocate, the concerned authority shall initiate appropriate action.
