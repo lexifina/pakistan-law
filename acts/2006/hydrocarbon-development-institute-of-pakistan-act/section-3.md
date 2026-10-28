@@ -1,0 +1,4 @@
+3. Establishment of the Institute:___ (1) As soon as may be after the commencement of this Act, the Federal Government shall, establish, in accordance with the provisions of this Act, an Institute to be called the Hydrocarbon Development Institute of Pakistan.
+(2) The Institute shall be a body corporate having perpetual succession and a common seal with power, subject to the provisions of this Act, to acquire, hold and dispose of property, both movable and immovable, and shall by the name specified in sub-section (1) sue and be sued.
+(3) The headquarters of the Institute shall be at Islamabad.
+(4) Until the Institute is established under sub-section (1), the former Institute, functioning immediately before the commencement of this Act shall, notwithstanding its dissolution under section 20, continue to function, and while so functioning be deemed to be the Institute established under this Act.

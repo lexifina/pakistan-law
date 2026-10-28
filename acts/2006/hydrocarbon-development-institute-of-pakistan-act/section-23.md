@@ -1,0 +1,1 @@
+23. Power to make regulations:___ The Institute may, with the approval of the Board of Governors, make such regulations, not inconsistent with the provisions of this Act and the rules made there under, as it may consider necessary or expedient for the administration and management of the affairs of the Institute.

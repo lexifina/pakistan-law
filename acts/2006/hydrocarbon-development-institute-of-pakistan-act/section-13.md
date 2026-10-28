@@ -1,0 +1,1 @@
+13. Discoveries and inventions:___ All rights relating to discoveries and inventions and any improvement in materials, methods, processes, apparatus or equipment made by any officer or employee of the institute in the course of his employment shall vest in the Institute.

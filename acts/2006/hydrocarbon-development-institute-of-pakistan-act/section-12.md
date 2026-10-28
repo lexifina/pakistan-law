@@ -1,0 +1,1 @@
+12. International cooperation:___ The Institute may, subject to such restrictions as may be imposed by the Federal Government, cooperate with any international organization for furthering its objectives and for the promotion of the hydrocarbon sciences and technologies.
