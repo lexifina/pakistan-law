@@ -1,0 +1,5 @@
+19. Certificate of testing.__ (1) The testing officer after testing samples of petroleum shall make out a certificate in the prescribed form, stating whether the petroleum is [^23][petroleum class A] or [^23][petroleum class B], and, if the petroleum is [^23][petroleum class B], the flashing‑point of the petroleum.
+(2) The testing officer shall furnish the person concerned, at his request, with a certified copy of the certificate, on payment of the prescribed fee, and such certified copy may be produced in any Court in proof of the contents of the original certificate.
+(3) A certificate given under this section shall be admitted as evidence in any proceedings which may be taken under this Act in respect of the petroleum from which the samples were taken, and shall, until the contrary is proved, be conclusive proof that the petroleum is [^23][petroleum class A] or [^23][petroleum class B], as the case may be, and, if the petroleum is [^23][petroleum class B], of its flashing-point.
+
+[^23]: Numbered, subs. and added by Act No. XLII of 2023, ss. 12-13.

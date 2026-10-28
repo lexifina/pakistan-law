@@ -1,0 +1,1 @@
+10. No licence needed by railway administration acting as carrier. Notwithstanding anything contained in this Chapter, a railway administration, as defined in section 3 of the Railways Act, 1890 (IX of 1890), need not obtain any licence for the import or transport of any petroleum in its possession in its capacity as carrier.

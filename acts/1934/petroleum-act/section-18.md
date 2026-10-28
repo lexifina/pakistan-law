@@ -1,0 +1,1 @@
+18. Manner of test. All tests of petroleum made under this Act shall be made with a test apparatus in respect of which there is a valid certificate under section 16, shall have due regard to any correction specified in that certificate, and shall be carried out in accordance with rules made under section 21.
