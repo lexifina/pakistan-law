@@ -1,0 +1,1 @@
+18. Leave.__ A civil servant shall be allowed leave in accordance with the leave rules applicable to him, provided that the grant of leave will depend on the exigencies of service and be at the discretion of the competent authority.

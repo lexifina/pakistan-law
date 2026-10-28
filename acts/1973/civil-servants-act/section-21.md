@@ -1,0 +1,1 @@
+21. Benevolent Fund and Group Insurance.__ All civil servants and their families shall be entitled to the benefits admissible under the Federal Employees Benevolent Fund and Group Insurance Act, 1969 (II of 1969), and the rules made thereunder.

@@ -1,0 +1,4 @@
+14. Employment after retirement.__ (1) A retired civil servant shall not be re-employed under the Federal Government, unless such re-employment is necessary in the public interest and is made with the prior approval of the authority next above the appointing authority:
+Provided that, where the appointing authority is the President, such re-employment may be ordered with the approval of the President.
+(2) Subject to the provisions of sub-section (1) of section 3 of the Ex-Government Servants (Employment with Foreign Governments) (Prohibition) Act, 1966 (XII of 1966), a civil servant may, during leave preparatory to retirement, or after retirement from Government service, seek any private employment:
+Provided that, where employment is sought by a civil servant while on leave preparatory to retirement or within two years of the date of his retirement, he shall obtain the prior approval of the prescribed authority.

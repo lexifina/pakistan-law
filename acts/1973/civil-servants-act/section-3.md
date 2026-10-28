@@ -1,0 +1,10 @@
+3. Terms and conditions.__[^1][(1)] The terms and conditions of service of a civil servant shall be as provided in this Act and the rules].
+[^2][(2) The terms and conditions of service of any person to whom this Act applies shall not be varied to his disadvantage.]
+[^3][(3) The Federal Government may transfer a civil servant of a devolved Ministry or Division, working in an Attached Department or Subordinate Office situated in a Province, to the Province concerned, in consequence of the devolution of functions pursuant to the Constitution (Eighteenth Amendment) Act, 2010 (X of 2010) and thereby he shall become the civil servant of the respective Province, on the same terms and conditions of service as were applicable to him before such transfer.
+(4) The Federal Government may transfer a civil servant working in a Ministry, Division, Attached Department or Subordinate Office located in the Islamabad Capital Territory to any other Ministry, Division, Attached Department or Subordinate Office, in consequence of the abolition of such Ministry, Division, Attached Department or Subordinate Office pursuant to the Constitution (Eighteenth Amendment) Act, 2010 (X of 2010) and thereby he shall become the civil servant of the respective Ministry, Division, Department or Office to which he is so transferred, on the same terms and conditions of service as were applicable to him before such transfer.
+(5) The seniority of the civil servants transferred by virtue of sub-sections (3) and (4) shall be determined by the concerned Province, Ministry or Division, as the case may be, in accordance with the rules.
+(6) The cases of civil servants of a Ministry, Division, Attached Department or Subordinate Office devolved in pursuant to the Constitution (Eighteenth Amendment) Act, 2010 (X of 2010) and working in FATA, Gilgit Baltistan and AJK shall be dealt with in the manner as may be provided by an Order made by the President in this behalf.]
+
+[^1]: Re-numbered by Act No. V of 1996, s. 2.
+[^2]: Cl. (2) added ibid., s. 2.
+[^3]: Added by Act No. IX of 2016 s. 2.
