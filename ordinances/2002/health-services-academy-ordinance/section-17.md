@@ -1,0 +1,2 @@
+17. Indemnity:__ (1) No suit, prosecution or other legal proceedings shall be against any person or authority for anything which is in good faith done or intended to be done under this Ordinance.
+(2) No decision taken, act or thing done, by the Ministry of Health or the Board or the Committee or the Council under this Ordinance shall be called in question before any court of law or any other authority.

@@ -1,0 +1,6 @@
+9. Meetings of the Board:__ (1) The Board shall meet at least twice a year at such place, date and time as may be notified to the members by the Secretary of the Board with the approval of the Chairman.
+(2) The quorum for the meeting of the Board shall not be less than six members, a fraction being counted as one.
+(3) The decision of the Board shall be expressed in terms of the view of the majority of the members present and voting and in the event of tie, the Chairman of the board shall have, and exercise, a casting vote.
+(4) The meeting of the Board shall be presided over by the Chairman and, in his absence, by the Vice-Chairman.
+(5) Where the proceedings of the meeting called under sub-section (1) cannot commence due to lack of quorum or where the meeting of the Board could not be called and agenda needed immediate consideration by the Board, the agenda may be considered by circulation to the members of the Board by the Secretary, with the approval of the Chairman. The decision taken by the majority members shall be construed as a decision taken in the meeting of the Board convened under this section;
+(6) No act or proceeding of the Board shall be invalid by reason only of the existence of any vacancy in, of defect in constitution of, the Board.
