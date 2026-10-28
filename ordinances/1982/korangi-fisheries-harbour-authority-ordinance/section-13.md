@@ -1,0 +1,1 @@
+13. Members and officers to be public servants. The Chairman, members, officers and servants of Act the Authority shall, when acting or purporting to act in pursuance of any of the provisions of this Ordinance, be deemed to be public servants within the meaning of section 21 of the Pakistan Penal Code (Act XLV of 1860).

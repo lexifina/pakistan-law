@@ -1,0 +1,1 @@
+24. Recovery of dues as arrears of land revenue. All fees and sums due on account of property for the time being vested in the Authority and all arrears of tolls, charges, rates and dues imposed under this Ordinance or any rules or regulations may be recovered as arrears of land revenue, in addition to the other modes provided by this Ordinance.

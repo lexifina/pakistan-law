@@ -1,0 +1,1 @@
+15. Delegation of powers to Chairman, etc. The Authority may by general or special order, delegate to the Chairman or a member or an officer of the Authority any of its powers, duties or functions under this Ordinance, subject to such conditions or limitations as may be specified in the order.
