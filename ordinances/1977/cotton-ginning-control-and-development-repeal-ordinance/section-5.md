@@ -1,0 +1,2 @@
+5. Prohibition of the operation of an establishment. The Federal Government may, if it considers it necessary in the public interest to do so, by notification in the official Gazette, prohibit the cotton ginning and pressing operations of an establishment which has been returned to the previous management thereof under section 3:
+Provided that such prohibition shall not extend beyond the thirty-first day of August, 1978.
