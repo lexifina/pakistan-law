@@ -1,0 +1,3 @@
+10. And also for injury arising from any airway or other work. If any loss or damage is sustained by the owner or occupier of the lands lying over any such mines, the working whereof has been so prevented or restricted as aforesaid (and not being the owner, lessee or occupier of those mines), by reason of the making of any such airway or other works as aforesaid, which or any like work it would not have been necessary to make but for the working of the mines having been so prevented or restricted as aforesaid, the [^17][Provincial Government] shall pay full compensation to that owner or occupier of the surface lands for the loss or damage so sustained by him.
+
+[^17]: Subs. by A. O., 1937, for “L.G.”.

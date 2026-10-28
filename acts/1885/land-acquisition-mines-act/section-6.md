@@ -1,0 +1,3 @@
+6. Mode of determining persons interested and amount of compensation. When the working or getting of any mines or minerals has been prevented or restricted under section 5, the persons interested in those mines or minerals and the amounts of compensation payable to them respectively shall, subject to all necessary modifications, be ascertained in the manner provided by the [^13][Land Acquisition Act, 1894], (I of 1894) for ascertaining the persons interested in the land to be acquired under that Act, and the amounts of compensation payable to them, respectively.
+
+[^13]: Subs. by the Federal Laws (Revision and Declaration) Ordinance, 1981 (27 of 1981), s. 3 and 2nd Sch., for “Land Acquisition Act, 1870”.

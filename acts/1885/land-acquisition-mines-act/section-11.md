@@ -1,0 +1,4 @@
+11. Power to officer of Provincial Government to enter and inspect the working of mines.
+For better ascertaining whether any mines lying under land acquired in accordance with the provisions of this Act are being worked, or have been worked, or are likely to be worked so as to damage the land or the works thereon, an officer appointed for this purpose by the [^17][Provincial Government] may, after giving twenty-four hours’ notice in writing, enter into and return from any such mines or the works connected therewith; and for that purpose the officer so appointed may make use of any apparatus or machinery belonging to the owner, lessee or occupier of the mines, and use all necessary means for discovering the distance from any part of the land acquired to the parts of the mines which have been, are being or are about to be worked.
+
+[^17]: Subs. by A. O., 1937, for “L.G.”.
