@@ -1,0 +1,3 @@
+23. Powers and procedure of Commissioners.—The Commissioner shall have all the powers of a Civil Court under the Code of Civil Procedure, 1908 (Act V of 1908), for the purpose of taking evidence on oath (which such Commissioner is hereby empowered to impose) and of enforcing the attendance of witnesses and compelling the production of documents and material objects, [^123][and the Commissioner shall be deemed to be a Civil Court for all the purposes of section 195 and of Chapter XXXV of the Code of Criminal Procedure, 1898 ( Act of 1898).]
+
+[^123]: Ins. by the Workmen’s Compensation (Amdt.) Act, 1929 (5 of 1929), section, 5 (w.e.f. 29-3-1929).

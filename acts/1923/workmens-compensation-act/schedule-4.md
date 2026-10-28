@@ -1,0 +1,5 @@
+[^199]SCHEDULE-IV
+(See section 4)
+COMPENSATION PAYABLE IN CERTAIN CASES.
+
+[^199]: Subs. by Act XI of 1994 & Sch.
