@@ -1,0 +1,3 @@
+24. Provisions and stores may be exported free of duty.- Goods produced or manufactured in Pakistan and required as provisions and stores on any conveyance proceeding to any foreign port, airport or station may be exported free of customs-duty,[^128][***] in such quantities as the appropriate officer may determine having regard to the size of the conveyance, the number of passengers and crew and the length of the voyage or journey on which the conveyance is about to depart.
+
+[^128]: Omitted the comma and words “, Federal Excise duty and sales tax” by Finance Ordinance, 2002 (XXVII of 2002), S.4(3), page 223.

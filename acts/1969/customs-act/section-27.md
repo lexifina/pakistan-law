@@ -1,0 +1,9 @@
+[^150][27. Abatement allowed on damaged or deteriorated goods.- (1) If before the examination of any imported goods the owner thereof informs [^151][an officer of Customs not below the rank of] [^152][Assistant Collector] in writing that the value of the goods as declared in the [^153][goods declaration] has diminished as a result of some damage or deterioration sustained by them before or during unloading at the port of destination, an officer of Customs not below the rank of [^152][Assistant Collector] may appraise the value of the damaged or deteriorated goods in the manner given in sub-section (2) and the owner shall be allowed abatement of duty in proportion to the diminution of value so appraised, whether duty is leviable ad valorem or otherwise.
+(2) For the purposes of this section, the value of damaged or deteriorated goods may be ascertained by either of the following methods at the option of the owner:- (a) value may be appraised by an Officer of Customs not below the rank of [^152][Assistant Collector] on the basis of physical examination of the goods; or (b) such goods may be sold by public auction or by tender or, with the consent of the owner, in any other manner and the gross sale proceeds shall be deemed to be the value of such goods inclusive of duties.]
+[^154][(3) In the case of short-landing or short-shipment of goods, the appropriate officer may, if satisfied with regard to the bonafide of short-landing or short-shipment of goods, allow reduction in duty proportionate to the goods short-landed or short-shipped on first examination.]
+
+[^150]: Substituted by Finance Act, 1986
+[^151]: inserted by Finance Act, 2006.
+[^152]: By Finance Act, 2006, the words “ or Deputy Collector” were omitted..
+[^153]: Substituted the words ”bill of entry” with the” words goods declaration” through Finance Act, 2006.
+[^154]: Inserted by Finance Act, 2006.

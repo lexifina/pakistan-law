@@ -1,0 +1,3 @@
+155O. Authorised officer may take possession of and retain documents and records.- (1) An officer authorised in this behalf may take possession of and retain any document or record presented in connection with any entry or required to be produced under this Act.
+(2) Where the authorised officer takes possession of a document or record under sub-section (1) of this section, the authorised officer shall, at the request of the person otherwise entitled to the document or record, provide that person with a copy of the document certified by or on behalf of the authorised officer under the seal of the Customs as a true copy.
+(3) Every copy so certified shall be admissible as evidence in all courts and other legal forums as if it were the original.

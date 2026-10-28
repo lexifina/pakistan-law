@@ -1,0 +1,1 @@
+66. Goods not to be loaded or unloaded except at approved places.- Save where general permission is given under section 67 or with permission in writing of the appropriate officer, no imported goods shall be unloaded or goods for export loaded at any place other than a place duly approved under clause (b) of section 10 for the unloading or loading of such goods.

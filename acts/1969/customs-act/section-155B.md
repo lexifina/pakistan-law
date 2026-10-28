@@ -1,0 +1,1 @@
+155B. Access to the Customs Computerized System.- No person shall transmit to, or receive information from, the Customs Computerized System unless that person is registered by the Collector as a user of the Customs Computerized System.

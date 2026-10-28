@@ -1,0 +1,2 @@
+41. Declaration by parties claiming drawback.- Every person, or his duly authorized agent, claiming drawback on any goods duly exported, shall make and subscribe a declaration that such goods have been actually exported and have not been relanded and are not intended to be relanded at any place in Pakistan and that such person was at the time of entry outwards and export and continues to be entitled to drawback thereon.
+LEGAL REFERENCE

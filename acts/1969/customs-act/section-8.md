@@ -1,0 +1,1 @@
+8. Exemption from service on jury or inquest or as assessors.- Notwithstanding anything contained in any other law, no officer of the Board or Collector of Customs and no other officer of customs whom the Board or Collector of Customs deems it necessary to exempt on grounds of public duty, shall be compelled to serve on any jury or inquest or as an assessor.

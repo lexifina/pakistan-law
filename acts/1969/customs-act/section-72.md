@@ -1,0 +1,2 @@
+72. Plying of ships of less than one hundred tons.- (1) Every boat belonging to a Pakistani ship and every other vessel not exceeding one hundred tons, shall be marked in such manner as may be prescribed by rules.
+(2) Plying of all or any class or description of vessels of less than one hundred tons, whether in sea or inland waters, may be prohibited or regulated or restricted as to the purposes and limits of plying by rules.

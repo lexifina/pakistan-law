@@ -1,0 +1,6 @@
+134. Notice of non-loading or relanding and return of duty thereon.- (1) If any goods mentioned in a [^370][^371][goods declaration] or manifest be not loaded or be loaded and afterwards relanded, the owner shall before the expiration of fifteen clear working days after the conveyance on which such goods were intended to be loaded or from which they were relanded has left the customs-station, give information of such short-loading or relanding to the appropriate officer save where the latter has occasioned the short-loading or relanding.
+(2) Upon an application being made to the appropriate officer within one year of such short-loading or relanding, any duty levied upon goods not loaded or upon goods loaded and afterwards relanded shall be refunded to the person on whose behalf such duty was paid:
+Provided that, where the required information of short-loading or relanding is not given within the aforesaid period of fifteen days, the appropriate officer may make refund of duty contingent upon payment of such penalty, if any, as he may see fit to impose.
+
+[^370]: Inserted by the Finance Act, 2003 (I of 2003), S.5(27), page 31
+[^371]: . By the Finance Act, 2006, the words” bill of export or” were omitted.

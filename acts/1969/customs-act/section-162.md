@@ -1,0 +1,4 @@
+162. Power to issue search warrant.- (1) Any [^485][Judicial Magistrate] may, on application by a gazetted officer of customs stating the grounds of his belief that goods liable to confiscation or documents or things which in his opinion will be useful as evidence in any proceeding under this Act are secreted in any place within the local limits of the jurisdiction of such Magistrate, issue a warrant to search for such goods, documents or things.
+(2) Such warrant shall be executed in the same way, and shall have the same effect, as a search-warrant issued under the Code of Criminal Procedure, 1898 (Act V of 1898).
+
+[^485]: Substituted for the word “Magistrate” by the Federal Law (R&D) Ordinance, 1981 (XXVII of 1981). Substituted for the words “Assistant Collector” by the Finance Act, 1996 (IX of 1996).,

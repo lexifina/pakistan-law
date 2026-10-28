@@ -1,0 +1,1 @@
+144. Label or declaration in respect of goods imported or exported by post 9[or by courier] to be treated as entry.- In the case of goods imported or exported by post 9[or by courier], any label or declaration which contains the description, quantity and value thereof shall be deemed to be an entry for import or export, as the case may be, for the purposes of this Act.

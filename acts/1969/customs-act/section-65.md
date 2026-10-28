@@ -1,0 +1,7 @@
+65. Goods not to be loaded or unloaded or passed on certain days or at certain times.- Except with the permission in writing of the appropriate officer and on payment of such fees as may be prescribed by the Board no goods, other than passengers’ baggage or mail bags, shall in any customs-port be discharged, or be shipped or water-borne to be shipped or shall be loaded or unloaded or passed at any land customs-station or customs-airport-
+(a) on any public holiday within the meaning of section 25 of the Negotiable Instruments Act,1881(XXVI of 1881), or on any day on which the discharge or shipping of cargo at customs-port or loading, unloading passage or delivery of cargo at any land customs-station or customs-airport, as the case may be, is prohibited by the Board by notification in the official Gazette; or
+(b) on any day except between such hours as the Board may, from time to time, by a like notification, appoint [^265][:]
+[^266][Provided that where the Customs Computerized System is in operation, all loading and discharge may be allowed by the Collector of Customs round the clock and on all days.]
+
+[^265]: Substituted full stop by Finance Act, 2006.
+[^266]: Added by the Finance Act, 2006.

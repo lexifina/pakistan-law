@@ -1,0 +1,7 @@
+[^149][26A. Conducting the audit.- (1) The appropriate officer of customs conducting any audit under this Act shall proceed in the manner as the Board may by rules prescribe.
+(2) Where any audit or inquiry or investigation is to be conducted for the purpose of ascertaining the correctness of any declaration or document or statement, for determining the liability of any person for duty, taxes, fees, surcharge, fines and penalties, or for ensuring compliance with all other laws administered by the customs, an appropriate officer of Customs may,-
+(a) examine, or cause to be examined, upon reasonable notice, any record, or any statement or declaration or document described in the notice with reasonable specificity, which may be relevant to such audit, inquiry or investigation ;
+(b) summon , by giving a notice and reasonable time,- (i) the person who imported, or exported or transported or stored or held under customs bond, or filed a goods declaration, drawback or refund claim;
+(ii) any officer, employee or agent of any person described in clause (a); and (iii) any person having possession, custody or care of records and documents required to be kept under the Act, and any other person, as deemed proper, to appear before him at a reasonable time and to produce such records and documents as specified in the notice and to give such testimony under oath as may be relevant.
+
+[^149]: Inserted by Finance Act, 2006.

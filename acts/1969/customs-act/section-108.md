@@ -1,0 +1,4 @@
+108. Reassessment of warehoused goods when damaged or deteriorated.- If any goods upon which duties are levied ad valorem [^333][or otherwise] are damaged or deteriorated due to an unavoidable accident or cause after they have been entered for warehousing and assessed under section 80 and before they are cleared for home-consumption, their value in the damaged or deteriorated state may be appraised [^334][according to either of the methods provided in sub-section (2) of section 27], if the owner so desires, by an officer of customs and the duty leviable thereon shall be diminished in proportion to the diminution of their value and a new bond for twice the amount of the diminished duty may, at the option of the owner, be executed by him to replace the bond originally executed.
+
+[^333]: Inserted by the Finance Ordinance, 1986 (I of 1986), S.6(4)(a) page 11.
+[^334]: Inserted by the Finance Ordinance, 1986 (I of 1986), S.6(4) (b), page 11.

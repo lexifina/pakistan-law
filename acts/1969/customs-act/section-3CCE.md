@@ -1,0 +1,3 @@
+[^78][3CCE. Directorate General of Combating Trade Based Money Laundering.- The Directorate General of Combating Trade Based Money Laundering (TBML) shall consist of a Director General and as many Directors, Additional Directors, Deputy Directors, Assistant Directors and such other officers as the Board may, by notification in the official Gazette, appoint.]
+
+[^78]: Inserted by Finance Act, 2024(June)

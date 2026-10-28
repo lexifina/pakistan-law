@@ -1,0 +1,2 @@
+87. Forwarding of goods to warehouse.- (1) When the provisions of sections 85 and 86 have been complied with in respect of any goods, such goods shall be forwarded in charge of an officer of customs to the warehouse in which they are to be deposited.
+(2) A pass shall be sent with the goods specifying the name of the bonder and the name or number of the importing conveyance, the marks, numbers and contents of each package, and the warehouse or place in the warehouse wherein they are to be deposited.

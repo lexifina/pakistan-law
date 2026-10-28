@@ -1,0 +1,1 @@
+36. Drawback on goods taken into use between importation and exportation.- Notwithstanding anything contained in section 35, the repayment of duty as drawback in respect of goods which have been taken into use between their importation and subsequent exportation shall be made in accordance with the provisions of the rules made in that behalf.

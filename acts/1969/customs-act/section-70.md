@@ -1,0 +1,1 @@
+70. Goods not to be transshipped without permission.- Except in cases of imminent danger, no goods discharged into or loaded in any boat for the purpose of being landed or shipped shall be transshipped into any other boat without the permission of an officer of customs.

@@ -1,0 +1,1 @@
+10. Power to approve landing places and specify limits of customs-stations.- The Board may, by notification in the official Gazette:- (a) specify the limits of any customs-station; and (b) approve proper places in any customs-station for the loading and unloading of goods or any class of goods.

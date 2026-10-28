@@ -1,0 +1,7 @@
+217. Protection of action taken under the Act.-[^674][(1) No suit, prosecution or other legal proceeding shall lie against the [^646][Federal Government] or any public servant for anything which is done or intended to be done in good faith in pursuance of this Act or the rules [^676][and notwithstanding anything in any other law for the time being in force no investigation or enquiry shall be undertaken or initiated by any governmental agency against any officer or official for anything done in his official capacity under this Act, rules, instructions or directions made or issued thereunder without the prior approval of the 31a[Board] ].
+[^677][(2) No suit shall be brought in any civil court to set aside or modify any order passed, any assessment made, any tax levied, any penalty imposed or collection of any tax made under this Act.]
+
+[^646]: Substituted for the words “Central Government” by the Finance Ordinance, 1972 (XXI of 1972), S.3, page 56 and Second Schedule, S.1, page 76.
+[^674]: Re-numbered as sub-section (1) by the Finance Act, 1992 (VII of 1992), S.6(6), page 114 and substituted by the Finance Act, 2003 (I of 2003). “(1) No suit, prosecution or other legal proceeding shall lie against the 5[Federal Government] or any public servant for anything which is done or intended to be done in good faith in pursuance of this Act or the Rules.”.
+[^676]: Inserted by the Finance Act, 2003 (I of 2003), S.5(41), page 43.
+[^677]: Added by the Finance Act, 1992 (VII of 1992), S.6(6), page 114.

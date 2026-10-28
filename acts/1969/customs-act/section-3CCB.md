@@ -1,0 +1,3 @@
+[^75][3CCB. Directorate General of National Nuclear Detection Architecture.- The Directorate General of Nuclear Detection Architecture shall consist of a Director General and as many Deputy Director Generals, Directors, Additional Directors, Deputy Directors, Assistant Directors and such other officers as the Board may, by notification in the official Gazette, appoint.
+
+[^75]: Inserted by Finance Act, 2021 (June)

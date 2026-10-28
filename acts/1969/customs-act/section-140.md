@@ -1,0 +1,2 @@
+140. Determination of rate of duty in respect of baggage.- The rate of duty if any, applicable to baggage shall be the rate in force on the date on which a declaration is made in respect of such baggage under section 139 3[:]
+4[Provided that in the case of goods cleared as mis-handled baggage or un-accompanied baggage, the rate of duty shall be the rate in force on the date on which a declaration for clearance of such goods is presented before the appropriate officer after landing of the goods.]

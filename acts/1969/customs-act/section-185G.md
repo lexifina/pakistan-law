@@ -1,0 +1,4 @@
+185G. Persons who may conduct prosecution etc.- (1) Notwithstanding anything contained in the Code of Criminal Procedure, 1898(Act V of 1898), a Special Prosecutor appointed under section 47 of the Prevention of Smuggling Act,1977, shall be competent to conduct prosecution before a Special Judge for and on behalf of the Federal Government and to withdraw prosecution when so required by the Federal Government.
+(2) A law officer appointed under the Central Law Officers Ordinance,1970 (Ordinance VII of 1970) [^515][or an advocate authorized by the Board or by an officer subordinate to it] shall be competent to conduct proceedings before a Special Appellate Court on behalf of the Federal Government and to withdraw such proceedings when so required by the Federal Government.]
+
+[^515]: Inserted by the Finance Ordinance, 2002 (XXVII of 2002), S.4(9), page 224.

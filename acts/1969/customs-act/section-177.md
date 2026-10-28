@@ -1,0 +1,4 @@
+177. Restriction on the possession of goods in certain areas.- (1) This section shall apply to such areas adjacent to the frontier of Pakistan as may, from time to time, be notified by the Board in the official Gazette.
+(2) In any area to which this section for the time being applies, no person shall have in his possession or control any such goods or class of goods in excess of such quantity or value as may from time to time be notified by the [^481][Federal Government] or, with the previous approval of the [^481][Federal Government], by the Provincial Government, in the official Gazette, except under a permit granted by the Government which issued the notification in respect of the particular goods or class of goods, or by an officer authorized by such Government.
+
+[^481]: Substituted for the words “Central Government” by the Finance Ordinance, 1972 (XXI of 1972), S.3, page 56 and Second Schedule S.1, page 76.

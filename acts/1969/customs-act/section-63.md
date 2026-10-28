@@ -1,0 +1,1 @@
+63. Sealing of conveyance.- Conveyances carrying transit goods for destinations outside Pakistan or goods from some foreign territory to a customs-station or from a customs-station to some foreign territory may be sealed in such cases and in such manner as may be provided in the rules.

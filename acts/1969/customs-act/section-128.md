@@ -1,0 +1,1 @@
+128. Transport of certain classes of goods subject to prescribed conditions.- Any goods may be transported from one part of Pakistan to another through any foreign territory, subject to such conditions as to their due arrival at the destination as may be prescribed by rules.

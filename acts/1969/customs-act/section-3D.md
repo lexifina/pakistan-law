@@ -1,0 +1,3 @@
+[^56][3D. Directorate General of Valuation.- The Directorate General of Valuation shall consist of a Director General and as many Directors, Additional Directors, Deputy Directors, Assistant Directors and such other officers as the Board may, by notification in the official Gazette, appoint.]
+
+[^56]: Substituted by the FA, 2007, Before substitution sections 3D was as under:- “3D. Directorate General, Valuation and Post-Clearance Audit.- The Directorate General Valuation and Post-Clearance Audit shall consist of a Director General and as many Directors, Additional Directors, Deputy Directors, Assistant Directors and such other officers as the Board may, by notification in the official Gazette, appoint.”

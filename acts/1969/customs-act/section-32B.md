@@ -1,0 +1,4 @@
+[^186][32B. Compounding of offence.- Notwithstanding anything contained in section 32 and 32A or any other provision of this Act, where any person has committed a duty or tax fraud, the Collector [^231][or Director] may, with the prior approval of the Board, either before or after the institution of any proceedings for recovery of duty or tax, compound the offence if such person pays the amount of duty or tax due along with penalty as is determined under the provisions of this Act.]
+
+[^186]: Inserted by the Finance Act, 2005.
+[^231]: Inserted by Finance Act, 2019.

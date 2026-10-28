@@ -1,0 +1,2 @@
+155J. Interference with the Customs Computerized System.- Every person commits an offence who– (a) by any means knowingly falsifies any record or information stored in the Customs Computerized System; or (b) knowingly damages or impairs the Customs Computerized System; or
+(c) knowingly damages or impairs any duplicate tape or disc or other medium on which any information obtained from the Customs Computerized System is held or stored otherwise than with the permission of the Collector.

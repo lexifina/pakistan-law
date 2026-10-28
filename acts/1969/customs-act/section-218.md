@@ -1,0 +1,5 @@
+218. Notice of proceedings. - No proceeding in a court other than a suit shall be commenced against any officer of customs or any other person exercising any powers conferred or discharging any duties imposed by or under this Act for anything purporting to be done in pursuance of the provisions of this Act or the rules without giving to such officer or person a month’s previous notice in writing of the intended proceeding and of the cause thereof; or after the expiration of one year from the accrual of such cause [^678][:]
+[^679][Provided that this section shall not be deemed to apply in the case of the prosecution of an officer of customs or such other person for an offence punishable under this Act.]
+
+[^678]: Substituted for the “full stop” by the Prevention of Smuggling Act, 1977.
+[^679]: Added by the Prevention of Smuggling Act, 1977 (XII of 1977), S.51(viii), page 229.

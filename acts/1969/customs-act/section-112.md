@@ -1,0 +1,4 @@
+[^338][112. Encashment of post-dated cheque.- (1) Where the owner fails to clear bonded goods to the purposes specified in this Chapter within the warehousing period, the post-dated cheque submitted under section 86 by the owner of goods may be got encashed after the expiry of warehousing period.
+(2) In case the post-dated cheque is not enchased for any reason, the Collector of customs or any officer designated by him may detain the owner’s goods whether lying in any warehouse or freshly imported for public auction and adjustment of sale proceeds against the amount of duties, taxes surcharges, rents and penalties, etc., which may have become payable on goods warehoused but not cleared within the specified period and the surplus amount, if any, shall be disposed of in the manner provided in section 201.]
+
+[^338]: Substituted by Finance Act, 2005.

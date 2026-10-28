@@ -1,0 +1,1 @@
+67. Power to exempt from sections 64 and 66.- Notwithstanding anything contained in section 64 or section 66, the Board may, by notification in the official Gazette, give general permission for goods to be loaded at any customs-station from any place not duly appointed for loading and without the presence or authority of an officer of customs.

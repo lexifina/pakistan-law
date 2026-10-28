@@ -1,0 +1,13 @@
+[^184][32A. Fiscal fraud.- (1) If any person, in connection with any matter related to customs- (a) causes to submit documents including those filed electronically, which are concocted, altered, mutilated, false, forged, tempered or counterfeit to a functionary of customs;
+(b) declares in the [^185][goods declaration] electronically filed customs declaration, the name and address of any exporter or importer which is physically non-existent at the given address;
+(c) declares in the [^185][goods declaration] electronically filed customs declaration, an untrue information regarding [^200][payment of duties and taxes through self-assessment,] description, quantity, quality, origin and value of goods;
+[^232][(ca) declares value which is significantly higher or lower than the actual value, that is, the price actually paid or payable for the goods when sold for export to Pakistan, proceedings may be initiated under this section subject to conditions or limitations as may be prescribed by the Board under the rules.]
+(d) alters, mutilates or suppresses any finding of the customs functionary on any document or in the computerized record; or (e) attempts, abets or connives in any action mentioned in clauses (a), (b), [^232][(c),(ca)] and (d) above, he shall be guilty of an offence under this section.
+(2) Where, by any reason as referred to in sub-section (1) as aforesaid, any duty or tax charged or fee or fine and penalty levied under any provision of law has not been levied or has been short levied or has been refunded, the person liable to pay any amount on that account shall be served with a notice within a period of 180 days of the date of detection of such custom duty and tax fraud, requiring him to show cause as to why he should not pay the amount specified in the notice along with any other amount imposed as fine or penalty under the provisions of this Act :
+[^232][Provided that an offence, having no revenue implication but covered under sub-section (1), shall also be served with show cause notice within a period of one hundred and eighty days of detection of such fraud for penal action under the relevant provisions of law.]
+(3) The appropriate Adjudicating Officer, after considering the written or verbal representation of such person, may determine the amount of duty or tax chargeable or fee payable by such person which shall in no case exceed the amount specified in the notice and such person shall pay the amount so determined besides the fine or penalty or both.]
+
+[^184]: Inserted by the Finance Act, 2004.
+[^185]: Substituted for the word “bill of entry or bill of export or” by the FA, 2006.
+[^200]: Inserted by Finance Act,2010.
+[^232]: Inserted by Finance Act, 2020 (June)
