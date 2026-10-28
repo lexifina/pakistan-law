@@ -1,0 +1,5 @@
+17. Procedure.__(1) Save as expressly provided to the contrary, proceedings in cases of contempt shall be commenced by the issuance of a notice, or a show cause notice, at the discretion of the court.
+(2) In the case of a notice the alleged contemner may enter appearance in person or through an advocate, and, in the case of a show cause notice, shall appear personally:
+Provided that the court may at any time exempt the alleged contemner from appearing personally.
+(3) If, after giving the alleged contemner an opportunity of a preliminary hearing, the court is prima facie satisfied that the interest of justice so requires, it shall fix a date for framing a charge in open court and proceed to decide the matter either on that date, or on a subsequent date or dates, on the basis of affidavits, or after recording evidence:
+Provided that the alleged contemner shall not, if he so requests, be denied the right of cross examination in relation to any affidavit, other than that of a judge, used in evidence against him.

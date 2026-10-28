@@ -1,0 +1,3 @@
+13. Procedure in cases of contempt in the face of the court.__ (1) In the case of a contempt committed in the face of the court, the court may cause the contemner/offender to be detained in custody and may proceed against him in the manner provided in sub-section (2):
+Provided that if the case cannot be finally disposed of on the same day, the court may order the release of the accused from the custody either on bail or on his own bond.
+(2) In all cases of contempt in the face of the court the judge shall pass an order in open court recording separately what was said or done by the accused person and shall immediately proceed against the offender or may refer the matter to the Chief Justice for hearing and deciding the case by himself or by another Judge.

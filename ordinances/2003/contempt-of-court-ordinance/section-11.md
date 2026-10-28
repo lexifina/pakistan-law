@@ -1,0 +1,4 @@
+11. Judicial contempt.__ (1) A superior court may take action in a case of judicial contempt on its own initiative or on information laid before it by any person.
+(2) Any person laying false information relating to the commission of an alleged judicial contempt shall himself be liable to be proceeded against for contempt of court.
+(3) Judicial contempt proceedings initiated by a judge, or relating to a judge, shall not be heard by the said judge, but shall (unless he is himself the Chief Justice) be referred to the Chief Justice, who may hear the same personally or refer it to some other judge, and, in a case in which the judge himself is the Chief Justice, shall be referred to the senior most judge available for disposal similarly.
+(4) No proceedings for judicial contempt shall be initiated after the expiry of one year.
