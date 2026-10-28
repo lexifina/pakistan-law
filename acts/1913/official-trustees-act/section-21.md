@@ -1,0 +1,1 @@
+21. Costs of audit, etc., how paid. The cost of and incidental to every such audit and ex-amination shall be determined in accordance with rules made by the Government and shall be defrayed in the prescribed manner.
