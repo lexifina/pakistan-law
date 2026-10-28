@@ -1,0 +1,1 @@
+5. Appointment of Inspectors. Government may, by notification, appoint such persons as it thinks fit to be Inspectors for the purposes of this Ordinance within each such local area as may be specified, and the persons so appointed shall be deemed to be public servants within the meaning of section 21 of the Pakistan Penal Code (XLV of 1860).
