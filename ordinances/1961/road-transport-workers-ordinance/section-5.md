@@ -1,0 +1,1 @@
+5. Restriction on cumulative hours of work.—No worker shall work or be allowed to work on a vehicle or two or more vehicles in excess of the period during which he may be lawfully employed under this Ordinance.
