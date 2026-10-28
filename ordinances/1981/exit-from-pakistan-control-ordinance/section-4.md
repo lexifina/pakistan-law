@@ -1,0 +1,1 @@
+4. Punishment.— Whoever contravenes, or attempts or conspires to contravene, or abets the contravention of, any order made under sub-section (1) of section 2 shall be punishable with imprisonment for a term which may extend to five years.

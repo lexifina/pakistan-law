@@ -1,0 +1,3 @@
+2. Power to prohibit exit from Pakistan.— (1) The Federal Government may, by order, prohibit any person or class of persons from proceeding from Pakistan to a destination outside Pakistan, notwithstanding the fact that such person is in possession of valid travel documents.
+(2) Before making an order under sub-section (1), it shall not be necessary to afford an opportunity of showing cause against the order.
+(3) If, while making an order under sub-section (1) it appears to the Federal Government that it will not be in the public interest to specify the grounds on which the order is proposed to be made, it shall not be necessary for the Federal Government to specify such grounds.
