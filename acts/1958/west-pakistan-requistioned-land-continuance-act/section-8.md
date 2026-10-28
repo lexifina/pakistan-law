@@ -1,0 +1,1 @@
+8. Delegation of functions. The Government may, by order notified in the Official Gazette, direct that any power conferred or any duty imposed on it by this Act shall, in such circumstances and under such conditions, if any, as may be specified in the order, be exercised or discharged by such officers as may be so specified.
