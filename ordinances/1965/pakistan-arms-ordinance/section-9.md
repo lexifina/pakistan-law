@@ -1,0 +1,1 @@
+9. Unlicensed possession of arms, etc.:-- No person shall have in his possession or under his control any arms, or any ammunition or military stores, except under the license and in the manner and to the extent permitted thereby.

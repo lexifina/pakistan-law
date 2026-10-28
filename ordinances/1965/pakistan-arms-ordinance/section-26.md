@@ -1,0 +1,2 @@
+26. Power to take census of arms:___(1) Government may, from time to time, by notification in the official Gazette, direct a census to be taken of any arms in any area, and empower any person by name or in virtue of his office or take such census.
+(2) On the issue of any such notification, all persons possessing any such arms in such area shall furnish to the person so empowered such information as he may require in reference thereto, and shall produce such arms to him if he so requires.

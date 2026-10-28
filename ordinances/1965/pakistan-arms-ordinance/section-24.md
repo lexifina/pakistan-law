@@ -1,0 +1,1 @@
+24. Searches in the case of offences how conducted: When a search is to be made for any of the purposes of this Ordinance, such search shall be made under the provisions of the Code of Criminal Procedure 1898 (Act V of 1898).
