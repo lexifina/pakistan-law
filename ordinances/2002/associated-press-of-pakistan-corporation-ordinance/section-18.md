@@ -1,0 +1,1 @@
+18. Delegation of powers.___ The Board may, from time to time, by general or special order, delegate to the Managing Director or any other Member or an officer of the Corporation any of its powers, duties or functions under this Ordinance, subject to such conditions as it may think fit to impose.

@@ -1,0 +1,12 @@
+5. Functions of the Corporation.___ The functions of the Corporation shall be to―
+(a) undertake the work of a news agency or news agencies in any part of the world and in particular to collect, transmit, circulate in Pakistan and abroad such news, features, photographs, videos or any such material, for distribution to such person or corporations, newspapers or organizations desirous of obtaining such news and material or any part thereof on such terms and conditions as the Board may, from time to time determine;
+(b) carry on all or any of the activities which help in news gathering and its dissemination through print, cyber-net, audio, video, still and any other methods of photography required for this purpose;
+(c) enter into any arrangements and to take all necessary or proper steps with governments or with other authorities, persons, bodies, of organizations, international, national, local, municipal or otherwise of any place in which the Corporation may have interests and to carry on any negotiations or operations for the purpose of directly or indirectly carrying out its objects affecting any modification in its functioning;
+(d) advance, deposit or lend money, acquire securities and property or receive loans, grants-in-aid, subsidy, subscription fee, assistance or deposits from the Government and other authorities or bodies or organizations;
+(e) invest any moneys of the Corporation not for the time being required for any of the purposes of the Corporation in such investments (other than shares or stock) as may be in the interest of the Corporation; (f) establish, provide, maintain and conduct research and training activities for the training, education and instruction of employees, students and others who may desire to avail themselves of the same;
+(g) compile, prepare, produce, print, publish, issue, circulate and distribute, with or without charge such papers, magazines, periodicals, books, circulars and other such matter as may be conducive to any of the functions of the Corporation;
+(h) carry out instructions of the [^2][division concerned] with regard to general pattern of policies in respect of announcements, news and views to be disseminated from time to time;
+(i) sign agreements with international news agencies, national news agencies of other countries for securing and disseminating the same to end-users in and outside Pakistan; and
+(j) sell news, features, photos, audios and videos to mass media, news agencies and any other organization within and outside Pakistan.
+
+[^2]: Subs. by Act No. XXV of 2026, s.3.

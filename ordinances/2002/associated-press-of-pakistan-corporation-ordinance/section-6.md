@@ -1,0 +1,2 @@
+6. Management of the Corporation.___(1) The general directions and administration of the affairs of the corporation shall vest in the Board which may exercise all powers and do all acts and things which may be exercised or done by the Corporation.
+(2) In discharge of its functions the Corporation shall be bound by such directives and order, if any, as may be given to it on any question of policy by the Federal Government which shall be the sole Judge as to whether a question is a question of policy.
