@@ -1,0 +1,10 @@
+88. Advantage gained by fiduciary. Where a trustee, executor, partner, agent, director of a company, legal adviser, or other person bound in a fiduciary character to protect the interests of another person, by availing himself of his character, gains for himself any pecuniary advantage, or where any person so bound enters into any dealings under circumstances in which his own interests are, or may be, adverse to those of such other person and thereby gains for himself a pecuniary advantage, he must hold for the benefit of such other person the advantage so gained.
+Illustrations
+(a) A, an executor, buys at an undervalue from B, a legatee, his claim under the will. B is ignorant of the value of the bequest. A must hold for the benefit of B the difference between the price and value.
+(b) A, a trustee, uses the trust property for the purpose of his own business. A holds for the benefit of his beneficiary the profits arising from such user.
+(c) A, a trustee, retires from his trust in consideration of his successor paying him a sum of money. A holds such money for the benefit of his beneficiary.
+(d) A, a partner, buys land in his own name with funds belonging to the partnership. A holds such land for the benefit of the partnership.
+(e) A, a partner, employed on behalf of himself and his co-partners in negotiating the terms of a lease, calandestinely stipulates with the lesser for payment to himself of a lakh of rupees. A holds the lakh for the benefit of the partnership.
+(f) A and B are partners. A dies. B, instead of winding up the affairs of the partnership, retains all the assets in the business. B must account to A’s legal representative for the profits arising from A’s share of the capital.
+(g) A, an agent employed to obtain a lease for B, obtains the lease for himself. A holds the lease for the benefit of B.
+(h) A, a guardian, buys up for himself incumbrances on his ward B’s estate at an undervalue. A holds for the benefit of B the incumbrances so bought, and can only charge him with what he has actually paid.

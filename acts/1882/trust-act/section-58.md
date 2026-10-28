@@ -1,0 +1,2 @@
+58. Right to transfer beneficial interest. The beneficiary, if competent to contract, may transfer his interest, but subject to the law for the time being in force as to the circumstances and extent in and to which he may dispose of such interest:
+Provided that when property is transferred or bequeathed for the benefit of a married woman, so that she shall not have power to deprive herself of her beneficial interest, nothing in this section shall authorize her to transfer such interest during her marriage.

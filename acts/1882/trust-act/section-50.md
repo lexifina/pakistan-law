@@ -1,0 +1,2 @@
+50. Trustee may not charge for services. In the absence of express directions to the contrary contained in the instrument of trust or of a contract to the contrary entered into with the beneficiary or the Court at the time of accepting the trust, a trustee has no right to remuneration for his trouble, skill and loss of time in executing the trust.
+Nothing in this section applies to any Official Trustee, Administrator General Public Curator or person holding a certificate of administration.

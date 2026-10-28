@@ -1,0 +1,3 @@
+36. General authority of trustee. In addition to the powers expressly conferred by this Act and by the instrument of trust, and subject to the restrictions, if any, contained in such instrument, and to the provisions of section 17, a trustee may do all acts which are reasonable and proper for the realization, protection or benefit of the trust-property, and for the protection or support of a beneficiary who is not competent to contract.
+1* * * * * * *
+Except with the permission of a principal Civil Court of original jurisdiction, no trustee shall lease trust-property for a term exceeding twenty-one years from the date of executing the lease, nor without reserving the best yearly rent that can be reasonably obtained.

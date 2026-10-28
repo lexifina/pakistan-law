@@ -1,0 +1,1 @@
+93. Advantage secretly gained by one of several compounding creditors. Where creditors compound the debts due to them, and one of such creditors, by a secret arrangement with the debtor, gains an undue advantage over his co-creditors, he must hold for the benefit of such creditors the advantage so gained.

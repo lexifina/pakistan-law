@@ -1,0 +1,7 @@
+81. Where it does not appear that transferor intended to dispose of beneficial interests.
+Where the owner of property transfers or bequeaths and it cannot be inferred consistently with the attendant circumstances that he intended to dispose of the beneficial interest therein, the transferee or legatee must hold such property for the benefit of the owner or his legal representative.
+Illustrations
+(a) A conveys land to B without consideration and declares no trust of any part. It cannot, consistently with the circumstances under which the transfer is made, be inferred that A intended to transfer the beneficial interest in the land. B holds the land for the benefit of A.
+(b) A conveys to B two fields, Y and Z, and declares a trust of Y, but says nothing about Z. It cannot, consistently with the circumstances under which the transfer is made, be inferred that A intended to transfer the beneficial interest in Z. B holds Z for the benefit of A.
+(c) A transfers certain stock belonging to him into the joint names of himself and B. It cannot, consistently with the circumstances under which the transfer is made, be inferred that A intended to transfer the beneficial interest in the stock during his life. A and B hold the stock for the benefit of A during his life.
+(d) A makes a gift of certain land to his wife B. She takes the beneficial interest in the land free from any trust in favour of A, for it may be inferred from the circumstances that the gift was for B’s benefit.

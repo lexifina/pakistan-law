@@ -1,0 +1,5 @@
+94. Constructive trusts in cases not expressly provided for. In any case not coming within the scope of any of the preceding sections, where there is no trust, but the person having possession of property has not the whole beneficial interest therein, he must hold the property for the benefit of the persons having such interest, or the residue thereof (as the case may be), to the extent necessary to satisfy their just demands.
+Illustrations
+(a) A, an executor, distributes the assets of his testator B to the legatees without having paid the whole of B’s debts. The legatees hold for the benefit of B’s creditors, to the extent necessary to satisfy their just demands, the assets so distributed.
+(b) A by mistake assumes the character of a trustee for B, and under colour of the trust receives certain money. B may compel him to account for such moneys.
+(c) A makes a gift of a lakh of rupees to B, reserving to himself, with B’s assent, power to revoke at pleasure the gift as to Rs. 10,000. The gift is void as to Rs. 10,000, and B holds that sum for the benefit of A.

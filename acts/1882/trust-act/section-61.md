@@ -1,0 +1,4 @@
+61. Right to compel to any act of duty. The beneficiary has a right that his trustee shall be compelled to perform any particular act of his duty as such, and restrained from committing any contemplated or probable breach of trust.
+Illustrations
+(a) A contracts with B to pay him monthly Rs. 100 for the benefit of C. B writes and signs a letter declaring that he will hold in trust for C the money so to be paid. A fails to pay the money in accordance with his contract. C may compel B on a proper indemnity to allow C to sue on the contract in B's name.
+(b) A is trustee of certain land, with a power to sell the same and pay the proceeds to B and C equally. A is about to make an improvident sale of the land. B may sue on behalf of himself and C for an injunction to restrain A from making the sale.

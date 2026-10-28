@@ -1,0 +1,1 @@
+35. Right to settlement of accounts. When the duties of a trustee, as such, are completed, he is entitled to have the accounts of his administration of the trust­property examined and settled; and, where nothing is due to the beneficiary under the trust, to an acknowledgment in writing to that effect.

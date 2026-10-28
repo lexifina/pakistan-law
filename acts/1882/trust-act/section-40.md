@@ -1,0 +1,2 @@
+40. Power to vary investments. A trustee may, at his discretion, call in any trust-property invested in any security and invest the same on any of the securities mentioned or referred to in section 20, and from time to time vary any such investments for others of the same nature:
+Provided that, where there is a person competent to contract and entitled at the time to receive the income of the trust-property for his life, or for any greater estate, no such change of investment shall be made without his consent in writing.

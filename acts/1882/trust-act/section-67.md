@@ -1,0 +1,6 @@
+67. Wrongful employment by partner-trustee of trust-property for partnership
+purposes. If a partner, being a trustee, wrongfully employs trust-property in the business, or on the account of the partnership, no other partner is liable therefore in his personal capacity to the beneficiaries, unless he had notice of the breach of trust.
+The partners having such notice are jointly and severally liable for the breach of trust.
+Illustrations
+(a) A and B are partners. A dies, having bequeathed all his property to B in trust for Z and appointed B his sole executor. B, instead of winding up the affairs of the partnership, retains all the assets in the business. Z may compel him, as partner, to account for so much of the profits as are derived from A’s share of the capital. B is also answerable to Z for the improper employment of A’s assets.
+(b) A, a trader, bequeaths his property to B in trust for C, appoints B his sole executor, and dies. B enters into partnership with X and Y in the same trade, and employs A’s assets in the partnership business. B gives an indemnity to X and Y against the claims of C. Here X and Y are jointly liable with B to C as having knowingly become parties to the breach of trust committed by B.

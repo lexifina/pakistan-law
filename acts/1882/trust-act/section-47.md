@@ -1,0 +1,6 @@
+47. Trustee cannot delegate. A trustee cannot delegate his office or any of his duties either to a co-trustee or to a stranger, unless (a) the instrument of trust so provides, or (b) the delegation is in the regular course of business, or (c) the delegation is necessary, or (d) the beneficiary, being competent to contract, consents to the delegation.
+Explanation. The appointment of an attorney or proxy to do an act merely ministerial and involving no independent discretion is not a delegation within the meaning of this section.
+Illustrations
+(a) A bequeaths certain property to B and C on certain trusts to be executed by them or the survivor of them or the assigns of such survivor. B dies. C may bequeath the trust- property to D and E upon the trusts of A's will.
+(b) A is a trustee of certain property with power to sell the same. A. may employ an auctioneer to effect the sale.
+(c) A bequeaths to B fifty houses let at monthly rents in trust to collect the rents and pay them to C. B may employ a proper person to collect these rents.

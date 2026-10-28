@@ -1,0 +1,1 @@
+76. Survival of trusts. On the death or discharge of one of several co-trustees, the trust survives and the trust-property passes to the others, un less the instrument of trust expressly declares otherwise.
