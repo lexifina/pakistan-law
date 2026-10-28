@@ -1,0 +1,1 @@
+3. State Bank to be depository for International Fund and Bank. The State Bank of Pakistan (hereinafter referred to as the State Bank) shall be the depository of the Pakistan currency holdings of the International Fund and International Bank.
