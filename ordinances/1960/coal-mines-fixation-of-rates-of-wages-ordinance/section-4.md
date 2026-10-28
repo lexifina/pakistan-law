@@ -1,0 +1,1 @@
+4. Coal mine workers entitled to minimum wages.—On the issue of a notification under section 3, every person employed in a coal mine shall be entitled to be paid by the owner wages at a rate which shall in no case be less than the rate of wages specified in the notification.

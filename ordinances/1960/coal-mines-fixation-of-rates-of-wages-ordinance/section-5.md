@@ -1,0 +1,2 @@
+5. Ordinance not to affect certain agreements, etc.—The provisions of this Ordinance shall have effect notwithstanding anything inconsistent therewith in any award, agreement or contract of service, whether made before or after the commencement of this Ordinance :
+Provided that where under any such award, agreement, or contract of service a person employed in a coal mine is entitled to higher rates of wages, he shall continue to be entitled to such higher rates.
