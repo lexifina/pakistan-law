@@ -1,0 +1,1 @@
+6. Appointment of subordinate officers and men. The appointment of all officers and men of the Frontier Constabulary, other than those mentioned in sub-section (1) of section 5, shall rest with the Commandant and the District Constabulary Officer who shall respectively exercise such powers, in such manner as may be prescribed by rules made under this Act.

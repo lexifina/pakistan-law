@@ -1,0 +1,5 @@
+20. Application of Act to other bodies enrolled for service on frontier.___ The [^25][Federal Government] [^26]* * *may, by notification in the official Gazette, apply[^27] with such modifications (if any) as it may think fit, any of the provisions of this Act and the rules thereunder to the Border Militia or to any persons for the time being enrolled for similar service on the external frontier of [^25][Pakistan].
+
+[^25]: Subs. by the .Central Laws (Statute Reform) Ordinance, 1960 (21 of 1960), s. 3 and 2nd Sch. (with effect from the 14th October, 1955), for “ the Provinces and the Capital of the Federation” which had been subs. by A. O., 1949, Arts. 3 (2) and 4, for “British India”.
+[^26]: The words “subject to the control of the G. G. in C.” rep. by A. O., 1937.
+[^27]: This Act has been applied with modifications to the Frontier Corps., viz., the Kurrum Militia, the Tochi Scouts and the South Waziristan Scouts see N: W.F.P. Chief Commissioner's Notification No. 1085-M., dated the 27th March, 1925.

@@ -1,0 +1,10 @@
+10. Minor punishment.___(1) The Commandant or the District Constabulary Officer may, subject to any rules made under this Act, award in lieu of, or in addition to, suspension or dismissal, any of the following punishments to any member of the Constabulary who is, in the opinion of the Commandant or the District Constabulary Officer, as the case may be, guilty of disobedience, neglect of duty, or remissness in the discharge of any duty, or of rendering himself unfit to discharge his duty, or of other misconduct in his capacity as such member of the Constabulary, that is to say,___
+(a) reduction in rank and emoluments ;
+(b) fine to any amount not exceeding one month's pay and allowances ;
+(c) confinement to quarters for a term not exceeding one month ;
+(d) confinement in the quarter-guard for not more than twenty-eight days with or without punishment-drill or extra guard, fatigue or other duty ; and
+(e) removal from any office of distinction or special emolument in the Constabulary.
+(2) The Commandant or the District Constabulary Officer, or an officer not being below the rank of Subedar, commanding a separate detachment or an outpost, or in temporary command at the headquarters of a district during the absence of the Commandant and the District Constabulary Officer may, without a formal trial, award to any member of the Constabulary who is subject to his authority any of the following punishments for the commission of any petty offence against discipline which is not otherwise provided for in this Act, or which is not of a sufficiently serious nature to call for a prosecution before a Criminal Court, that is to say,-
+(a) confinement for not more than seven days in the quarter-guard or such other place as may be considered suitable, with forfeiture of all pay and allowances during its continuance ; and
+(b) punishment-drill, or extra guard, fatigue or other duty, for not more than thirty days, with or without confinement to quarters.
+(3) Any one of the punishments described in sub-section (1) or sub-section (2) may be awarded separately, or in combination with any one or more of the said punishments, respectively.
