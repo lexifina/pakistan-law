@@ -1,0 +1,1 @@
+5. Insulting language and incitement.___ Any person who in any public place or at any public meeting uses threatening, abusive or insulting words or behaviour with intent to provoke a breach of the peace or whereby a breach of the peace is likely to be occasioned shall be guilty of an offence under this Ordinance.

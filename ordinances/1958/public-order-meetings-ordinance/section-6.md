@@ -1,0 +1,1 @@
+6. Offences to be cognizable and non-bailable.___ Notwithstanding anything in the Code of Criminal Procedure, 1898 (Act V of 1898), an offence under this Ordinance shall be cognizable and non-bailable.
