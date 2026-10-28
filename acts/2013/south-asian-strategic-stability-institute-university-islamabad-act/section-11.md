@@ -1,0 +1,3 @@
+11. Chancellor.— (l) The Chancellor of the University shall be appointed by the board of Trustees to hold the office for a term determined by the Trust.
+(2) The Chancellor shall in the absence of Patron, preside over the convocations and meetings of the university of which his presence is desirable in the light of business being transacted. Every proposal to confer an honorary degree shall be subject to confirmation of the Chancellor.
+(3) Where the Chancellor is satisfied that the proceedings or orders of any authority are not in accordance with provision of the act, the statues, regulations or rules, he may after, calling upon such authority to show cause in writing, annul such proceedings or order, after the final approval from the board of trustees.
