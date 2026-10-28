@@ -1,0 +1,1 @@
+9. Compensation. Where any motor vehicle is requisitioned under sub-section (1) of section 3, there shall be paid to the owner compensation for its use at the rate of rupees fifty per diem, notwithstanding any expenditure incurred by the District Magistrate under the provisions of section 8.

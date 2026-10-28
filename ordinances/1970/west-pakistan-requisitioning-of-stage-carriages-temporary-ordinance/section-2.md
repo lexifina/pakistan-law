@@ -1,0 +1,1 @@
+2. Definitions. The words and expressions used in this Ordinance shall have the same meaning as is assigned to them in the West Pakistan Motor Vehicles Ordinance, 1965 (West Pakistan Ordinance XIX of 1965).

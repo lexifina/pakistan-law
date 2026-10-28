@@ -1,0 +1,1 @@
+7. Permit not necessary. Notwithstanding anything contained in the West Pakistan Motor Vehicles Ordinance, 1965 (West Pakistan Ordinance XIX of 1965), or any other law for the time being in force, no permit for running a motor vehicle requisitioned under section 3 shall be required.

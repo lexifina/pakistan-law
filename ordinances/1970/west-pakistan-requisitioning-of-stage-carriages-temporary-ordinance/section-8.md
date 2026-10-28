@@ -1,0 +1,1 @@
+8. Payment of repair charges, taxes, etc. The District Magistrate may in respect of any motor vehicle requisitioned under sub-section (1) of section 3, incur expenses for maintenance and repairs and pay fees, taxes and insurance premiums payable under any law for the time being in force.
