@@ -1,0 +1,2 @@
+69. Driving when mentally or physically unfit:___ (l) Whoever drives a road vehicle on a national highway when he is suffering from a disease or disability to render his driving of the vehicle to be a source of danger to the public shall be punishable with imprisonment for a term which may extend to one month or fine which shall not be less than five hundred rupees and may extend to one thousand rupees, or with both.
+(2) No person shall be convicted of an offence punishable under sub-section (1) unless so determined by the Medical Board as set out in the Second Schedule.

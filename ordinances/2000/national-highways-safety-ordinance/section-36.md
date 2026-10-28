@@ -1,0 +1,1 @@
+36. Special registration of vehicles:___Notwithstanding anything contained, in this Chapter Government may, by rules, prescribe a special procedure for the registration of any class, or type or category of road vehicles, or road vehicles belonging to a specified class of persons, or individuals.

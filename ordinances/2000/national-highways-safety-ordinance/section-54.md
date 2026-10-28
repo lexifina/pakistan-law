@@ -1,0 +1,1 @@
+54. Riding on running boards:___No person driving, or being in charge of a motor vehicle, on a national highway shall carry any person or permit any person to carry, and no person shall permit himself to be carried, on the running board or otherwise than within the body of the vehicle.

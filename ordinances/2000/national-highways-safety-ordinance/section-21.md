@@ -1,0 +1,2 @@
+21. Temporary Registration:___ (1) Notwithstanding anything contained in section 19 the owner of a road vehicle may apply in the prescribed manner to any registering authority to have the vehicle temporarily registered and thereupon such registering authority shall issue to the owner of the vehicle a temporary certificate of registration and assign to the vehicle a temporary mark of registration.
+(2) A registration made under sub-section (1) shall be valid only for a period of one month and shall not be renewable.

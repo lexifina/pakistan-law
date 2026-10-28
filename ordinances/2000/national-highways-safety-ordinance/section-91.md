@@ -1,0 +1,1 @@
+91. Assistance National Highways and Pakistan Motorway Police:___All officers of the Police and Civil Armed Forces are empowered and required to assist the National Highways and Pakistan Motorway Police in discharge of its functions under this Ordinance.

@@ -1,0 +1,3 @@
+86. Point system for traffic violations:___ (1) Whosoever is proved guilty of contravention of the rules specified in the Eighth Schedule shall, in addition to penalties provided under this Ordinance, also be charged with points indicated against each offence under the Eleventh Schedule.
+(2) When points accumulated against any person exceed ten within a two years' period, he shall be issued a warning listing the reported violations.
+(3) When the points accumulated within a two years period exceed twenty, the licence of such person shall be suspended by a Superintendent Police of the National Highways and Pakistan Motorway Police for a period of six months, extendable by another six months.

@@ -1,0 +1,1 @@
+15. Power of court to order disqualification:___The court taking cognizance of any offence under this Ordinance may, in addition to imposing any other punishment authorized by law, disqualify the convict from driving any or all classes of road vehicles for such period as it may specify.

@@ -1,0 +1,1 @@
+55. Obstruction to driver:___ No person driving a road vehicle on a national highway shall allow any person to stand or sit or be placed in such manner or position as to hamper the diver in control of the vehicle.
