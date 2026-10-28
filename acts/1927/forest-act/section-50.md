@@ -1,0 +1,1 @@
+50. Payments to be made by claimant before timber is delivered to him.—No person shall be entitled to recover possession of any timber collected or delivered as aforesaid until he has paid to the Forest-officer or other person entitled to receive it such sum on account thereof as may be due under any rule made under section 51.

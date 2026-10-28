@@ -1,0 +1,1 @@
+62. Punishment for wrongful seizure.—Any Forest-officer or Police-officer who vexatiously and unnecessarily seizes any property on pretence of seizing property liable to confiscation under this Act shall be punishable with imprisonment for a term which may extend to six months, or with fine which may extend to five hundred rupees, or with both.

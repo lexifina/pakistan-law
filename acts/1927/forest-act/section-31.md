@@ -1,0 +1,1 @@
+31. Publication of translation of such notification in neighborhood.—The Collector shall cause a translation into the local vernacular of every notification issued under section 30 to be affixed in a conspicuous place in every town and village in the neighborhood of the forest comprised in the notification.

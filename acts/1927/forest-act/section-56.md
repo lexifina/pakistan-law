@@ -1,0 +1,2 @@
+56. Disposal, on conclusion of trial for forest-offence, of produce in respect of which it
+was committed.—When the trial of any forest-offence is concluded, any forest-produce in respect of which such offence has been committed shall, if it is the property of Government or has been confiscated, be taken charge of by a Forest-officer, and, in any other case, may be disposed of in such manner as the Court may direct.

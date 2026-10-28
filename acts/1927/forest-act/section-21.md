@@ -1,0 +1,1 @@
+21. Publication of translation of such notification in neighborhood of forest.—The Forest-officer shall, before the date fixed by such notification, cause a translation thereof into the local vernacular to be published in every town and village in the neighborhood of the forest.

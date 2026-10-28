@@ -1,0 +1,1 @@
+77. Penalties for breach of rules. Any person contravening any rule under this Act, for the contravention of which no special penalty is provided, shall be punishable with imprisonment for a term which may extend to one month, or fine which may extend to five hundred rupees, or both.
