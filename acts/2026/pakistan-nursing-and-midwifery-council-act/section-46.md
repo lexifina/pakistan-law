@@ -1,0 +1,1 @@
+46. Reporting, dissemination, and confidentiality of data.—The real-time data, information, SOPs, guidelines, and reports as produced by the council shall be reported and regularly placed and updated on its public website for wider dissemination and sharing, in English and the national language, to keep the public informed.

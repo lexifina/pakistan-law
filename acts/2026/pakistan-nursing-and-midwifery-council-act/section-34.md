@@ -1,0 +1,9 @@
+34. National Licensing Examination.—(1) The Council shall conduct the NLE at as per the schedule approved by it.
+(2) On graduation, the Council shall issue a provisional license for one year.
+(3) Passing the NLE shall be mandatory for obtaining a full license:
+Provided that there shall be no limit on the number of attempts for a person to appear in the NLE and at any time:
+Provided further that the Council shall implement the NLE within a period of two years from the commencement of this Act.
+(4) The Council shall formulate the examination structure and standards of the NLE for the grant of a provisional license upon completion of undergraduate training, and to set up and authorize a committee of not less than three persons to formulate the examination papers of the NLE for approval of the Council in a manner prescribed under the Rules for all bachelor’s degrees.
+(5) All universities and Boards shall, within ten days of students having successfully completed the program of study and passed their final exanimations, inform the Council of the results to enable the students to be registered for taking the NLE.
+(6) Any registrant who has obtained a license to practice in any foreign country after having qualified from Pakistan or from a foreign institution recognized by the Council and does not hold a postgraduate qualification recognized by the Council shall be required to qualify for the NLE for the grant of a full license to practice in Pakistan:
+Provided that a registrant who has obtained a license to practice in a foreign country or qualified from a foreign institution, but has acquired a postgraduate qualification in Pakistan or from a foreign institution recognized by the Council, shall not be required to qualify for the NLE and shall be granted a full license to practice on the basis of the recognized postgraduate qualification.

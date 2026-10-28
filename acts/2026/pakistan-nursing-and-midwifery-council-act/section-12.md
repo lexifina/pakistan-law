@@ -1,0 +1,5 @@
+12. Executive Committee.—(1) The Council shall, for its efficient functioning, constitute an Executive Committee to meet frequently to oversee day to day functions, as determined by the Council. The executive committee shall be headed by the President, or Vice President only in the absence of the President, and four other members, including the Director General of Health, a Member legal Professional, a Member Chartered Accountant, and one member to be nominated by the Council.
+(2) The Council may also constitute such other committees or sub-committees as it may deem fit or as advised by the Division concerned for carrying out the purposes of this Act.
+(3) The decision of the Executive Committee or any other such committee or sub-committee may be reviewed by the Council.
+(4) The Executive Committee shall exercise and perform such powers and functions as are, or may be, conferred upon it by the Council and will report on its activities to the Council at every Council meeting.
+(5) The Executive Committee may co-opt any other member advised by the Division concerned.

@@ -1,0 +1,8 @@
+10. Meetings of the Council.— (1) The Council shall, for the purpose of transacting its business, meet at least once every three months, at such time and place as the Council may deem fit or as the President of the Council may determine.
+(2) A special meeting of the Council may be called by the President at such time and places whenever required.
+(3) A written notice along with the agenda and the time and place of each meeting shall be sent by post or courier or by modern electronic means that constitutes documentary proof of notice, such as an email, by the Secretary of the Council, provided he has no conflict of interest, to all the members at least seven days before the date fixed for such meeting:
+Provided that an emergency meeting may be called at twenty-four-hour notice.
+(4) One third of the total members shall form a quorum for the meeting of the Council. A member may participate in a meeting through digital mode, and such participation shall be deemed to have formed the quorum.
+(5) The decision of the Council shall be taken by the majority of its members present and voting, and in case of a tie, the Chair of such meeting shall have a casting vote.
+(6) All orders, determinations, and decisions of the Council shall be taken in writing and shall be signed by the members of the Council present and voting physically or electronically in the meeting, including the Secretary of the Council.
+(7) The meetings of the Council shall normally be presided over by the President of the Council. In case the President is absent, the Vice President may preside with the approval of the President.

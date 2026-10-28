@@ -1,0 +1,1 @@
+43. Appellate Authority.—The Secretary of the Division concerned shall be the Appellate Authority for the offences mentioned in the Fifth Schedule of this Act, and any appeal or representation provided under this Act shall lie to him within thirty days of any impugned decision of the Council.
