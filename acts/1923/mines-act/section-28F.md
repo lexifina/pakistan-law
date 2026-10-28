@@ -1,0 +1,1 @@
+28F. Payment in advance in certain cases.—Any person who has been allowed leave for not less than four days under section 28B shall, before his leave begins, be paid the wages due for the period of the leave allowed.

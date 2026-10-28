@@ -1,0 +1,8 @@
+40. Contravention of law with dangerous results.⸻(1) Notwithstanding anything hereinbefore contained whoever contravenes any provision of this Act or of any regulation, rule or bye-law or of any order made thereunder, shall be punishable, if such contravention results in loss of life, with imprisonment which may extend to one year, or with fine which may extend to [^165][four] thousand rupees, or with both; or, if such contravention results in serious bodily injury, with imprisonment which may extend to six months, or with fine which may extend to [^166][two] thousand rupees, or with both; or, if such contravention otherwise causes injury, or danger to workers or other persons in or about the mine with imprisonment which may extend to one month, or with fine which may extend to [^167][one thousand] rupees or with both.
+(2) Where a person having been convicted under this section is again convicted thereunder, be shall be punishable with double the punishment provided by sub-section (1).
+(3) Any Court imposing, confirming in appeal, revision or otherwise, a sentence of fine passed under this section may, when passing judgment, order the whole or any part of the fine recovered to be paid as compensation to the person injured, or, in the case of his death, to his legal representative
+Provided that, if the fine is imposed in a case which is subject to appeal, no such payment shall be made before the period allowed for presenting the appeal has elapsed, or, if an appeal has been presented, before the decision of the appeal.
+
+[^165]: Subs. ibid., for “two thousand”.
+[^166]: Subs. ibid., s. 30, for “one thousand”.
+[^167]: Subs. ibid., for “five hundred”.

@@ -1,0 +1,4 @@
+27. Dispute as to age.___(1) If any question arises between the Chief inspector or the Inspector and the manager of any mine as to whether any Person is a child [^96][or has not completed his seventeenth year] the question shall, in the absence of a certificate as to the age of such person granted in the prescribed manner, be referred by the Chief Inspector or the Inspector for decision to a qualified medical practitioner.
+(2) Every certificate as to the age of a person which has been granted in the prescribed manner and any certificate granted by a qualified medical practitioner on a reference under sub-section (1) shall, for the purposes of this act, be conclusive evidence as to the age of the person to whom it relates.
+
+[^96]: Ins. by the Indian Mines (Amdt.) Act, 1935 (V of 1935), s. 13.

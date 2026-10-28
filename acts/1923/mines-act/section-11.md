@@ -1,0 +1,12 @@
+11. Committees.⸻(1) Where under this Act any question relating to a mine is referred to a Committee, the Committee shall consist of⸻
+(a) a chairman nominated by the [^42][appropriate Government] or by such officer or authority as the [^42][appropriate Government] may authorise in this behalf;
+(b) a person nominated by the chairman and qualified by experience to dispose of the question referred to the Committee; and
+(c) two persons of whom one shall be nominated by the owner, agent or manager of the mine concerned, and the other shall be nominated by the [^45][appropriate Government] to represent the interests of the persons employed in the mine.
+(2) No Inspector or person employed in or in the management of any mine concerned shall serve as chairman or member of a Committee appointed under this section.
+(3) Where an owner, agent or manager fails to exercise his power of nomination under clause (c) of sub-section (1), the Committee may, not with standing such failure, proceed to inquire into and dispose of the matter referred to it.
+(4) The Committee shall hear and record such information as the Chief Inspector or the Inspector, or the owner, agent or manager of the mine concerned, may place before it, and shall intimate its decision to the Chief Inspector or the Inspector and to the owner, agent or manager of the mine, and shall report its decision to the [^45][appropriate Government.]
+(5) On receiving such report the [^45][appropriate Government] shall pass orders in conformity therewith unless the Chief Inspector or the owner, agent or manager of the mine has lodged an objection to the decision of the Committee, in which case the [^45][appropriate Government] may proceed to review such decision and to pass such orders in the matter as it may think fit. If an objection is lodged by the Chief Inspector, notice of the same shall forthwith be given to the owner, agent or manager of the mine.
+(6) The [^45][appropriate Government] may give directions as to the remuneration, if any, to be paid to the members of the Committee or any of them, and as to the payment of the expenses of the inquiry including such remuneration.
+
+[^42]: Subs. by A.O., 1964, Art. 2 and Sch., for “Central Government” which had been subs. by A.O., 1937, for "Local Government".
+[^45]: Subs. by A.O., 1964, Art.2 and Sch., for "Central Government"., which had been subs. by A.O., 1937, for "Local Government".
