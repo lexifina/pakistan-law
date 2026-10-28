@@ -1,0 +1,2 @@
+3. Continuance of requisitions.—Notwithstanding the Defence of Pakistan Ordinance, 1965 (XXIII of 1965), and the rules made thereunder ceasing to have effect, all requisitioned lands shall continue to be subject to requisition and the appropriate Government may use or deal with any requisitioned land in such manner as may appear to it to be expedient :
+Provided that the appropriate Government may at any time release from requisition any requisitioned land.
