@@ -1,0 +1,1 @@
+22. Indemnity.__ No suit, prosecution or other legal proceedings shall lie against the Chairman, Managing Director, members, consultants, officers or other employees of PPIB in respect of anything done or intended to be done in good faith under this Act.

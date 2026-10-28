@@ -1,0 +1,3 @@
+5B. Institute of energy technologies.— (1) The Board may, for carrying out its functions of commercial application of alternative or renewable energy and development and promotion of generation, transmission and distribution and related infrastructure, establish an institute for the development of corresponding human resource. The institute shall also provide economic and policy counseling and conduct alternative or renewable economic research.
+(2) The institute established under sub-section (1) shall conduct its business in such manner as may be prescribed by regulations.
+(3) The institute may be funded subject to the public finance management Act, 2019, by such fees and charges as may be prescribed by rules.]
