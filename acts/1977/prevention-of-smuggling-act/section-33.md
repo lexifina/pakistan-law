@@ -1,0 +1,1 @@
+33. Burden of proof. In any proceedings under this Chapter, the burden of proving that any property specified in a notice issued under section 31 is not property acquired by smuggling shall be on the person to whom such notice is issued and, on his relatives, or associates, if any, on whom a copy of such notice has been served.

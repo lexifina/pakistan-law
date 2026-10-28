@@ -1,0 +1,1 @@
+22. Surety may ask for cancellation of bond. Any surety may at any time apply to the Special Judge for the cancellation of a bond executed by him under this Chapter and the Special Judge may issue a summons or warrant, as he thinks fit, requiring the person for whom such surety is bound to appear or to be brought before him.

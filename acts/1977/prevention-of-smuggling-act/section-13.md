@@ -1,0 +1,1 @@
+13. Power to dispense with personal appearance. The Special Judge may, for sufficient reason, dispense with the personal attendance of any person called upon to show cause under section 10 and may permit him to appear by an advocate, subject to such conditions, if any, that the Judge may deem fit to impose and may, at any time, revoke the order dispensing with such attendance.
