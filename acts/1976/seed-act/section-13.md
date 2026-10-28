@@ -1,0 +1,5 @@
+13. Grant of certificate by Federal Certification [^15][and Registration Department].—(1) Any person intending to produce notified varieties or species of seed, or stock for sale, or offer for distribution or otherwise supply seed of a notified variety or species may, if he desires to have such seed certified or tested by the Federal Seed Certification [^15][and Registration Department], apply to the said [^15][and Registration Department] for the grant of a certificate for this purpose.
+(2) Every application under sub-section (1) shall be in such form and be accompanied by such fee and contain such information as may be prescribed.
+(3) On receipt of an application under sub-section (1), the Federal Certification [^15][and Registration Department], may after such enquiry as it thinks fit and after satisfying itself that the seed to which the application relates conforms to the minimum prescribed standards, grant a certificate in such form and on such conditions as may be prescribed.
+
+[^15]: Subs. and added by Act No. VII of 2015, ss. 7-8.
