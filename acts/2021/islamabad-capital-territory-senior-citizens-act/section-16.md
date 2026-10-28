@@ -1,0 +1,1 @@
+16. Exemption.—The Senior Citizens Fund shall be exempted from all kinds of taxation or levies under any law in force for the time being. All donations made to the Fund shall also be exempt from taxes. PART-V GRIEVANCES AND REDRESSAL PROCEDURE

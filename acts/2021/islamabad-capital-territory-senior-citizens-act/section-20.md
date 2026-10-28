@@ -1,0 +1,1 @@
+20. Exposure and abandonment of senior citizen.—Whenever any person, responsible for the care and protection of senior citizen, leaves such senior citizen in any place with the intention of wholly abandoning such senior citizen, shall be punishable with a fine which may extend to one hundred thousand rupees by the Grievance Committee.
