@@ -1,0 +1,1 @@
+22. Issue of certificate in case of minority. When either of the persons intending marriage is a minor, and the Minister is not satisfied that the consent of the person whose consent to such marriage is required by section 19 has been obtained, such Minister shall not issue such certificate until the expiration of fourteen days after the receipt by him of the notice of marriage.

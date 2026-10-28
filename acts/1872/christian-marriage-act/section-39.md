@@ -1,0 +1,2 @@
+39. Publication of notice. Every Marriage Registrar shall, on receiving any such notice, cause a copy thereof to be affixed in some conspicuous place in his office.
+When one of the parties intending marriage is a minor, every Marriage Registrar shall, within twenty-four hours after the receipt by him of the notice of such marriage, send, by post or otherwise, a copy of such notice to each of the other Marriage Registrars (if any) in the same district, who shall likewise affix the copy in some conspicuous place in his own office.

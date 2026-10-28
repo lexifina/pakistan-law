@@ -1,0 +1,5 @@
+78. Correction of errors. Every person charged with the duty of registering any marriage, who discovers any error in the form or substance of any such entry, may, within one month next after the discovery of such error, in the presence of the persons married, or, in case of their death or absence, in the presence of two other credible witnesses, correct the error, by entry in the margin, without any alteration of the original entry, and shall sign the marginal entry, and add thereto the date of such correction, and such person shall make the like marginal entry in the certificate thereof.
+And every entry made under this section shall be attested by the witnesses in whose presence it was made.
+And in case such certificate has been already sent to the [^57][Registrar General of Births, Deaths and Marriages], such person shall make and send in like manner a separate certificate of the original erroneous entry, and of the marginal correction therein made.
+
+[^57]: Subs by the Births, Deaths and Marriages Registration Act, 1886 (6 of 1886), s. 30 (b), for “Secretary to the L. G.”and “Secretary to a L. G.” respectively.

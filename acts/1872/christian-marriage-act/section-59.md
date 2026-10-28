@@ -1,0 +1,1 @@
+59. Registration of marriages between Native Christians. The registration of marriages between Native Christians under this Part shall be made in conformity with the rules laid down in section 37 (so far as they are applicable), and not otherwise.

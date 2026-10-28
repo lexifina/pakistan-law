@@ -1,0 +1,2 @@
+61. Grant of certificate. When, in respect to any marriage solemnized under this Part, the conditions prescribed in section 60 have been fulfilled, the person licensed as aforesaid, in whose presence the said declaration has been made, shall, on the application of either of the parties to such marriage, and on the payment of a fee of four annas, grant a certificate of the marriage.
+The certificate shall be signed by such licensed person, and shall be received in any suit touching the validity of such marriage as conclusive proof of its having been performed.

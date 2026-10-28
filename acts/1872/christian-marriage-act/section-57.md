@@ -1,0 +1,3 @@
+57. Registrars to ascertain that notice and certificate are understood by Native
+Christians. When any Native Christian about to be married gives a notice of marriage, or applies for a certificate from a Marriage Registrar, such Marriage Registrar shall ascertain whether the said Native Christian understands the English language, and, if he does not, the Marriage Registrar shall translate, or cause to be translated, such notice or certificate, or both of them, as the case may be, to such Native Christian into a language which he understands;
+or the Marriage Registrar shall otherwise ascertain whether the Native Christian is cognizant of the purport and effect of the said notice and certificate.

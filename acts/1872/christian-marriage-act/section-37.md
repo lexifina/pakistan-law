@@ -1,0 +1,6 @@
+37. Registration of marriages between Native Christians by persons referred to in
+clauses (1), (2) and (3) of section 5. When any marriage between Native Christians is solemnized [^25][by any such person, Clergyman or Minister of Religion as is referred to in clause (1), clause (2) or clause (3) of section 5], the person solemnizing the same shall, instead of proceeding in the manner provided by sections 28 to 36, both inclusive, register the marriage in a separate register-book, and shall keep it safely until it is filled, or, if he leave the district in which he solemnized the marriage before the said book is filled, shall make over the same to the person succeeding to his duties in the said district.
+Custody and disposal of register-book. Whoever has the control of the book at the time when it is filled, shall send it to the Marriage Registrar of the district, or, if there be more Marriage Registrars than one, to the Senior Marriage Registrar, who shall send it to the [^24][Registrar General of Births, Deaths and Marriages], to be kept by him with the records of his office.
+
+[^24]: Subs. by the Births, Deaths and Marriages Registration Act, 1886 (6 of 1886), s. 30 (b), for “Secretary to the L.G.”.
+[^25]: Subs. by the Repealing and Amending Act, 1928 (18 of 1928), s. 2 and Sch. I, for “under Part I or Part III of this Act”.

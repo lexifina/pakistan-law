@@ -1,0 +1,10 @@
+## PART III
+## MARRIAGES SOLEMNIZED BY MINISTERS OF RELIGION LICENSED
+## UNDER THIS ACT
+12. Notice of intended marriage. Whenever a marriage is intended to be solemnized by a Minister of Religion licensed to solemnize marriages under this Act−
+one of the persons intending marriage shall give notice in writing, according to the form contained in the first schedule hereto annexed, or to the like effect, to the Minister of Religion whom he or she desire to solemnize the marriage, and shall state therein−
+(a) the name and surname, and the profession or condition, of each of the person intending marriage,
+(b) the dwelling-place of each of them,
+(c) the time during which each has dwelt there, and
+(d) the church or private dwelling in which the marriage is to be solemnized:
+Provided that, if either of such persons has dwelt in the place mentioned in the notice during more than one month, it may be stated therein that he or she has dwelt there one month and upwards.
