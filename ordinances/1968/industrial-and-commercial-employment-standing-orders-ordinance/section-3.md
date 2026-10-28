@@ -1,0 +1,1 @@
+3. Enforcement of Standing Orders.__ In every industrial or commercial establishment, conditions of the employment of workmen and other incidental matters shall subject to the other provisions of this Ordinance, be regulated in accordance with the Standing Orders.
