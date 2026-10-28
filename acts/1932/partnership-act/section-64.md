@@ -1,0 +1,2 @@
+64. Rectification of mistakes.—(1) The Registrar shall have power at all times to rectify any mistake in order to bring the entry in the Register of Firms relating to any firm into conformity with the documents relating to that firm filed under this Chapter.
+(2) On application made by all the parties who have signed any document relating to a firm filed under this Chapter, the Registrar may rectify any mistake in such document or in the record or note thereof made in the Register of Firms.

@@ -1,0 +1,1 @@
+67. Grant of copies.—The Registrar shall on application furnish to any person, on payment of such fee as may be prescribed, a copy, certified under his hand, of any entry or portion thereof in the Register of Firms.

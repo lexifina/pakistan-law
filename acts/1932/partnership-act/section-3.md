@@ -1,0 +1,1 @@
+3. Application of provisions of ACT IX of 1872.—The unrepealed provisions of the Contract Act, 1872 (IX of 1872), save in so far as they are inconsistent with the express provisions of this Act, shall continue to apply to firms.

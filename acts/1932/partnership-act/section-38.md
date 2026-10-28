@@ -1,0 +1,1 @@
+38. Revocation of continuing guarantee by change in firm.— A continuing guarantee given to a firm, or to a third party in respect of the transactions of a firm, is, in the absence of agreement to the contrary, revoked as to future transactions from the date of any change in the constitution of the firm.

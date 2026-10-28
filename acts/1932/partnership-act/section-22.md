@@ -1,0 +1,1 @@
+22. Mode of doing act to bind firm.— In order to bind a firm, an act or instrument done or executed by a partner or other person on behalf of the firm shall be done or executed in the firm name, or in any other manner expressing or implying an intention to bind the firm.

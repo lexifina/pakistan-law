@@ -1,0 +1,1 @@
+26. Liability of the firm for wrongful acts of a partner.— Where, by the wrongful act or omission of a partner acting in the ordinary course of the business of a firm, or with the authority of his partners, loss or injury is caused to any third party, or any penalty is incurred, the firm is liable therefor to the same extent as the partner.

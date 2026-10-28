@@ -1,0 +1,2 @@
+34. Insolvency of a partner.— (1) Where a partner in a firm is adjudicated an insolvent he ceases to be a partner on the date on which the order of adjudication is made, whether or not the firm is thereby dissolved.
+(2) Where under a contract between the partners the firm is not dissolved by the adjudication of a partner as an insolvent, the estate of a partner so adjudicated is not liable for any act of the firm and the firm is not liable for any act of the insolvent, done after the date on which the order of adjudication is made.

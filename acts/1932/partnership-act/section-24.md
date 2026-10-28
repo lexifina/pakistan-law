@@ -1,0 +1,1 @@
+24. Effect of notice to acting partner.— Notice to a partner who habitually acts in the business of the firm of any matter relating to the affairs of the firm operates as notice to the firm, except in the case of a fraud on the firm committed by or with the consent of that partner.

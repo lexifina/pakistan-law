@@ -1,0 +1,2 @@
+50. Personal profits earned after dissolution.— Subject to contract between the partners, the pro- visions of clause (a) of section 16 shall apply to transactions by any surviving partner or by the representatives of a deceased partner, undertaken after the firm is dissolved on account of the death of a partner and before its affairs have been completely wound up :
+Provided that where any partner or his representative has bought the goodwill of the firm, nothing in this section shall affect his right to use the firm name.

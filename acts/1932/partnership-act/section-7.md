@@ -1,0 +1,1 @@
+7. Partnership at will.— Where no provision is made by contract between the partners for the duration of their partnership, or for the determination of their partnership, the partnership is “partnership at will”.
