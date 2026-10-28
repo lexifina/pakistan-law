@@ -1,0 +1,1 @@
+14. The first Pakistan Bar Council. — As soon as may be, after the constitution of the Provincial Bar Councils under this Act, the first Pakistan Bar Council shall be constituted in accordance with the provisions of section 11.

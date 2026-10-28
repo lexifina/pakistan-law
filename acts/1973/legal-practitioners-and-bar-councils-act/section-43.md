@@ -1,0 +1,11 @@
+43. Procedure in inquiries.__(1) In inquiries relating to conduct of advocates, the Tribunal shall, except as hereinafter provided, follow such procedure as may be prescribed.
+(2) The tribunal shall fix a date for the hearing of the case and shall cause notice of the day so fixed to be given to the complainant, to the advocate concerned and to the Advocate-General of the Province [^82][or Islamabad Capital Territory, as the case may be] and shall afford to the complainant the advocate concerned and the Advocate-General an opportunity of leading evidence, if any, and of being heard before orders are passed in the case.
+(3) The Chairman of the Tribunal may empower one of the members of the Tribunal to consider and decide preliminary issues and to record evidence.
+(4) The Tribunal may, where it considers it necessary so to do, require the person making a complaint, except where the complaint has been made by a court, to deposit with the Tribunal, as security for costs, such sum as it may specify.
+(5) On completion of the inquiry, the Tribunal may either dismiss the complaint or, where the complaint referred to the Tribunal was made at the motion of a Bar Council, direct that the proceedings be filed; or it may make an order imposing any of the penalties referred to in sub­section of section 41.
+(6) Where the Tribunal makes an order for the suspension of an advocate from practice, it shall specify the period of suspension, and for that period the advocate shall be debarred from practising in any court or before any authority or person in Pakistan.
+(7) The Tribunal may, of its own motion or on application made to it in this behalf, review any order passed under sub-section (5) and maintain, vary or rescind the same, as it thinks fit.
+(8) When any advocate is [^84][punished under section 41, the same] shall be entered against his name in the Provincial roll or, as the case may be, the roll of advocates of the Supreme Court maintained by the Pakistan Bar Council, and the common roll, and when an advocate is removed from practice his name shall forthwith be struck off the roll; and the certificate of any advocate so suspended or removed shall be recalled.
+
+[^82]: Ins. by Act No. V of 2014, ss. 23 and 24.
+[^84]: Subs. and added by Act No. XII of 2005, ss. 22 and 23.

@@ -1,0 +1,1 @@
+51. Powers of the disciplinary committee.___The disciplinary committee of the Pakistan Bar Council shall have the same powers as are vested in a Tribunal by section 45 and that section shall apply to the disciplinary committee, the reference to the “Tribunal” in that section being construed as a reference to the “disciplinary committee of the Pakistan Bar Council”.
