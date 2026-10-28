@@ -1,0 +1,3 @@
+3. Constitution, powers and functions of Association.The Constitution, powers and functions of the Association shall, notwithstanding anything in the Companies Act, 1913 (III of 1913), be such as may be prescribed by rules to be made by the Association, with the previous approval in writing of the [^2][Federal Government], and until such rules are made, the rules of the Pakistan Girl Guides Association registered under the Societies Registration Act, 1860 (XXI of 1860) and in force immediately before the commencement of this Ordinance, shall continue in force and be deemed to have been made under this section.
+
+[^2]: Subs. by Federal Adaptation of Laws Order, 1975 (President’s Order No. 4 of 1975), Article 2 and Table.
