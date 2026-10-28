@@ -1,0 +1,1 @@
+124. Penalties provided to be in addition to penalties under other laws.—The punishment, fine and penalties provided in this Act are in addition to, and not substituting any, punishment, fine or penalty imposed under any other law for the time being in force.

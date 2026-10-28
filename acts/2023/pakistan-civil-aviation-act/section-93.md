@@ -1,0 +1,6 @@
+93. Designation of inspectors, authorized persons and medical assessors.—(1) The Director General may for the purpose of this Act, designate—
+(a) one or more appropriately qualified, trained and skilled officers in the service of the Authority as the inspectors; and
+(b) if, at any time, sufficient number of appropriately qualified, trained and skilled officers are not available in the Authority, such number of other appropriately qualified, trained and skilled persons not being in the service of the Authority, as the authorized persons.
+(2) The Director General shall issue to each inspector and authorized person, a document containing a photograph and stating his full name and a statement indicating that he has been designated in terms of sub-section (1) and empowered to exercise what powers under this Act, rules or regulations.
+(3) The Director General may also for the purpose of this Act designate a qualified medical practitioner as medical assessor to evaluate and assess medical conditions of flight safety significance.
+(4) The qualifications and other requirements for designation of an officer or person as an inspector or authorized person, or a medical practitioner as a medical assessor shall be such as may be prescribed by the rules.

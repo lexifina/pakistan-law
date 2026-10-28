@@ -1,0 +1,5 @@
+48. Registration of unmanned aircraft.—(1) No person shall possess an unmanned aircraft of such weight, type and specification as the Federal Government may, from time to time, specify by a notification in the official Gazette unless it is registered with the Authority.
+(2) Any person who intends to possess an unmanned aircraft of such weight, type and specification as the Federal Government may, from time to time, specify by a notification in the official Gazette unless it is registered with the Authority shall apply to the Director General for registration in such form and in such manner as may be prescribed by the rules.
+(3) No application shall be considered by the Director General unless it is complete and accompanied by receipt of payment of such fee as may be prescribed by the regulations.
+(4) No unmanned aircraft shall be registered, or remain registered in Pakistan if it is registered in any other State.
+(5) The Director General may, in accordance with any requirements of the rules, either accept or decline an application to register an unmanned aircraft.

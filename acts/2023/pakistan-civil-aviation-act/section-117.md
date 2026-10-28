@@ -1,0 +1,1 @@
+117. Disorderly or indecent conduct on board an aircraft.— Whoever being on board an aircraft presents disorderly or indecent conduct, or is in a state of intoxication, shall be punished with imprisonment for a term which may extend to three years, or with fine which may extend to one hundred thousand rupees, or with both.

@@ -1,0 +1,4 @@
+104. Transfer of regulatory responsibility to a foreign aeronautical authority.— Notwithstanding any other provision of this .Act, on the recommendation of the Director General, the Secretary may, by agreement with an appropriate foreign aeronautical authority—
+(a) transfer to the aeronautical authority of the State of a foreign operator operating an aircraft registered in Pakistan, as the case may require, all or part of the responsibility that the Authority or the Director General has under this Act towards that aircraft;
+(b) vest in the Authority or the Director General, as the case may require, all or part of the responsibility under this Act towards an aircraft registered outside Pakistan but operated by a Pakistani operator; and
+(c) with the approval of the Minister, grant any exemption from one or more provisions of this Act in relation to the exercise of power under this section.

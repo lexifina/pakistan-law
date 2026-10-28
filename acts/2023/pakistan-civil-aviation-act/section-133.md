@@ -1,0 +1,1 @@
+133. Summary trial for certain offences.—A Magistrate of the first class may try any offence other than an offence under section 116, 117, 118 or 119 in a summary manner and may impose any amount of fine under this Act.

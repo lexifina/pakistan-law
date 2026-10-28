@@ -1,0 +1,3 @@
+24. Borrowing by the Authority.—(1) The Federal Government may pay any sum to the Authority by way of loan on such terms and conditions as the Federal Government may determine.
+(2) The Authority may also, with the previous general or special approval of the Federal Government, borrow money from a bank or any other source or means including by way of issuance of bonds, debentures or such other instruments, for the due discharge any of its functions and duties.
+(3) Subject to such limits as the Federal Government may impose, the Authority may borrow temporarily by way of overdraft or otherwise such amounts as it may require for the due discharge of its functions and duties.

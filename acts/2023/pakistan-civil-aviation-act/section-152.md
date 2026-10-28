@@ -1,0 +1,1 @@
+152. Repeal of Ordinance XXXII of 1960 and Ordinance XXX of 1982.—On the coming into force of this Act and the Pakistan Airports Authority Act, 2023, the Civil Aviation Ordinance, 1960 (XXXII of 1960) and the Pakistan Civil Aviation Ordinance, 1982 (XXX of 1982) shall be repealed.

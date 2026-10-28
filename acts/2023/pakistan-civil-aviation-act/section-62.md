@@ -1,0 +1,5 @@
+62. Application for the grant of an air service licence.—(1) Every application for the grant of an air service licence shall be made to the Director General in such form and in such manner as may be prescribed by the rules.
+(2) There shall be no bar to two or more persons acting together either as operator or intended operator to jointly apply for air service licence under this section.
+(3) No application shall be considered unless it is complete and accompanied by a receipt of payment of such fee as may be prescribed by the regulations.
+(4) As soon as may be, but not later than thirty days of its receipt, the Director General shall make a determination as to whether the application is complete and if it suffers from any defect, require the applicant to supplement or rectify the defect and resubmit it by a given date.
+(5) If he is not the authority to grant the air service licence applied for, the Director General shall submit the application before the appropriate licensing authority for consideration as soon as it is complete.

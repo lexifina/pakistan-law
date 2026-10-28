@@ -1,0 +1,2 @@
+29. Budget.—(1) The Director General shall, well before the commencement of a financial year and in the manner as may be prescribed by the rules, prepare annual budget of the Authority and place it before the Board for approval.
+(2) The budget shall include a statement showing estimate of sums likely to be received by the Authority and the sums required to meet recurrent and capital expenditure during the next financial year and actual income and expenditure of the Authority during the outgoing financial year or during any past period.

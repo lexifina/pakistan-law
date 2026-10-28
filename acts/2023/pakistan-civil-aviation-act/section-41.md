@@ -1,0 +1,14 @@
+41. Suspension etc. of aviation documents.—(1) The Director General may suspend, in whole or in part, or impose one or more conditions on an aviation document if he considers that it is necessary to do so—
+(a) in the interests of aviation safety and security;
+(b) to secure compliance with any provision of this Act, rules or regulations;
+(c) as the holder of the document has failed to comply with any of its conditions or requirements;
+(d) as the holder has obtained the document while he was disqualified for holding it, or on the basis of an information which he knew to be false;
+(e) as the holder had failed to disclose any information that he knew to be materially relevant to the exercise of powers of the Director General under section 36; and
+(f) as the privileges conferred or the duties imposed upon the holder, have been, or are being, carried out in a careless, unsafe, insecure or incompetent manner.
+(2) Without prejudice to the provision of sub-section (1), the Director General may also—
+(a) suspend an aviation document relating to the use of an aircraft or an aeronautical product, or impose one or more conditions, if he considers that there is a reasonable doubt about the airworthiness of the aircraft or the quality or safety of the aeronautical product;
+(b) suspend an aviation document relating to the provision of an aviation service, or impose one or more conditions, if he considers that there is reasonable doubt about the quality or safety of the service; or
+(c) suspend an aviation document for which any fee, charge, or levy payable under this Act, rules or regulations is not paid by the fixed date.
+(4) The suspension of an aviation document and any condition imposed under this section shall expire thirty working days after the date on which it was affected or imposed unless, the Director General, before the expiry of this period, extends the suspension or the condition further for a reasonable specified period or until corrective action, if any, determined in terms of section 97 is taken by the holder of the document.
+(5) Unless the Director General considers that it is necessary to immediately suspend an aviation document or to immediately impose a condition in the interest of aviation safety or security or to ensure compliance with any provision of this Act, rules or regulation, the Director General shall not suspend a document or impose a condition unless he has given to the holder of the document a reasonable opportunity of being heard through a written notice mentioning the grounds of the proposed action and specifying a date by which he may make any submission to the Director General, which shall in no case be less than thirty days following the day on which the notice is issued.
+(6) Every person whose aviation document has been suspended or made subject to a condition under this section shall, immediately surrender it before the Director General for appropriate endorsement.

@@ -1,0 +1,16 @@
+79. Prohibition and regulation of certain construction etc.—(1) If the Federal Government is of opinion that it is necessary or expedient in the interest of safety and security of operation of aircraft, it may, by notification in the official Gazette direct that—
+(a) no building or structure shall be constructed or erected, and no tree shall be planted on any land within such radius of the airport not exceeding fifteen kilometers, as may be specified in the notification; and
+(b) no building or structure higher than such height as may be specified in the notification shall be constructed or erected, or any tree, which is likely to grow or ordinarily grows taller than such height as may be specified in the notification, shall be planted, on any land within such radius of the airport, not exceeding fifteen kilometers, as may be specified in the notification.
+(2) In specifying the radius and the height of any building, structure or tree under sub-section (1), the Federal Government shall have regard to—
+(a) the nature of requirement for the safety of aircraft operations;
+(b) the nature of the aircraft operating, landing or taking off, or likely to be operated, landing or taking off at or from the airport; and
+(c) the international standards and recommended practice in relation to the operations, landing and taking off of the aircraft.
+(3) Where any notification has been issued under sub-section (1) the respective building control authority shall—
+(a) abstain from granting permission for the construction of a building or erection of a structure in disregard to the provision of the notification; and
+(b) abide by any direction issued by the Director General under sub- section (4).
+(4) If the Director General considers it necessary to do so in the interest of securing compliance with the notification, he may—
+(a) direct the respective building control authority not to grant permission for the construction of a building, or erection of a structure which is likely to contravene one or more provisions of the notification, or to cancel any such permission issued by them;
+(b) direct the owner or person in-charge of the said building, structure or tree to do or not to do one or more things by a specified date or for a specified duration; and
+(c) direct the respective building control authority and the airport manager to take one or more specified measures including removal of the whole or a part of the building or structure or cutting of the tree, if the owner or person in-charge fails to comply with the aforesaid directions.
+(5) On the request of the airport manager, an officer of the Federal Investigation Agency, Airports Security Force or of the local police to whom this request is directed, shall, without unreasonable delay, render assistance for the purpose of this section.
+(6) The Director General shall not pass a direction under sub-section 4 unless he has given to the owner or person in-charge of the building, structure or tree a reasonable opportunity of being heard through a written notice mentioning the grounds of the proposed action and specifying a date by which he may make any submission before him., which shall in no case be less than fifteen days following the day on which the notice is issued.

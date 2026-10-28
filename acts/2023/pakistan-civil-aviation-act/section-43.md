@@ -1,0 +1,7 @@
+43. Matters to be considered for suspending or revoking an aviation document etc.—(1) The Director General shall, among other things, have regards to the following matters when determining as to whether an aviation document may be suspended or revoked in whole or in part, or whether a condition shall be imposed permanently—
+(a) the history of document holder’s compliance with the provisions of this Act, rules and regulations and aviation safety and security requirements within or outside Pakistan in general;
+(b) any prosecution, conviction or sentencing of the document holder under this Act, or an offence relating to aviation safety or security under any other law within or outside Pakistan, whether such offence was committed, or prosecution, was initiated and conviction or sentencing was announced prior to the coming into force of this Act; and
+(c) the history of suspension or revocation of the aviation document or any other aviation document held by the holder or imposition of any condition on such document or the other document, and if so, the instances of and reasons for such suspension, revocation or imposition of conditions whether these were affected or imposed prior to the coming into force of this Act.
+(2) For the purpose of this section, the Director General may—
+(a) seek and receive any information that he thinks fit; and
+(b) consider the information obtained from any source.
