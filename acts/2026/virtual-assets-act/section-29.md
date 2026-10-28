@@ -1,0 +1,1 @@
+29. Customer safeguard or compensation mechanism.—The Authority may, establish a customer-compensation or safeguard mechanism for losses arising from custodial failure, in such manner as may be prescribed by Regulations.

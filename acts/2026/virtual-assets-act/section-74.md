@@ -1,0 +1,1 @@
+74. Savings.—Notwithstanding the lapse of the Virtual Assets Ordinance, 2025 (VII of 2025), anything done, action taken, appointment made, notification or order Issued, or right, privilege, obligation or liability accrued under the said Ordinance shall be deemed to have been validly done, taken, made, issued or accrued under the corresponding provisions of this Act.

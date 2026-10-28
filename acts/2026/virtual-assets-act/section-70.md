@@ -1,0 +1,3 @@
+70. Transitional provisions.—(1) Any Person providing Virtual Asset Services Immediately before the commencement of this Act shall, within six months of such commencement, apply to the Authority for a license under this Act or shall cease to provide such services.
+(2) After the commencement of this Act, within six months, a Person who has submitted a complete application as per sub-section (1) may continue to provide existing Virtual Asset Services:
+Provided that such Person fully complies with any interim directives issued by the Authority and continues to adhere to the core obligations of this Act, particularly regarding customer asset protection under AML, CFT and CPF.

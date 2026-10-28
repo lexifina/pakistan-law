@@ -1,0 +1,1 @@
+69. Officers to be Public Servants.—The Chairperson, Managing Director, members, staff, experts; consultants, advisers, other officers and employees of the Authority shall be deemed to be public servants within the meaning of section 21 of the Pakistan Penal Code; 1860 (XLV of 1860).

@@ -1,0 +1,1 @@
+60. Emergency intervention powers.—In the event of a systemic threat, market manipulation, fraud, or cybersecurity breach, or other serious risk to customers or market Integrity, the Authority may issue an order temporarily suspending specified Virtual Asset Services or freezing related assets for a period not exceeding thirty days.

@@ -1,0 +1,2 @@
+33. Significant issuers.—(1) An Issuer shall be deemed a Significant Issuer if it meets the thresholds and criteria prescribed by Regulations, having regard to size, scale, systemic importance, market impact, number of holders, and cross-border activity.
+(2) Significant Issuers shall be registered with the Authority and shall comply with enhanced requirements, including reporting, disclosure, governance, and risk management, as prescribed in Regulations.

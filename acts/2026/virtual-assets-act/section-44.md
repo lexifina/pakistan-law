@@ -1,0 +1,1 @@
+44. Conflict-of-interest management.—A Licensee shall identify, manage, and disclose conflicts of interest and shall not place its own interests above those of its customers, in accordance with detailed requirements on policies, disclosure, and management as may be prescribed by the Authority by Regulations.

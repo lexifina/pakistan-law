@@ -1,0 +1,1 @@
+65. Appeal to Supreme Court.—Any Person aggrieved by an order of the Virtual Assets Appellate Tribunal may file an appeal to the Supreme Court of Pakistan within thirty days from the date of such order and in such manner as may be prescribed.

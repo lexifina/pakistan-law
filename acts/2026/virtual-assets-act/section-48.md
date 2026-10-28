@@ -1,0 +1,2 @@
+48. Real-time data access and reporting.—(1) Licensees shall establish secure reporting channels, and where required secure automated interfaces, enabling the Authority and such other agencies as notified to access prescribed data for supervisory and enforcement purposes.
+(2) The Authority shall prescribe, by Regulations, the technical standards, security requirements and data specifications for the reporting and interfaces referred to in subsection (1).

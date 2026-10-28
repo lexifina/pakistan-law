@@ -1,0 +1,1 @@
+53. Prohibition on Algorithmic tokens.—No Person shall issue, offer, or market a Virtual Asset whose primary mechanism for maintaining value is algorithmic and not fully or adequately collateralized, unless specifically permitted by Regulations and subject to the safeguards prescribed therein.

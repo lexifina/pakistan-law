@@ -1,0 +1,2 @@
+27. Proof-of-reserves and audit obligations.—(1) A Licensee shall furnish to the Authority, at such intervals as may be Prescribed by Regulations, cryptographic proof-of-reserves reconciled against its liabilities to customers.
+(2) A Licensee shall cause its operations to be audited annually by a firm of Chartered Accountants approved by the Division concerned. Such audit shall include a verification of the segregation of Customer Assets as required under section 24.

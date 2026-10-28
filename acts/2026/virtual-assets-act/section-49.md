@@ -1,0 +1,1 @@
+49. Data Privacy Obligations for Licensed entities.- Each licensee shall implement strict limits on the collection, use, and sharing of customer data, requiring explicit, informed, and revocable consent for any non-essential data processing.

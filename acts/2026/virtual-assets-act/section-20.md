@@ -1,0 +1,6 @@
+20. Fit-and-proper criteria.—(1) The Authority shall determine whether a Controller, Sponsor, Chief Executive Officer and Director is fit and proper in accordance with criteria prescribed by Regulations.
+(2) The fit-and-proper criteria shall apply to all Key Individuals. It shall be the responsibility of the applicant for a license or the licensee to assess and maintain the fitness and propriety of other key individuals not mentioned in sub-section (1), and to submit a written undertaking to the Authority confirming compliance and ongoing maintenance thereof.
+(3) The Authority may refuse, suspend or revoke a license where any Controller, Sponsor or Key Individual fails to meet the prescribed fit-and-proper criteria.
+(4) Fit-and-proper criteria shall be continuing in nature, and any person subject to such criteria shall notify the Authority of any matter that may affect their fitness and propriety.
+(5) The Authority shall prescribe additional requirements for corporate Controllers, including assessment of the corporate behaviour, integrity and track record of Controller and ultimate beneficial owners.
+(6) Every Licensee shall maintain a registered office in Pakistan and ensure that at least one Key Individual ordinarily resident in Pakistan is vested with operational and decision-making authority subject to conditions prescribed.
