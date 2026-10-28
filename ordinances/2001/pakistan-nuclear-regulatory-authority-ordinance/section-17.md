@@ -1,0 +1,2 @@
+17. Directives, orders and instructions from the Federal Government.__ (1) The Federal Government may, from time to time, issue to the Authority such directives and orders as it may consider necessary for carrying out the purposes of this Ordinance and the Authority shall follow and carry out such directives and orders.
+(2) In discharging its functions, the Authority shall be bound by such instructions, if any, as may be given to it on any question of policy by the Federal Government which shall be the sole judge as to whether a question is a question of policy.

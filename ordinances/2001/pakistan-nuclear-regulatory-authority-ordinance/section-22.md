@@ -1,0 +1,1 @@
+22. Authorization prior to radioactive waste discharge and disposal.___ No person shall discharge, or dispose of; radioactive waste to the environment without first obtaining an authorization for the purpose from the Authority as may be prescribed by regulations.

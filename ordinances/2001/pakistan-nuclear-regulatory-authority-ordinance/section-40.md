@@ -1,0 +1,4 @@
+40. Appointment of officers, employees and consultants.__ (1) Subject to the provisions of sub-section (3), the Authority may appoint such officers, employees and consultants as it may consider necessary for the efficient performance of its functions on such terms and conditions as it may deem fit.
+(2) The Authority may also borrow the services of officers, employees and consultants of other organizations on ouch terms and conditions as may be mutually settled between the lending organization and the Authority.
+(3) The method and procedure of appointment and the terms and conditions of service of officers and employees shall be regulated by rules to be made with the prior approval of the Federal Government under Section 55:
+Provided that till such time such Rules are made under Section 55, the PAEC Service Regulations as amended from time to time shall, mutatis mutandis regulate appointments of officers and employees and the terms and conditions of their Service.

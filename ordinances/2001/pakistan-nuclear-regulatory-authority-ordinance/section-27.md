@@ -1,0 +1,1 @@
+27. Control of contaminated foodstuff.__ No person shall sell, distribute or otherwise dispose of foods that have been contaminated by material producing ionizing radiation except as may be prescribed by regulations.

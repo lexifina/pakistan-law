@@ -1,0 +1,1 @@
+37. Re-adjustment.__ Any person suffering nuclear damage, who has brought an action for compensation within the period specified in section 36 may amend his claim to take into account any aggravation of the damage, even after the expiry of that period, provided the final judgement has not been entered.

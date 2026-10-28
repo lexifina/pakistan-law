@@ -1,0 +1,1 @@
+51. Declaration of fidelity and secrecy.__ The chairman, every member, adviser, consultant, officer or any other employee of the Authority shall, before entering upon his duties, shall make declaration of fidelity and secrecy as may be prescribed by rules.

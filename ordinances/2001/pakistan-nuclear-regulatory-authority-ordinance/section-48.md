@@ -1,0 +1,1 @@
+48. Power to exempt.__ The Authority may, by notification in the official Gazette, exempt any activity, person, class of persons, quantity of a nuclear substance or radiation facility, temporarily or permanently, from the application of all, or any of, the provisions of this Ordinance subject to such conditions, as it may specify in the notification.

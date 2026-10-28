@@ -1,0 +1,2 @@
+15. Appointment of advisers and consultants.__ (1) The Authority may employ suitably qualified advisers and consultants to transact any business or to do any act required to be transacted or done in exercise of its powers or performance of its functions under this Ordinance.
+(2) The decision to employ and the terms and conditions of employment under sub- section (1) shall be made by the Authority as it may deem fit.

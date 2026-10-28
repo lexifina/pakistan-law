@@ -1,0 +1,1 @@
+10. Filling of a casual vacancy.___ A casual vacancy in the office of the Chairman or a member shall be filled by the appointment of another Chairman or, as the case may be, member for the remaining term of office of his predecessor.

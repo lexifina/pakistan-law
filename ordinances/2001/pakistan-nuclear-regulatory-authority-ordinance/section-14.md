@@ -1,0 +1,2 @@
+14. Advisory Committees.__ (1) The Authority may, from time to time, constitute such Advisory Committees, from amongst its members or other suitably qualified persons, for assisting the Authority in the performance of its functions generally, or for advising on or evaluating any particular nuclear or radiation safety aspect.
+(2) An Advisory Committee constituted under sub-section (1) shall perform such functions as may be prescribed by regulations

@@ -1,0 +1,1 @@
+18. Delegation of powers. The Authority may, by general or special order in writing, direct that any of its powers, shall, in such circumstances and under such conditions, if any, as may be specified in the order, be exercisable also by the Chairman, a member or officer of the Authority.

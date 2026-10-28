@@ -1,0 +1,2 @@
+20. Power to grant authorization.____(1) The Authority may, on application made to it accompanied by such fee, information and documents, as may be prescribed by regulations, grant an authorization for carrying out of such activities as are specified in the authorization for such period as it tray specify.
+(2) The Authority may specify terms and conditions that may he attached to an authorization.

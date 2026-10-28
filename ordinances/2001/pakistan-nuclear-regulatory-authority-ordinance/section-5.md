@@ -1,0 +1,1 @@
+5. Chairman.__ The Chairman shall be the Chief Executive Officer of the Authority and shall, subject to the provisions of this Ordinance, the rules and regulations, be responsible for the day to day administration of the affairs of the Authority
