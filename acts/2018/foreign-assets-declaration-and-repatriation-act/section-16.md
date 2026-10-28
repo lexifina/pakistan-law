@@ -1,0 +1,1 @@
+16. Misrepresentation.—Notwithstanding anything contained in this Act, where a declaration has been made by misrepresentation or suppression of facts, such declaration shall be void and shall be deemed never to have been made under this Act.

@@ -1,0 +1,2 @@
+11. Incorporation in books of account.— (1) Where a declarant has paid tax under section 8 in respect of foreign assets declared under section 5, the declarant shall be entitled to incorporate in his books of account such foreign assets.
+(2) For the purpose of the Income Tax Ordinance, 2001 (XLIX of 2001), the cost of acquisition of foreign assets and date of acquisition shall be deemed to be the value declared by the declarant and the date on which declaration has been made by the declarant, respectively.
