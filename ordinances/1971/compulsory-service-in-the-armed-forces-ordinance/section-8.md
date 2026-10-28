@@ -1,0 +1,4 @@
+[^17][8. Procedure for seeking exemption.—(1) If a person to whom a notice or direction under subsection (1) of section 4 has been issued seeks exemption from service under this Act, he shall first report to the Interview Board or, as the case may be, Inducting Authority, at the time, date and place specified in the call up notice or direction and then submit a written representation to the Chairman, Interview Board, or, as the case may be, Inducting Authority, whose decision shall be final.
+(2) An ex-serviceman desirous of seeking exemption from service under this Act may make a representation to the Service Headquarters concerned, whose decision shall be final.]
+
+[^17]: Subs. by the Compulsory Service in the Armed Forces (Amdt.) Act, 1976 (XXXVI of 1976), s. 8, for the original section 8.
