@@ -1,0 +1,1 @@
+9. Officers to be deemed to be public servants.—Every person authorised under section 5 shall be deemed to be a public servant within the meaning of section 21 of the Pakistan Penal Code (Act XLV of 1860).
