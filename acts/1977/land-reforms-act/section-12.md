@@ -1,0 +1,1 @@
+12. Compensation for permanent installations, structures and buildings. Compensation for permanent installations and structures including buildings and tubewells on land surrendered under this Act, shall be determined and paid by the Federal Government on the basis of actual cost incurred subject to such scale of depreciation as may be prescribed.

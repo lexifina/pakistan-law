@@ -1,0 +1,1 @@
+10. Permanent installations and structures. Permanent installations and structures, including buildings and tubewells on land surrendered under section 9, shall not be removed, damaged, dismantled or demolished, and shall vest in Government alongwith such land, free of any encumbrance or charge.

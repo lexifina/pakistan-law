@@ -1,0 +1,1 @@
+25. Abatement of pending proceedings. All proceedings pending before the Federal Land Commission shall, on commencement of this Act, stand abated unless the Federal Government directs otherwise in a case or class of cases.

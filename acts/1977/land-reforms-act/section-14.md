@@ -1,0 +1,2 @@
+14. Transfer of encumbrance or charge. Any encumbrance or charge .existing on land surrendered by a person or on permanent installations and structures including tubewells on such land, shall be deemed to be an encumbrance or charge on land retained by him under this Act:
+Provided that if the encumbrance or charge exceeds the value of the land left with a person, it shall to the extent of such excess, be deemed to be an encumbrance or charge on the bonds payable to him as compensation.

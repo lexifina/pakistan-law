@@ -1,0 +1,2 @@
+27. Powers of the Federal Government. The Federal Government may, at any time, of its own motion or otherwise, take cognizance of a case not taken up by a Commission or withdraw a case pending before a Commission or call for a case decided by a Commission or any authority empowered by a Commission in this behalf, and pass such order as it may deem necessary and the order so passed shall be final:
+Provided that no order, under this section, shall be passed, adversely affecting the rights of any person, unless such person has been given an opportunity of being heard.

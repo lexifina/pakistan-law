@@ -1,0 +1,1 @@
+20. Power to set up organizations, etc. A Commission may set up such organizations and appoint such authorities, officers and staff and confer such powers upon, and assign such duties to them as it may deem necessary for the purposes of this Act.
