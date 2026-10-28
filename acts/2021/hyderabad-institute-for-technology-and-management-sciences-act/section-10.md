@@ -1,0 +1,1 @@
+10. Visitation.—The Chancellor may cause an inspection or inquiry to be made in respect of any matter connected with the affairs of the Institute and shall, from time to time, direct any person or persons as he may deem fit to inquire into or carry out inspection.

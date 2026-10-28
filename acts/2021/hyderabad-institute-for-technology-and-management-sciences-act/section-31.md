@@ -1,0 +1,4 @@
+31. Service of the Institute.—(1) All persons employed by the Institute in accordance with the terms and conditions of service prescribed by Statutes shall be persons in the service of Pakistan for the purposes of any court or tribunal set up by law in terms of Article 212 of the Constitution of the Islamic Republic of Pakistan:
+Provided that any provision as regards the terms and conditions of employment of persons in the service of Pakistan in general or in comparable
+employment notwithstanding the service of persons employed by the Institute shall be entirely governed by the terms and conditions prescribed by the relevant Statutes.
+(2) An officer, teacher or other employees of the Institute shall retire from service on the attainment of such age or tenure of service as may be prescribed.

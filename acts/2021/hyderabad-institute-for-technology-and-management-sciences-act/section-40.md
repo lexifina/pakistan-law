@@ -1,0 +1,3 @@
+40. Power to allow appointment of employees of the Government, other universities
+or educational or research institutions to the Institute.— (1) Notwithstanding anything contained in this Act, the Board may on advice of the Finance and Planning Committee, allow any post in the Institute to be filled in by appointment, on such terms as the Board may specify, an employee of the Government or any other institute or educational or research institution.
+(2) Where any appointment has been made under this section, the terms and conditions of service of the appointee shall not be less favorable than those admissible to him immediately before such appointment and he shall be entitled to all benefits of his post of service.
