@@ -1,0 +1,1 @@
+3. Ordinance to override other laws, etc. The provisions of this Ordinance shall have effect notwithstanding anything contained in the Companies Act, 1913 (VII of 1913.), or any memorandum or articles of association or bye-laws.
