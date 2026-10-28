@@ -1,0 +1,1 @@
+5. Control of animals and animal products in quarantine. All animals and animal products detained in quarantine shall be under the control of the Quarantine Officer and shall be dealt with in the prescribed manner.

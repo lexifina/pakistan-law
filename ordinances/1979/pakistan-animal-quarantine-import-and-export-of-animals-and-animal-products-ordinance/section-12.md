@@ -1,0 +1,1 @@
+12. Exemption. The Federal Government may, by notification in the official Gazette, exempt any animal or animal product from the operation of all or any of the provisions of this Ordinance, subject to such conditions, if any, as may be specified in the notification.
