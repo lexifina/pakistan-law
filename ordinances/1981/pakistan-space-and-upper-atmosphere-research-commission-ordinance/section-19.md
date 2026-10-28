@@ -1,0 +1,1 @@
+19. Ordinance XXIII of 1969 not to apply to Commission. Nothing contained in the Industrial Relations Ordinance, 1969 (XXIII of 1969), shall apply to or in relation to the Commission or any of the officers and employees of the Commission.
