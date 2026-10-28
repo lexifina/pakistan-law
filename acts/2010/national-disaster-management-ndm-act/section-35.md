@@ -1,0 +1,1 @@
+35. Punishment for false warning.___ Whoever makes or circulates a false alarm or warning as to disaster or its severity or magnitude leading to panic shall be punishable with imprisonment which may extend to one year or with fine.

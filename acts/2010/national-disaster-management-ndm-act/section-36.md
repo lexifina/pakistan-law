@@ -1,0 +1,2 @@
+36. Failure of officer in duty or his connivance at the contravention of the provisions
+of this Act.___ Any officer, on whom any duty has been imposed by or under this Act and who refuses to perform or withdraws himself from the duties of his office shall, unless he has obtained the express written permission of his official superior or has other lawful excuse for so doing, be punishable with imprisonment for a term which may extend to one year or with fine.

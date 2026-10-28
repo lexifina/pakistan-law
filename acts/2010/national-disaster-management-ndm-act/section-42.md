@@ -1,0 +1,1 @@
+42. Bar of jurisdiction.__ No court or tribunal shall have jurisdiction to entertain any suit or proceeding in respect of anything done, action taken, orders made, direction, instruction or guidelines issued by the Federal Government, National Authority, Provincial or District Authority in pursuance of any power conferred by, or in relation to its functions, by this Act.

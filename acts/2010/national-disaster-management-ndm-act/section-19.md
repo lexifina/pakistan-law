@@ -1,0 +1,1 @@
+19. Powers of Chairperson of District Authority.__ The Chairperson of the District Authority shall, in the case of an emergency, have power to exercise all or any of the powers of the District Authority but the exercise of such powers shall be subject to ex-post facto approval of the District Authority.

@@ -1,0 +1,1 @@
+45. Delegation of powers to the National Authority.__ The Commission may, for effective implementation of the national policy on disaster management, by general or special order delegate to the National Authority any of its powers or functions under this Act, subject to such conditions as it may think fit to impose.

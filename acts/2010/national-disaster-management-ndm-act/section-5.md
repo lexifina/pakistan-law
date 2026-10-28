@@ -1,0 +1,1 @@
+5. Appointment of officers and other employees of the National Commission.__ The Federal Government shall provide the National Commission with such officers, consultants and employees, as it considers necessary for carrying out its functions.

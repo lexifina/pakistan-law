@@ -1,0 +1,1 @@
+24. Provincial Government to take measures.__ Subject to the provisions of this Act, each Provincial Government shall take all measures specified in the guidelines laid down by the National Authority and such further measures as it deems necessary or expedient for the purpose of disaster management.
