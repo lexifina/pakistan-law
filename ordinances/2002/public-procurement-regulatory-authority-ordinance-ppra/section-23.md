@@ -1,0 +1,1 @@
+23. Indemnity.⸻ No suit, prosecution, or other legal proceedings shall lie against the Authority, the Board, the Chairperson or any member, officer, servants, advisers or consultants of the Authority in respect of anything in good faith done or intended to be done under this Ordinance or the rules and regulations made thereunder.

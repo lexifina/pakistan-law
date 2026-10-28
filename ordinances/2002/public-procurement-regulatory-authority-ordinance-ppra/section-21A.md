@@ -1,0 +1,2 @@
+[21A. Ordinance not to apply to certain bodies corporate, etc.⸻(1) Notwithstanding anything contained in this Ordinance the provisions thereof shall not apply to a body corporate, company, institution undertaking or establishment specified in the Schedule to this Ordinance, which has been privatized pursuant to the Privatization Commission Ordinance, 2000 (LII of 2000).
+(2) The Federal Government may, by notification in the official Gazette, amend the Schedule so as to add any entry thereto, modify or omit any entry therein.]

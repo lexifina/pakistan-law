@@ -1,0 +1,1 @@
+25. Winding up.⸻ No provision of law relating to winding up of bodies corporate shall apply to the Authority and the Authority shall not be wound up except by the orders of the Federal Government in the same manner as the Federal Government may direct.

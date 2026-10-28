@@ -1,0 +1,1 @@
+17. Annual report.⸻ Within one hundred and twenty days from the end of each financial year, the Authority shall cause a report to be prepared on its activities including inquiries and investigations made by the Authority under this Ordinance during that financial year and release to the public after it has been seen by the Cabinet.

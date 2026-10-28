@@ -1,0 +1,1 @@
+27. Power of the Authority to make regulations.⸻ The Authority may make regulations, not inconsistent with the provisions of this Ordinance and the rules made thereunder, for carrying out the purposes of this Ordinance.
