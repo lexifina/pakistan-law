@@ -1,0 +1,2 @@
+17. Evaluation of abandoned property.—(1) The Administrator may determine the value of any property of which possession has been taken by him or empower any officer to do so.
+(2) If it appears to the Board in any case that the value of any property determined under sub-section (1) is not proper, it may make necessary enquiry an the matter and pass such orders as it may think proper and the orders so passed shall be final.

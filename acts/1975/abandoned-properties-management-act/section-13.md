@@ -1,0 +1,6 @@
+13. Confirmation of transfers by specified persons.—(1) No creation or transfer of any right or interest in or encumbrance upon any property made in any manner whatsoever on or after the sixteenth day of December, 1971, by or on behalf of a specified person shall be effective so as to confer any right or remedy on any party thereto or on any person claiming under any such party, unless it is confirmed by the Administrator.
+(2) An application for confirmation of such creation of any right or encumbrance or transfer as aforesaid as may be made to the Administrator within the prescribed period by any party thereto, or by any person claiming under or lawfully authorised by such party.
+(3) The Administrator shall hold a summary inquiry into the application in the prescribed manner and may reject the application if he is of opinion that the creation or transfer—
+(i) was not or has been entered into in good faith or for adequate consideration; or
+(ii) ought for any other reason not to be confirmed.
+(4) If the application is not rejected under sub-section (3), the Administrator may, with the prior approval of the Board, confirm the creation or transfer either unconditionally or subject to such terms and conditions as he thinks fit to impose.
