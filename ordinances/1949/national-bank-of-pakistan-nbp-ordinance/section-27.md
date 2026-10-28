@@ -1,0 +1,4 @@
+## CHAPTER VI
+## MISCELLANEOUS
+27. Auditors.___(1) Not more than two auditors who shall be Registered Accountants shall be elected and their remuneration fixed at the general meeting. The auditors may be shareholders, but no Director or Member or other officer of the Bank shall be eligible during his continuance in office. Any auditor shall be eligible on quitting office for re-election.
+(2) The first auditors of the Bank may be appointed and their remuneration fixed by the Central Board before the general meeting and if so appointed shall hold office only until the first general meeting. All auditors elected under this section shall severally be and continue to act as auditors until the first general meeting after their respective elections: Provided that if any casual vacancy occurs in the office of any auditor elected under this section, the vacancy may be filled by the Central Board.

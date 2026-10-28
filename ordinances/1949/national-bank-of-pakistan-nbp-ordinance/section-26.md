@@ -1,0 +1,11 @@
+26. Business which the Bank is not authorised to transact.___The Bank shall not transact any kind of banking business other than those specified in section 25, and in particular___
+[^88][(1) the Bank shall not make any advance or loan upon the security of its shares;] [^89][* * * * * * *] (2) the Bank shall not discount or buy or advance or lend to any individual or partnership-firm an amount exceeding in the whole at any one time such sum as may be prescribed;
+(3) the Bank shall not discount or buy or advance or lend or open cash-credits on the security of any negotiable instrument of any individual or partnership-firm, payable in the town or at the place where it is presented for discount, which does not carry on it the several responsibilities of at least two persons or firms unconnected with each other in general partnership:
+Provided that nothing in this section shall be deemed to prevent the Bank from [^90][granting overdrafts and loans], without security, to such extent as may be prescribed [^91][;]
+[^91][(4) the Bank shall not grant to any person who has been elected or appointed as a Director or Member and for so long as he continues to hold that office any advance, loan, credit limit, guarantee or other facilities, or alter to his advantage the terms and conditions of any advance, loan, credit limit, guarantee or other facilities granted before his election or appointment as a Director or Member :
+Provided that nothing in this clause shall prevent the Bank from continuing or renewing any such advance, loan, credit limit, guarantee or other facilities as may have already been granted to such person before his election or appointment as a Director or Member.].
+
+[^88]: Subs. by the National Bank of Pakistan (Amdt.) Ordinance, 1970 (14 of 1970), s. 8. for original sub-section. (1)
+[^89]: The original sub-clause (c) omitted, by the National Bank of Pakistan (Amdt.) Ordinance, 1960 (52 of 1960), s. 15.
+[^90]: Subs. by the National Bank of Pakistan (Amdt.) Ordinance, 1960 (52 of 1960), s. 15, for “allowing any person who keeps an account with the Bank of overdraw such account”.
+[^91]: Subs. and added by the National Bank of Pakistan (Amdt.) Ordinance, 1970 (14 of 1970), s. 8.

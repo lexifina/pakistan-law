@@ -1,0 +1,4 @@
+22. General and Special meetings.___(1) In the first week of March in every year, or as soon thereafter as is convenient, a general meeting shall be held annually in rotation at the towns where the Local Boards are established, at such time as may be determined by the Central Board and at the meeting the [^68][shareholders present shall be entitled to discuss the annual account, the report of the Central Board on the working of the Bank throughout the year, and the auditors report on the annual balance sheet and accounts, made up to the preceding thirty-first day of December]. Provided that the first general meeting shall be held at Karachi.
+(2) Special meetings shall be convened and held in such manner and at such time and place as may be prescribed.
+
+[^68]: Subs. ibid., s. 12, for certain original words.
