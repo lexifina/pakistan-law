@@ -1,0 +1,2 @@
+33M. Power to exclude children.___(1) The Provincial Government may make rules prohibiting the admission to any specified class of factories, or to specified parts thereof, of children who cannot be lawfully employed therein.
+(2) If it appears to the Inspector that the presence in any factory or part of a factory of children who cannot be lawfully employed therein may be dangerous to them or injurious to their health, he may serve on the manager of the factory an order in writing directing him to prevent the admission of such children to the factory or any part of it.

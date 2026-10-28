@@ -1,0 +1,2 @@
+33C. Pressure plant.___(1) If in any factory any part of the plant or machinery used in a manufacturing process is operated at a pressure above atmospheric pressure, effective measures shall be taken to ensure that safe working pressure of such part is not exceeded.
+(2) The Provincial Government may make rules providing for the examination and testing of any plant or machinery such as is referred to in sub-section (1) and prescribing such other safety measures in relation thereto as may, in its opinion, be necessary in any factory or class or description of factories.

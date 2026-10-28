@@ -1,0 +1,1 @@
+49G. Exemption of factories from the provisions of this Chapter.___Where the Provincial Government is satisfied that the leave rules applicable to workers in a factory provide benefits substantially similar to those for which this Chapter makes provision, it may, by written order, exempt the factory from the provisions of this Chapter.]

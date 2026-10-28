@@ -1,0 +1,1 @@
+49E. Power of Inspector to act for worker.___Any Inspector may institute proceedings on behalf of any worker to recover any sum required to be paid under this Chapter by an employer which the employer has not paid.

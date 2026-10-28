@@ -1,0 +1,2 @@
+33E. Pits, sumps, opening, in floors, etc.___(1) In every factory, every fixed vessel, sump, tank pit or opening in the ground or in a floor which by reason of its depth, situation, construction or contents, is or may be a source of danger, shall be either securely covered or securely fenced.
+(2) The Provincial Government may, by order in writing, exempt, subject to such conditions as may be imposed, any factory or class or description of factories in respect of any vessel sump, tank pit or opening from compliance with the provisions of this section.

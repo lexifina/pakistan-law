@@ -1,0 +1,1 @@
+57. Hours of work to correspond with Notice and Register.___No child shall be allowed to work otherwise than in accordance with the Notice of Periods for Work for Children displayed under sub-section (1) of section 55 and the entries made before hand against his name in the Register of Child Workers maintained under sub-section (1) of section 56.

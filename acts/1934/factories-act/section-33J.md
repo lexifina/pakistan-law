@@ -1,0 +1,3 @@
+33J. Power to make rules to supplement this Chapter.___The Provincial Government may make rules requiring that___
+(1) in any factory or in any class or description of factories, such further devices and measures for securing the safety of the persons employed therein as it may deem necessary shall be adopted ; and
+(2) work on a manufacturing process carried on with the aid of power shall not be begun in any building or part of a building erected or taken into use as a factory until a certificate of stability in the prescribed form and signed by a person possessing the prescribed qualifications has been sent to the Chief Inspector.

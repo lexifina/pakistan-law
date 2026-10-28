@@ -1,0 +1,3 @@
+33B. Revolving machinery.___(1) In every room in a factory in which the process of grinding is carried on there shall be permanently affixed to, or placed near, each machine in use a notice indicating the maximum safe working peripheral speed of every grind stone or abrasive wheel, the speed of the shaft or spindle upon which the wheel is mounted and the diameter of the pully upon such shaft or spindle necessary to secure such safe working peripheral speed.
+(2) The speeds indicated in the notice under sub-section (1) shall not be exceeded.
+(3) Effective measures shall be taken in every factory to ensure that the safe working peripheral speed of every revolving vessel, cage basket, flywheel, pulley disc or similar appliance driven by power is not exceeded.

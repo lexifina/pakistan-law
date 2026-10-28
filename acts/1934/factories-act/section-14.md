@@ -1,0 +1,2 @@
+14. Disposal of wastes and effluents.___(1) Effective arrangements shall be made in every factory for the disposal of wastes and effluents due to the manufacturing process carried on therein.
+(2) The Provincial Government may make rules prescribing the arrangements to be made under sub-section (1) or requiring that the arrangements made in accordance with that sub-section shall be subject to the approval of such authority as may be prescribed.

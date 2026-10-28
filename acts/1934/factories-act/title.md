@@ -1,0 +1,9 @@
+# THE FACTORIES ACT, 1934
+THE FACTORIES ACT, 1934
+[^1]ACT NO. XXV OF 1934
+[20th August, 1934]
+An Act to consolidate and amend the law regulating labour in factories.
+WHEREAS it is expedient to consolidate and amend the law regulating labour in factories ;
+It is hereby enacted as follows :___
+
+[^1]: The Act has been applied to Phulera in the Excluded Area of Upper Tanawal to the extent the Act is applicable in the N.W.F.P., subject to certain modifications, see N.W.F.P. (Upper Tanawal) (Excluded Area) Laws Regulation, 1950, and extended to the Excluded Area of Upper Tanawal (N.W.F.P.) other than Phulera with effect from such date and subject to such modifications as may be notified, see N.W.F.P. (Upper Tanawal) (Excluded Area) Laws Regulation, 1950. The Act in its application in the Punjab has been amended by Factories (Punjab Amdt.) Act, 1940 (Punjab 7 of 1940), in N.W.F.P., by the Factories (North- West Frontier Province Amdt.) Act, 1940 (N.W.F.P.7 of 1947), ___ This Act has been extended to the (i) Leased Areas of Baluchistan, see the Leased Areas (Laws) Order, 1950 (G.G.O.3 of 1950); and also applied in the Federated Areas of Baluchistan, see Gazette of India, 1937, Pt.I, p.1499; (ii) Baluchistan States Union, see the Baluchistan States Union (Federal Laws) (Extension) Order, 1953 (G.G.O.4 of 1953), as amended; (iii) Khairpur State, see G.G.O.5 of 1953, as amended; and (iv) State of Bahawalpur by the Bahawalpur (Extension of Federal Laws) Order, 1953 (G.G.O.11 of 1953), as amended. The Act has been and shall be deemed to have been brought into force in Gwadur, (w. e. f. the 18th September, 1958), by the Gwadur (Application of Central Laws) Ordinance, 1960 (37 of 1960),s.2 The Act has been applied to the Provincially Administrated Tribal Areas or to the parts or those areas to which it does not already, apply see Regulation No. I of 1972, s.2 and Sch.
