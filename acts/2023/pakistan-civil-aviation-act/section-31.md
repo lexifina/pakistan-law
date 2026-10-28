@@ -1,0 +1,1 @@
+31. Maintenance of accounts.—The Authority shall maintain proper accounts and other relevant records and prepare an annual statement of accounts including the profit and loss account and the balance-sheet in such form as may be directed by the Federal Government in consultation with the Auditor General of Pakistan.

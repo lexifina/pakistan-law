@@ -1,0 +1,3 @@
+119. Willfully destroying or damaging an aircraft.— Whoever—
+(a) willfully destroys an aircraft in service or willfully causes damage to such an aircraft, which renders it incapable of flight or causes damage to it, which is likely to endanger its safety; or
+(b) willfully places on an aircraft in service, by any means whatsoever, a device or substance which is likely to destroy that aircraft or to cause damage to it, render it incapable of flight or endanger its safety shall be punished with imprisonment of either description for a term which may extend to fifteen years or with fine which may extend to one million rupees, or with both.

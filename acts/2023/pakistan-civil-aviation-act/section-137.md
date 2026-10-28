@@ -1,0 +1,7 @@
+137. Complaints to the Authority.—(1) Any person aggrieved from any act or omission of an operator or service provider may complain to the Director General.
+(2) The Director General may require the operator or service provider to make a serious effort to address the said grievance within such period as may be specified by the regulations in view of seriousness and complexity of the matter complained against and inform the complainant and the Director General.
+(3) Where the information mentioned at sub-section (2) is not received, or the aggrieved person is not satisfied with the effort of the operator or service provider, and the Director General views that the complaint merits further action, he may—
+(a) direct the operator or service provider to take such measures as he considers necessary or incidental to redress the grievance, including payment of a reasonable compensation to the aggrieved person for the act or omission complained against; or
+(b) where the service provider complained against is an agency owned or controlled by the federal or a provincial government, bring the matter to the notice of the head of that agency.
+(4) Any person not satisfied with the decision of the Director General under sub-section (3) or aggrieved by any act or omission of the Authority may make a complain to the Secretary.
+(5) For the purposes of this section, an act or omission of an employee of an operator or service provider shall be deemed to be the act or omission on the part of the operator or service provider.

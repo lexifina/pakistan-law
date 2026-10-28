@@ -1,0 +1,2 @@
+28. Financial year.—(1) The financial year of the Authority shall comprise of twelve months beginning with the first day of July and ending on the thirtieth day of June of the following calendar year.
+(2) The first financial year shall consist of the period commencing on the date of the establishment of the Authority and ending on the thirtieth day of June immediately following the establishment of the Authority.

@@ -1,0 +1,2 @@
+37. Need to satisfy fit and proper person test to hold privileges.— (1) Every holder of an aviation document and any person who has or is likely to have control over the exercise of the privileges under an aviation document shall continue to satisfy the fit and proper person test in relation to that document.
+(2) This section shall not apply in relation to an aviation document if it is in a class of documents specified in the rules.

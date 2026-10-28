@@ -1,0 +1,2 @@
+131. Cognizance of offences by courts.—(1) No court shall take cognizance of an offence under this Act except upon a complaint in writing by the Director General or an officer authorized by him in this behalf.
+(2) The Director General shall not make a complaint in relation to an offence under section 116 or 117 unless he receives a written request from the owner, operator or pilot-incommand of the aircraft on board which that offence was committed.

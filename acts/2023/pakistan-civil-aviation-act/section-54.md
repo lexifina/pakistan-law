@@ -1,0 +1,2 @@
+54. Maintenance of aircraft.—(1) It shall be the duty of every owner or operator of an aircraft to maintain the aircraft in an airworthy condition.
+(2) If the Director General, an inspector or authorized person is of the view that an aircraft has not undergone or passed mandatory maintenance checks or is otherwise not in an airworthy condition, he may refuse permission for such aircraft to take off from any place in Pakistan.

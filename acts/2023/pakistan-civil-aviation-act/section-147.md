@@ -1,0 +1,1 @@
+147. Power of the Authority to make regulations.—The Board may make regulations, not inconsistent with this Act and the rules, to provide for all internal matters and for which provision is necessary or expedient for carrying out the purposes of the Act.

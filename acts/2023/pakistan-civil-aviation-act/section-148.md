@@ -1,0 +1,1 @@
+148. Air Navigation Orders.—The Director General may, by notification in the official Gazette, issue an Air Navigations Order not inconsistent with this Act, rules and regulations, to provide for any matter and for which provision is necessary or expedient for carrying out the purposes of the Act.

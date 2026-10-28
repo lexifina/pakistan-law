@@ -1,0 +1,1 @@
+123. Punishment for contravention of rules or regulations.—Where any rule or regulation provides that a contravention thereof shall be punishable, a person contravening that rule or regulation shall be punished with simple imprisonment for a term which may extend to three months or fine which may extend to one hundred thousand rupees, or with both.

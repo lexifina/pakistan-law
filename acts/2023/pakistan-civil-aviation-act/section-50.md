@@ -1,0 +1,4 @@
+50. Civil Aircraft Register of Pakistan.—(1) The Director General shall maintain a register to be called the Civil Aircraft Register of Pakistan in such form and in such manner as may be prescribed by the rules.
+(2) The Director General shall cause to be entered in the register the details of every aircraft for which a certificate of registration has been issued by him under section 47.
+(3) The Director General shall update the register as and when any change or error in the information borne on the register comes to, or is brought to his notice.
+(4) Information pertaining to any aircraft contained in the register shall be prima facie evidence of the ownership of such aircraft, and an extract thereof duly certified by the Director General as a true extract, shall be acted upon as prima facie evidence of its contents.

@@ -1,0 +1,1 @@
+106. International air service no excuse for exemption from application of the Act.—No aircraft shall be exempted from any provision of this Act, the rules or regulation merely because it is being used in connection with a scheduled international air service or a non-scheduled commercial international flight under a licence granted under this Act.

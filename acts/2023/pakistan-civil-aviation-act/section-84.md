@@ -1,0 +1,5 @@
+84. Security designation of Airports etc.—(1) The Secretary may, with the approval of the Minister—
+(a) designate a security classification to each airport in Pakistan in view of, among other things, its importance, passenger traffic, type of services offered and the perceived threats; and
+(b) designate a security classification to each aid or facility used or kept for the provision of air navigation services or any other service in relation to the operation of aircraft that is not located within an airport, in view of, among other things, its importance, types of services offered and the perceived threats.
+(2) Before designating security classification to any airport, aid or facility under this section, the Secretary shall consult the Director General and the Director Generals of the Pakistan Airports Authority and the Airports Security Force.
+(3) Every person carrying out security screening or other duties in relation to the provision of aviation security service at the airport, aid or facility shall be suitably qualified and trained, and certified by the Director General as per the requirements of the national civil aviation security programme.
