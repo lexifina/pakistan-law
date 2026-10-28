@@ -1,0 +1,1 @@
+23. Grant of certificate of registration of birth or death. The Registrar of Births made at the time of registering any birth or death by the person giving notice of the birth or death, and on payment by him of the prescribed fee, give to the applicant a certificate in the prescribed form, signed by the Registrar, of having registered the birth or death.
