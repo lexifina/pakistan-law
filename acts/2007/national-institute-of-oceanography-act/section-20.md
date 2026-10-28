@@ -1,0 +1,2 @@
+20. Directives from the Government:___ (1) In the performance of its functions, the Institute shall be guided on questions of policy by the instructions if any, given to it by the Government which shall be sole judge as to whether a question is a question of policy, provided that reasons for issuing such a directive are conveyed in writing
+(2) The Government may at any time dissolve and reconstitute the Board, if deemed necessary in the public interest.

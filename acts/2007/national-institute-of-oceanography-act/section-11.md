@@ -1,0 +1,2 @@
+11. Director General of the Institute:___ (1) The Government in consultation with the Board shall appoint an eminent scientist or engineer having at least ten years relevant experience preferably holding a degree of Ph.D. as the Director General on such terms and conditions as may be prescribed.
+(2) The Government, in consultation with the Board of Governors, may extend the tenure of the Director General for such period as may be specified by it or convert it into permanent appointment.

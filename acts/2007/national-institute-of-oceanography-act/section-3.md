@@ -1,0 +1,4 @@
+3. Establishment of the Institute:___ (1) As soon as may be after the commencement of this Act, the National Institute of Oceanography shall established by the Federal Government in accordance with the provisions of the Act.
+(2) The Institute shall be a body corporate by the name of the National Institute of Oceanography having perpetual succession and a common Seal, with power subject to the provisions of this Act, to acquire and hold property, and shall by the said name sue and be sued.
+(3) The Institute shall be located at Karachi and may establish sub-stations in the coastal areas of Pakistan.
+(4) Until the Institute is established under this Act, the institute established under the resolution of the Federal Government shall continue to function and while so functioning be deemed to be the institute established under this Act.
