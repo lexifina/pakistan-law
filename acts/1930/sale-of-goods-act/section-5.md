@@ -1,0 +1,3 @@
+## Formalities of the Contract
+5. Contract of sale how made.___(1) A contract of sale is made by an offer to buy or sell goods for a price and the acceptance of such offer. The contract may provide for the immediate delivery of the goods or immediate payment of the price or both, or for the delivery or payment by instalments, or that the delivery or payment or both shall be postponed.
+(2) Subject to the provisions of any law for the time being in force, a contract of sale may be made in writing or by word of mouth, or partly in writing and partly by word of mouth or may be implied from the conduct of the parties.

@@ -1,0 +1,1 @@
+7. Goods perishing before making of contract.___Where there is a contract for the sale of specific goods, the contract is void if the goods without the knowledge of the seller have, at the time when the contract was made, perished or become so damaged as no longer to answer to their description in the contract.

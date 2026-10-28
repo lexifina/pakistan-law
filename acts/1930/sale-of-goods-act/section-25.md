@@ -1,0 +1,6 @@
+25. Reservation of right of disposal.___(1) Where there is a contract for the sale of specific goods or where goods are subsequently appropriated to the contract, the seller may, by the terms of the contract or appropriation, reserve the right of disposal of the goods until certain conditions are fulfilled. In such case, notwithstanding the delivery of the goods to a buyer, or to a carrier or other bailee for the purpose of transmission to the buyer, the property in the goods does not pass to the buyer until the conditions imposed by the seller are fulfilled.
+[^7][(2) Where goods are shipped or are dispatched by railway and are by the bill of lading or by railway receipt deliverable to the order of the seller or his agent the seller is prima facie deemed to reserve the right of disposal.]
+(3) Where the seller of goods draws on the buyer for the price and transmits the bill of exchange and [^8][bill of lading or railway receipt] to the buyer together, to secure acceptance or payment of the bill of exchange, the buyer is bound to return the [^8][bill of lading or railway receipt] if he does not honour the bill of exchange and if he wrongfully retains the [^8][bill of lading or railway receipt] the property in the goods does not pass to him.
+
+[^7]: Subs. by Ordinance No. XLVII OF 1962, s.4
+[^8]: Subs. by Ordinance No. XLVII OF 1962, s.4.

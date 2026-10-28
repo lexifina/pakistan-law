@@ -1,0 +1,1 @@
+8. Goods perishing before sale but after agreement to sell.___Where there is an agreement to sell specific goods, and subsequently the goods without any fault on the part of the seller or buyer perish or become so damaged as no longer to answer to their description in the agreement before the risk passes to the buyer, the agreement is thereby avoided.

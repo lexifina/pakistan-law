@@ -1,0 +1,4 @@
+## Subject-matter of Contract
+6. Existing or future goods.—(1) The goods which form the subject of a contract of sale may be either existing goods, owned or possessed by the seller, or future goods.
+(2) There may be a contract for the sale of goods the acquisition of which by the seller depends upon a contingency which may or may not happen.
+(3) Where by a contract of sale the seller purports to effect a present sale of future goods, the contract operates as an agreement to sell the goods.

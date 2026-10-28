@@ -1,0 +1,1 @@
+32. Payment and delivery are concurrent conditions.___Unless otherwise agreed, delivery of the goods and payment of the price are concurrent conditions, that is to say, the seller shall be ready and willing to give possession of the goods to the buyer in exchange for the price, and the buyer shall be ready and willing to pay the price in exchange for possession of the goods.
