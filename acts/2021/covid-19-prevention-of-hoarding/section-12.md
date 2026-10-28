@@ -1,0 +1,1 @@
+12. Reward for informers.—Anyone who provides an information to an officer with regard to any act or acts of hoarding, which results in a conviction and release of funds into the government exchequer, shall be entitled to an award equivalent to ten percent of the amount released to the government exchequer, in the manner as may be prescribed.

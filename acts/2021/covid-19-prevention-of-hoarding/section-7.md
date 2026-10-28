@@ -1,0 +1,4 @@
+7. Power to auction seized Scheduled articles.—(1) Notwithstandinganything contained in any other law for the time being in force and in addition to the prosecution under this Act, the officer may sell the scheduled articles seized under section 4 by auction, in the manner as may be prescribed.
+(2) The proceeds collected under sub-section (1) shall be deposited in aprofit bearing bank account in the National Bank of Pakistan, and if—
+(a) the accused person whose scheduled articles are auctioned is acquitted of an offence under section 3, the deposited amount alongwith the profit shall be releasedto the said accused; or
+(b) the accused person whose scheduled articles are auctioned is convicted of an offence under section 3, the deposited amount alongwith the profit shall be released into the government exchequer.
