@@ -1,0 +1,3 @@
+3. Punishment for causing explosion likely to endanger life or property. Any person who unlawfully and maliciously causes by any explosive substance an explosion of a nature likely to endanger life or to cause serious injury to property shall, whether any injury to person or property has been actually caused or not, be punished with [^3][death or imprisonment for life].
+
+[^3]: Subs. by the Explosive Substances (Amdt.) Act, 1975 (40 of 1975), s. 21, for “transportation for life or any shorter term, to which fine may be added, or with imprisonment for a term which may extend to ten years, to which fine may be added”.

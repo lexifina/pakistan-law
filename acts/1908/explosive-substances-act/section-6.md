@@ -1,0 +1,1 @@
+6. Punishment of abettors. Any person who by the supply of or solicitation for money, the providing of premises, the supply of materials, or in any manner whatsoever, procures, counsels, aids, abets, or is accessory to, the commission of any offence under this Act shall be punished with the punishment provided for the offence.
