@@ -1,0 +1,2 @@
+19. Officers and pound-keepers not to purchase cattle at sale under Act. No officer of police or other officer or pound-keeper appointed under the provisions herein contained shall, directly or indirectly, purchase any cattle as a sale under this Act.
+Pound-keepers when not to release impounded cattle. No pound-keeper shall release or deliver any impounded cattle otherwise than in accordance with the former part of this Chapter, unless such release or delivery is ordered by a Magistrate or Civil Court.

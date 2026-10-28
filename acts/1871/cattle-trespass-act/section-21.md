@@ -1,0 +1,2 @@
+21. Procedure on complaints. The complaint shall be made by the complainant in person, or by an agent personally acquainted with the circumstances. It may be either in writing or verbal. If it be verbal, the substance of it shall be taken down in writing by the Magistrate.
+If the Magistrate, on examining the complainant or his agent, sees reason to believe the complaint to be well founded, he shall summon the person complained against, and make an enquiry into the case.
