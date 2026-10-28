@@ -1,0 +1,1 @@
+3. Penalties. Any person disobeying a process issued by an officer in exercise of the powers conferred by section 2 shall be liable to the same penalties to which he would have been liable if he had disobeyed a process issued by the civil court.
