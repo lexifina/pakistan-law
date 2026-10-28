@@ -1,0 +1,1 @@
+20. Discoveries and inventions.—All rights including international property rights related to discoveries and inventions made by any officer or employee of the Centre in the course of his employment shall vest in the Centre.

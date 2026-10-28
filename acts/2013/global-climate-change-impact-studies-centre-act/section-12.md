@@ -1,0 +1,1 @@
+12. Pay scales.—The employees of the Centre shall be given Special Pay Scales (SPS) and shall also be entitled for any time to time increases, allowances or revisions in salary as are allowed to the employees of other organizations drawing SPS.

@@ -1,0 +1,1 @@
+18. Delegation of powers.—The Board may, by general or special order in writing, direct that such of its powers shall, in such circumstances and under such conditions as may be prescribed, be exercisable also by the Executive Director or by any other member or officer of the Centre.

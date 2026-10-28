@@ -1,0 +1,1 @@
+11. Budget.—The Centre, with approval of the Board, shall, by such date in each year as may be prescribed, submit to the Federal Government for approval, a budget in the prescribed form for each financial year showing estimated expenditure and the sums which are likely to be required from the Federal Government during that financial year.

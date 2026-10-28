@@ -1,0 +1,1 @@
+13. Maintenance of accounts.—The Centre shall ensure proper maintenance of accounts and shall after the end of each financial year prepare a statement of accounts which shall include a balance sheet and an account of government funds receipt and expenditure.
