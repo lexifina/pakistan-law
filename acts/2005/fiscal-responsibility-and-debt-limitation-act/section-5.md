@@ -1,0 +1,5 @@
+5. The medium term budgetary statement.—(1) The Federal Government shall include a medium term budgetary statement, consistent with the principles of sound fiscal and debt management, in the annual budget statement to be laid before the National Assembly each year not later than the thirtieth day of June of each financial year.
+(2) The medium term budgetary statement shall set forth a three year rolling target for economic indicators.
+(3) In particular and without prejudice to the provisions contained in sub-section (2), the medium term budgetary statement shall, for the financial year commencing on the first day of July and the two financial years following that financial year,__
+(a) indicate explicitly, by the use of ratios or other means the Federal Government’s intentions regarding economic indicators including those specified in sub-section (2) of section 6; and
+(b) specify clearly key fiscal measures and risks that the Federal Government considers important and against which fiscal policy will be set and assessed.

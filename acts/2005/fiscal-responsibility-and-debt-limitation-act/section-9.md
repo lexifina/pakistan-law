@@ -1,0 +1,4 @@
+9. Measures to enforce compliance.—Notwithstanding anything in sub-section (4) of section 3, if the Federal Government continuously fails to meet the target of debt to gross domestic product ratio specified in the debt reduction path for any given year over the period of two financial years starting from the first statement which indicates the failure of the Federal Government in meeting the prescribed target, the Federal Government shall take all necessary measures including the curtailment of the sums authorised to be paid and applied from, and out of, the Federal Consolidated Fund to return to the debt reduction path latest by the end of the next two financial years:
+[^12][Provided that nothing in this section shall apply to the expenditure charged upon the Federal Consolidated Fund.]
+
+[^12]: Subs. by Finance Amendment Act, 2016 (XXIX OF 2016), s.6.
