@@ -1,0 +1,1 @@
+7. Application of Act VI of 1956. The provisions of the Pakistan Commissions of Inquiry Act, 1956 (VI of 1956), shall apply to the Commission as if the Commission were a Commission appointed under that Act to which all the provisions of section 5 thereof applied.
