@@ -1,0 +1,1 @@
+64. Trustee for sale or his agent may not buy.— No trustee whose duty it is to sell trust property and no agent employed by such trustee for the purpose of the sale, may, directly or indirectly, buy the same or any interest therein, on his own account or as agent for a third person.

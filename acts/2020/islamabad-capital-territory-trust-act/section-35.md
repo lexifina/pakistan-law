@@ -1,0 +1,8 @@
+35. Liability for breach of trust.—(1) Where the trustee commits a breach of trust, he is liable to make good the loss which the trust-property or the beneficiary has thereby sustained, unless the beneficiary, has by fraud induced the trustee to commit the breach, or the beneficiary, being competent to contract, has himself, without coercion or undue influence having been brought to bear on him, concurred in the breach, or subsequently acquiesced therein, with full knowledge of facts of the case and of his rights as against the trustee.
+(2) A trustee committing a breach of trust is not liable to pay interest except in the following cases, namely:—
+(a) where he has actually received interest;
+(b) where the breach consists in unreasonable delay in paying trust-money to the beneficiary;
+(c) where the trustee ought to have received interest, but has not done so;
+(d) where he may be fairly presumed to have received interest. He is liable, in case (a), to account for the interest actually received, and, in cases (b), (c) and (d), to account for simple interest at the rate of six per cent per annum, unless the court otherwise directs;
+(e) where the breach consists in failure to invest trust-money and to accumulate the interest or dividends thereon, he is liable to account for compound interest with half-yearly rests at the same rate; and
+(f) where the breach consists in the employment of trust-property or the proceeds thereof in trade or business, he is liable to account, at the option of the beneficiary, either for compound interest (with half-yearly rests) at the same rate, or for the net profits made by such employment.

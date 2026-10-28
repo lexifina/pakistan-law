@@ -1,0 +1,1 @@
+98. Transfer pursuant to rescindable contract.— Where property is transferred in pursuance of a contract which is liable to rescission or induced by fraud or mistake, the transferee must, on receiving notice to that effect, hold the property for the benefit of the transferor, subject to repayment by the latter of the consideration actually paid.

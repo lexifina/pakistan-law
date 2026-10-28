@@ -1,0 +1,7 @@
+55. Power to compound, etc.—(1) Two or more trustees acting together may, if they think appropriate,-
+(a) accept any composition or any security for any debt or for any property;
+(b) allow any time for payment of any debt;
+(c) compromise, compound, abandon, submit to arbitration or otherwise settle and debt, account, claim or thing whatever relating to the trust; and
+(d) for any of those purposes, enter into, give, execute and do such agreements, instruments of composition or arrangement, releases and other things as to them seem expedient, without being responsible for any loss occasioned by any act or thing so done by them in good faith.
+(2) The powers conferred by this section on two or more trustees acting together may be exercised by a sole acting trustee when by the instrument of trust, if any, a sole trustee is authorized to execute the trusts and powers thereof.
+(3) This section applies only if and as far as a contrary intention is not expressed in the instrument of trust, if any, and shall have effect subject to the terms of that instrument and to the provisions therein contained.

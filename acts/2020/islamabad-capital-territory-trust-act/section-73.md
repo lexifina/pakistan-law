@@ -1,0 +1,1 @@
+73. Right to compel to any act of duty.— The beneficiary has a right that his trustee shall be compelled to perform any particular act of his duty as such and restrain from committing any contemplated or probable breach of trust.

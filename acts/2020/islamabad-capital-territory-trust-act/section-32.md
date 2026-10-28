@@ -1,0 +1,4 @@
+32. Investment of trust-money.—(1) Where the trust-property consists of money and cannot be applied immediately or at an early date to the purposes of the trust, the trustee is bound subject to any direction contained in the instrument of trust to invest the money on the following securities, and on no other, namely:—
+(a) in promissory notes, debentures, stock or other securities of a Provincial or Federal Government:
+Provided that securities, both the principal whereof and the interest whereon shall have been fully and unconditionally guaranteed by any government, shall be deemed, for the purposes of this clause, to be securities of such Government; and
+(b) on any other security expressly authorized by the instrument of trust, or by any rule which the High Court may prescribe in this behalf.

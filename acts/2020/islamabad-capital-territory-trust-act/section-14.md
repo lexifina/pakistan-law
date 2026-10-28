@@ -1,0 +1,1 @@
+14. Verification of the application.—The director shall verify the contents and particulars of the application before the registration through the investigating or prosecuting agencies who shall submit the verified report to the Director within 14 days of receiving the request from him.

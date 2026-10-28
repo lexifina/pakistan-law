@@ -1,0 +1,1 @@
+34. Sale by trustee directed to sell within specified time.—Where a trustee, directed to sell within a specified time extends such time, the burden of proving, as between himself and the beneficiary, that the latter is not prejudiced by the extension lies upon the trustee, unless the extension has been authorized by a principal civil court of original jurisdiction.

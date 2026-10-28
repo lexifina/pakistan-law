@@ -1,0 +1,2 @@
+15. Registration of the properties.—(1) All movable and immovable properties must be registered in the name of the Trust under the Registration Act, 1908.
+(2) Without prejudice to the Registration Act, 1908, the registration of the properties must include the details of authors of the trust, beneficiaries, trustee, co-trustee, if any, and any other natural person exercising ultimate effective control over the trust.

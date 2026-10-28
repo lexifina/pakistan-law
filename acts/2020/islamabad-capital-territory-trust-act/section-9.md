@@ -1,0 +1,1 @@
+9. Who may be trustee.—Every natural person capable of holding property and not a legal person may be a trustee but, where the trust involves the exercise of discretion, he shall not execute it unless he is competent to contract under the Contract Act, 1872 (IX of 1872).

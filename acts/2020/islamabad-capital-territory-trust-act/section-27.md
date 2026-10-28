@@ -1,0 +1,1 @@
+27. Care required from trustee.—A trustee is bound to deal with the trust-property as carefully as a man of ordinary prudence would deal with such property if it were his own; and, in the absence of a contract to the contrary, a trustee so dealing is not responsible for the loss, destruction or deterioration of the trust-property.

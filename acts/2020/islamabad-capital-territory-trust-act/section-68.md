@@ -1,0 +1,3 @@
+68. Right to specific execution.— The beneficiary is entitled to have the intention of the author of the trust specifically executed to the extent of the beneficiary‘s interest.
+(2) Right to transfer of possession.— Where is only one beneficiary and he is competent to contract or where there are several beneficiaries and they are competent to contract and all are of one mind, he or they may require the trustee to transfer the trust property to him or them, or to such person as he or they may direct.
+(3) When property has been transferred or bequeathed for the benefit of a married woman, so that she shall not have power to deprive herself of her beneficial interest nothing in sub-section (2) applies to such property during her marriage.
