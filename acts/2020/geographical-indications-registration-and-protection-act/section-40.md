@@ -1,0 +1,12 @@
+40. False application of geographical indication.__ (1) A person shall falsely apply geographical indication if such person uses in the course of trade a geographical indication which__
+(i) is used without the consent of the registrant or authorized user of geographical indication makes the geographical indication or deceptively similar geographical indication; or
+(ii) falsifies any genuine geographical indication, whether by alteration, addition, effacement or otherwise; or
+(iii) where the geographical indication is a well-known geographical indication or has a reputation in Pakistan and the use of the Geographical Indication being without due cause, takes unfair advantage of or is detrimental to the distinctive character or the repute of the geographical indication; or
+(iv) uses such registered geographical indication as his trade name or part of his trade name; or
+(v) uses such registered geographical indication as his domain name or part of his domain name or obtains such domain name without consent of the proprietor of the registered geographical indication, with the intention of selling such domain name to another including the proprietor of the registered geographical indication; or
+(vi) uses any package bearing a geographical indication which is identical with or deceptively similar to the geographical indication of such registrant or authorized user, for the purpose of packing, filling or wrapping therein any goods other than the genuine goods of the authorized user of the geographical indication.
+(2) Any geographical indication falsely applied as mentioned in sub-section (1), is in this Act referred to as a false geographical indication.
+(3) In all legal proceedings, a person who sells or offers goods for sale or puts those on the market or has in possession for sale or any purpose of trade or manufacture any goods bearing a mark which infringes a registered geographical indication, the burden of proving the consent of the registrant or authorized user shall lie on the accused and be treated as a party to infringement of a registered geographical indication, unless he proves that,__
+(i) having taken all reasonable precautions, he had reasons to suspect the genuineness of the geographical indication;
+(ii) on demand made by IP Tribunal or High Court, as the case may be, he gave all the information in his power with respect to the persons from whom he obtained such goods; and
+(iii) he had otherwise acted innocently.

@@ -1,0 +1,3 @@
+50. Appeal against decision of the Registrar.__ (1) Save as otherwise expressly provided in this Act, an appeal shall lie, within the prescribed period, against any decision of the Registrar under this Act or rules made thereunder to the High Court having jurisdiction:
+Provided that if any suit or other proceedings concerning the geographical indication in question is pending before an IP Tribunal, the appeal shall lie to the High Court within whose jurisdiction that IP Tribunal is situated.
+(2) Subject to the provision of this Act and of rules made thereunder, the provisions of the Code of Civil Procedure, 1908 (Act V of 1908), shall apply to appeal before the High Court.

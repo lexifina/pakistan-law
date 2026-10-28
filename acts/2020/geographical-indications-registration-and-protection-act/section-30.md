@@ -1,0 +1,7 @@
+## CHAPTER-VI
+## INFRINGEMENT OF REGISTERED GEOGRAPHICAL INDICATION
+30. Infringement of geographical indication.__ (l) A person shall infringe a registered geographical indication if such person uses a geographical indication which is identical with the registered geographical indication.
+(2) A person shall infringe a registered geographical indication, if such person uses it in the course of trade on following grounds, namely:__
+(i) the use of a geographical indication in respect of goods of the same or similar description but not originating in the country indicated by the geographical indication in question or the true place of origin of the goods is falsely indicated or the geographical indication is used in translation or accompanied by expressions such as “kind”, “type”, “style”, “imitation” used in such a manner which misleads the persons as to the geographical origin of such goods; or
+(ii) any use of a geographical indication that, even if it identifies goods truly originating in the place designated by that geographical indication, designates products that do not comply with the relevant book of specification as recorded on the register shall be deemed as an infringement; or
+(iii) the mark is deceptively similar to the geographical indication and there exists a likelihood of confusion on the part of public, which includes the likelihood of association with the geographical indication.

@@ -1,0 +1,5 @@
+24. Regulatory mechanism for registered geographical indication.__ (1) The procedure for inspection and monitoring shall be prepared by concerned Division for regulatory mechanism including scope, frequency, and procedures of monitoring activities and penalties to ensure the compliance of geographical indication products with the book of specification.
+(2) The use of registered geographical indication by the authorized users shall be subject to compliance with the book of specification.
+(3) IPO Pakistan shall facilitate in promotion, marketing and effective use of products bearing geographical indications.
+(4) The designated certification body conforming product specification and product standards of geographical indication goods shall present an annual report to the concerned Division at the end of each calendar year containing a list of authorized users including but not limited to goods, quantity and quality acknowledged and actions taken against non-compliance of the book of specification.
+(5) Concerned Division shall oversee the efficiency of the designated certification body or bodies.

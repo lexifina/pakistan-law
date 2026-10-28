@@ -1,0 +1,6 @@
+9. Registration of homonymous geographical indication.__ (1) A homonymous geographical indication is entitled to be considered for registration under this Act.
+(2) Prior to registration under sub-section (1) the Registrar shall satisfy himself that he has considered__
+(i) all practical conditions under which the homonymous indication in question shall be differentiated from other homonymous indication;
+(ii) equitable treatment of the producers of the goods concerned; and
+(iii) that the consumers of such goods shall not be confused or misled in consequence of such registration.
+Explanation.__ Homonymous geographical indications (GI) are those that are spelled or pronounced alike, but which identify products originating in different places, usually in different countries. In principle, these indications should coexist, but such coexistence may be subject to certain conditions. For example, it may be required that they be used only together with additional information as to the origin of the product in order to prevent consumers from being misled. A GI may be refused protection if, due to the existence of another homonymous indication, its use would be considered potentially misleading to consumers with regard to the product’s true origin.

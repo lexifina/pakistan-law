@@ -1,0 +1,1 @@
+48. Conflicting marks.__ The Registrar shall, ex officio or at the request of an interested person, refuse or invalidate registration of an authorized user which contains or consists of a geographical indication to be used with respect to goods of the same or similar description as those designated by that geographical indication.
