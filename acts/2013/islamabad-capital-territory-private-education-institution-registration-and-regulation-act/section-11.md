@@ -1,0 +1,1 @@
+11. Directions from Government.⸺The general direction and administration of the affairs of the Authority shall vest in the Chairman and members. The Government shall be the sole judge as to whether a question is a question of policy and may, as and when it considers necessary, issue directives to the Authority on matters of policy and the same shall be binding on the Authority.

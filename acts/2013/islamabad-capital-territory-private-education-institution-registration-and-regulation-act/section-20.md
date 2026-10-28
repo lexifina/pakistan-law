@@ -1,0 +1,1 @@
+20. Cognizance of offence.⸺No court shall take cognizance of an offence under this Act except upon a complaint in writing made by the Authority or any other authorized by it in this behalf and no court inferior to that of a Magistrate of the First Class shall try any such offence.

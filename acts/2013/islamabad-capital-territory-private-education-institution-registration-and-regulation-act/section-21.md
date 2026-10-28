@@ -1,0 +1,1 @@
+21. Indemnity.⸺No suit or legal proceedings shall lie against the Government, the Authority or any person acting under this Act for anything which is done in good faith or intended to be done under this Act.
