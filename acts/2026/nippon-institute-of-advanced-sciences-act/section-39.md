@@ -1,0 +1,1 @@
+39. Benefits and insurance.—(1) The Institute shall constitute for the benefit of its officers, teachers and other employees’ schemes, as may be prescribed, for the provision of post-employment benefits as well as health and life insurance while in service.

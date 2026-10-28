@@ -1,0 +1,1 @@
+3. Appointment of committees by Authorities.—Any Authority may constitute such standing, special or advisory committees as it may deem fit, and appoint to such committees persons who may not be members of that Authority.

@@ -1,0 +1,22 @@
+11. Vice-Chancellor.—(1) There shall be a Vice-Chancellor of the Institute who shall be an eminent academician or a distinguished administrator. The Vice-Chancellor shall be appointed by the Chancellor on the basis of recommendations made by the Board.
+(2) A Search Committee for the recommendation of persons suitable for appointment as Vice Chancellor shall be constituted by the Board on the date and in the manner prescribed by the Statutes and shall consist of two eminent members of society nominated by the Chancellor, of whom one shall be appointed the Convener, two members of the Board, two distinguished Institute Teachers who are not members of the Board and one academician of eminence not employed by the Institute. The two distinguished Institute teachers shall be selected by the Board through a process to be prescribed by Statute that provides for the recommendations of suitable names by the Institute teachers in general. The Search Committee shall remain in existence till the time of appointment of the next Vice-Chancellor made by the Chancellor.
+(3) The persons proposed by the Search Committee for appointment as Vice-Chancellor shall be considered by the Board and a panel of three, in order of priority, shall be recommended by the Board to the Chancellor:
+Provided that the Chancellor may decline to appoint any of the three persons recommended and seek recommendation of a fresh panel. In the event of a fresh recommendation being sought by the Chancellor, the Search Committee shall make a proposal to the Board of Governors in the prescribed manner.
+(4) The Vice-Chancellor shall be appointed for a renewable tenure of four years on terms and conditions prescribed by Statutes.
+(5) The Vice-Chancellor shall be the chief executive officer of the Institute responsible for all administrative and academic functions of the Institute and for ensuring that the provisions of this Act, Statutes, Regulations and Rules are faithfully observed to promote the general efficiency and good order of the Institute. The Vice-Chancellor shall have all powers prescribed for this purpose, including administrative control over the officers, teachers, and other employees of the Institute.
+(6) The Vice-Chancellor shall, if present, be entitled to attend any meeting of any Authority or body of the Institute.
+(7) The Vice-Chancellor, in an emergency requiring immediate action ordinarily not in the competence of the Vice-Chancellor, may take such action and forward, within seventy-two hours, a report of the action taken to the members of the emergency Committee of the Board of Governors, to be set up by Statute. The emergency committee may direct such further action as is considered appropriate.
+(8) Subject to the general supervision and control, the Vice-Chancellor may-
+(a) direct teachers, officers and other employees of the Institute to take up such assignments in connection with examination, administration and such other activities in the Institute as he may consider necessary for the purposes of the Institute;
+(b) sanction by re-appropriation an amount not exceeding an amount specified by the Board for an unforeseen item not provided for in the budget and report it to the Board at the next meeting;
+(c) make appointments of such categories of employees of the Institute and in such manner as may be prescribed by the Statutes;
+(d) suspend, punish and remove, in accordance with prescribed procedure, from service officers, teachers and other employees of the Institute except those appointed by or with the approval of the Board;
+(e) delegate, subject to such conditions as may be prescribed, any of his powers under this Act to an officer or officers of the Institute; and
+(f) exercise and perform such other powers and functions as may be prescribed.
+(9) The Vice-Chancellor shall preside at the convocation of the Institute in the absence of the Chancellor.
+(10) The Vice-Chancellor shall present an annual report before the Board within three months of the close of the academic year. The annual report shall present such information as regards the academic year under review as may be prescribed, including disclosure of all relevant facts pertaining to—
+(a) academics;
+(b) research;
+(c) administration; and
+(d) finances.
+(11) The Vice-Chancellor’s annual report shall be made available, prior to its presentation before the Board to all officers and Institute Teachers and shall be published in such numbers as are required to ensure its wide circulation.
