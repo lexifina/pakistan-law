@@ -1,0 +1,2 @@
+24. Employees, members and officers of the Board and Corporation.—(1) The OIC, the Director General, or other Members, officers, staff or employees of the Corporation shall not be deemed to be civil servants under the Civil Servants Act, 1973 (Act No. LXXI of 1973).
+(2) The provisions of the Industrial Relations Act, 2012(X of 2012) and the Employee Old- Age Benefits Act, 1976, or any jurisdiction thereunder, shall not apply to matters concerning or relating to the employees, officers, staff or advisors of the Corporation.

@@ -1,0 +1,1 @@
+20. Utilization of government lands.—Notwithstanding anything contained in any other law for the time being in force, the Corporation for the support of Armed Forces may occupy and utilize land entrusted to the military, for carrying out the purposes of this Act.

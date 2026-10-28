@@ -1,0 +1,1 @@
+21. Authorities to aid the Board and Corporation.—All executive authorities of the Federation and in the provinces shall render such assistance to the Corporation as may be required for the exercise or performance of the Corporation’s activities and functions under this Act.
