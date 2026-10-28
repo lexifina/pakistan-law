@@ -1,0 +1,1 @@
+3. Prohibition against dealing in manufactured tobacco without dealer’s licence. No person who does not grow tobacco himself or with the aid of the members of his family or by tenants or hired labour shall keep for retail sale or sell by retail manufactured tobacco in any urban area without a dealer’s licence.

@@ -1,0 +1,1 @@
+10. Cognizance of offences. No magistrate shall take cognizance of any offence punishable under this Act except on the complaint of the Collector or an officer authorised by him in this behalf, within six months of the date on which the offence is alleged to have been committed.

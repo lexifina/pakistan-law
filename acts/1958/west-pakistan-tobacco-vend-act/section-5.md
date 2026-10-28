@@ -1,0 +1,2 @@
+5. Penalty for offences under section 3 and for breach of conditions of licence. (1) Whoever, in contravention of the provisions of section 3, keeps for sale or sells by retail manufactured tobacco, or being the holder of a dealer’s licence commits a breach of any of the conditions subject to which the licence has been granted shall be punishable with fine which may extend to one hundred rupees.
+(2) When any person is convicted under sub-section (1) of a breach of any of the conditions of his licence, the Collector may suspend or cancel his licence.

@@ -1,0 +1,1 @@
+7. Composition of offences. The Collector or any Magistrate authorised by him may accept from any person against whom a reasonable suspicion exists that he has committed an offence under this Act, a sum of money not exceeding one hundred rupees by way of composition for such offence or alleged offence.

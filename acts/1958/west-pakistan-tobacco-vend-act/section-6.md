@@ -1,0 +1,1 @@
+6. Powers of Magistrate to direct payment of licence fees in addition to fine. When any person who does not hold a dealer’s licence is convicted of an offence under sub-section (1) of section 5, the Magistrate may direct that such person shall pay, in addition to the fine imposed on him, the fees payable for a dealer’s licence.
