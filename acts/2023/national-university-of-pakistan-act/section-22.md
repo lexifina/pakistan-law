@@ -1,0 +1,4 @@
+22. Internal Auditor.—(1) The Internal Auditor of the University shall be appointed on regular basis by the Board on recommendation of the selection board or by deputation from offices of Auditor General of Pakistan or Controller General of Accounts who fulfil the eligibility criteria to be appointed as Internal Auditor.
+(2) The minimum experience as well as the professional and academic qualifications necessary for appointment to the post of Internal Auditor shall be such as may be prescribed.
+(3) The Internal Auditor shall be responsible for pre-auditing of all bills and documents for all payments to be made by the University.
+(4) The Board may, on recommendation and advice of the Rector, remove the Internal Auditor on grounds of inefficiency or misconduct in accordance with the prescribed procedure.

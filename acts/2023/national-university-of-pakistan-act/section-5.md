@@ -1,0 +1,1 @@
+5. University to be open to all classes and creeds.—The University shall be open to all persons irrespective of gender, religion, race, domicile, creed, class or colour and no person shall be denied the privileges of the University on any such ground.

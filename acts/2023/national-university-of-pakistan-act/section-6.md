@@ -1,0 +1,2 @@
+6. Fee and other Charges.—(1) An increase in any fee or charge that is in excess of ten percent per annum on an annualized basis from the last such increase may not be made except in special circumstances and only with approval of the Board.
+(2) The University shall institute financial aid programmes for students in need, to the extent considered feasible by the Board in the available resources, to enable admission and access to the University and the various opportunities provided by it to be based on merit rather than ability to pay.

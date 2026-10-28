@@ -1,0 +1,40 @@
+2. Definitions.−−In this Act, unless there is anything repugnant in the subject or context,−−
+(i) “Academic Council” means the Academic Council of the University;
+(ii) “affiliated college” means an educational institute affiliated with the University but not maintained or administered by it;
+(iii) “Authority” means any of the Authorities of the University specified in section 24;
+(iv) “Board” means the Board of Governors of the University specified in section 25;
+(v) “campus” means a campus of the University;
+(vi) “Chancellor” means the Chancellor of the University;
+(vii) “Chairman” means the Chairman of the Board;
+(viii) “Chairperson” means the head of an academic department;
+(ix) “college” means a constituent college or an affiliated college;
+(x) “Commission” means the Higher Education Commission established under the Higher Education Commission Ordinance, 2002 (LIII of 2002);
+(xi) “constituent college” means an educational institute, by whatever name described, maintained and administered by the University;
+(xii) “Controller of Examinations” means Controller of Examinations of the University;
+(xiii) “Dean” means the head of a faculty or the head of an academic body granted the status of a faculty by this Act or by the statutes or regulations;
+(xiv) “department” means a teaching department maintained and administered by the University in the prescribed manner;
+(xv) “Director” means the head of department or institute or by whatever name called established and maintained by the University by statutes or regulations;
+(xvi) “Director General FGEI (C/G) Directorate” means head of Federal Government Educational Institutions (Cantonments and Garrisons) Directorate or by whatever name called;
+(xvii) “division concerned” means the division to which business of this Act stands allocated;
+(xviii) “faculty” means an administrative and academic unit of the University consisting of one or more departments, as may be prescribed;
+(xix) “FGEI (C/G) Directorate” means Federal Government Educational Institutions (Cantonments and Garrisons) Directorate or by whatever name called;
+(xx) “Government'“ means the Federal Government;
+(xxi) “institute” means an institute maintained and administered by the University;
+(xxii) “prescribed” means prescribed by statutes, regulations or rules made under this Act;
+(xxiii) “principal” means the head of a constituent or affiliated college or by whatever name called;
+(xxiv) “Pro-Chancellor” means Pro-Chancellor of the University;
+(xxv) “Pro-Rector” means Pro-Rector of the University;
+(xxvi) “Representation Committee” means the Representation Committee constituted under section 32;
+(xxvii) “Rector” means the Rector of the University;
+(xxviii)“registered graduate” means a graduate of the University whose name has been entered in the register maintained for this purpose;
+(xxix) “Registrar” means Registrar of the University;
+(xxx) “Review Panel” means the Review Panel constituted by the Chancellor or the Chairman in accordance with the provisions of this Act;
+(xxxi) “Schedule” means a Schedule to this Act;
+(xxxii) “Search Committee” means the Search Committee constituted by the Board under this Act;
+(xxxiii)“statutes”, “regulations” and “rules” mean respectively the statutes, regulations and rules made or deemed to have been made under this Act and for the time being in force;
+(xxxiv)“sub-campus” means a sub-campus of the University;
+(xxxv) “Syndicate” means the Syndicate of the University;
+(xxxvi)“teachers” include professors, associate professors, assistant professors and lecturers engaged in whole-time by the University or by a constituent or affiliated college and such other persons as may by regulations be declared to be teachers;
+(xxxvii)“Treasurer” means Treasurer of the University;
+(xxxviii)“University” means the National University of Pakistan (NUP) established under this Act; and
+(xxxix)“University teacher” means a whole-time teacher appointed and paid by the University, or recognized by the University as such.

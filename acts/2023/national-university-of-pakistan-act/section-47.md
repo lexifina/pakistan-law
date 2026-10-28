@@ -1,0 +1,1 @@
+47. Proceedings of Authorities not invalidated by vacancies.—No act, resolution or decision of any Authority shall be invalid by reason of any vacancy in the Authority doing, passing or making it or by reason of any want of qualification or invalidity in the appointment or nomination of any member of the authority, whether present or absent.
