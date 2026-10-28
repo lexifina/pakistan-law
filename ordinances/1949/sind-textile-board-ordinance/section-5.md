@@ -1,0 +1,5 @@
+5. Management of the Board. (1) There shall be constituted for the purpose of administering the affairs of the Board an Executive Committee, hereinafter referred to as the Committee.
+(2) The affairs of the Board shall be administered by the Committee which shall consist of the Chairman and Vice-Chairman of the Board, who shall be Chairman and Vice-Chairman respectively of the Committee and nine other members who shall be elected for this purpose and shall hold office until the next election.
+(3) The term of office of the members of the Committee shall be such as may be prescribed.
+(4) No act done or decision taken by the Committee shall be called in question on the ground merely of the existence of any vacancy therein or defect in its constitution or on the ground that the Board is not at any time fully established.
+6. In the event of any vacancy in the office of Chairman or Vice-Chairman of the Board or of a member of the Committee, otherwise than at the end of his term of office the person elected to succeed him shall hold office only for the unexpired portion of that term.

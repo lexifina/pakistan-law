@@ -1,0 +1,1 @@
+7. Members of the Committee not to be remunerated. No Chairman or Vice-Chairman or any member of the Committee or of any sub-committee or any person co-opted to serve on any sub-committee shall be entitled to receive for his services in such capacity any remuneration from the funds of the Board or otherwise.

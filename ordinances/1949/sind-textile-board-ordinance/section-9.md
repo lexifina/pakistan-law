@@ -1,0 +1,3 @@
+9. Subscriptions, liability and interest of members. (1) Every member of the Board shall subscribe towards the funds of the Board a sum of not less than one lakh of rupees.
+(2) Any person applying to be a member of the Board shall, not later than the prescribed date, subscribe in full a sum not less than as aforesaid towards the funds of the Board, and upon making such subscription shall become a member of the Board and shall be entitled to one vote.
+(3) The interest of each member of the Board in the earnings of the Board available at any time for distribution among the members of the Board shall be in proportion to the amount at that time standing to his credit in the books of the Board and shall continue for so long as he remains a member of the Board.
