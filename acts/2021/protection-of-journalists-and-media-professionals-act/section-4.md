@@ -1,0 +1,4 @@
+4. Right to privacy and non-disclosure of sources.— (1) Each journalist and media professional shall have the right to privacy, which includes protection of the law against interference with his/her home, correspondence, and family.
+(2) The Government shall ensure that no person, officer, agency or institution unlawfully or arbitrarily interferes with the right to privacy of any journalist, reporter or media professional and his/her home, correspondence (including electronic correspondences) and family.
+(3) The Government shall ensure that no journalist, reporter or media professional is forced, induced, compelled, coerced or threatened for the disclosure of his/her sources of information by any person, officer, agency, authority or institution save without due process of the law.
+(4) The Government shall make efforts to safeguard the confidentiality of sources, of journalists or media professionals.

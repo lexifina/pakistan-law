@@ -1,0 +1,1 @@
+24. Removal of difficulties.— If any difficulty arises in giving effect to any of the provisions of this Act, the Government may, within a period of one year from the date of commencement of this Act make such order, not inconsistent with the provisions of this Act, as may appear to be necessary, for the purpose of removing the difficulty.

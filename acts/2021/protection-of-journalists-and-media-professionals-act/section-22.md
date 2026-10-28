@@ -1,0 +1,1 @@
+22. Indemnity Clause.—No suit, prosecution or other legal proceeding shall lie against the members of the Commission or its officers for anything done in his / her official capacity which is done in good faith or intended to be done under this Act or the rules, instructions or directions made or issued hereunder.

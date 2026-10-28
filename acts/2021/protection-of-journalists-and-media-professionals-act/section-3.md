@@ -1,0 +1,8 @@
+## PART-II
+## RIGHTS OF JOURNALISTS AND MEDIA PROFESSIONALS
+3. Right to life and protection against ill treatment.— (1) The Government shall ensure that every journalist and media professionals right to life and security of person, as contained in Article 9 of the Constitution, is safeguarded, and that no such individual is subjected to ill-treatment.
+(2) No person or institution, whether private or public, shall engage in any act that violates the right to life and security of any journalist or media professional.
+(3) In order to maintain the independence, impartiality and freedom of journalists and media professionals, the Government shall take steps to ensure that existing or future counter- terrorism or national security laws are not utilized arbitrarily to hinder the work and safety of journalists and media professionals, including through arbitrary arrest or detention, or the threat thereof.
+(4) The Government shall ensure that effective measures are taken to protect journalists and media professionals against forced or involuntary disappearances, kidnapping, abduction or other methods of coercion.
+(5) The Government shall ensure that journalists and media professionals are allowed to carry out their journalistic work in conflict-affected areas within the country, without threats, intimidation, harassment or fear of persecution or targeting.
+(6) If the Commission finds that any institution or organization is, directly or indirectly, involved in violating, or attempting to violate, the rights to life and protection against ill treatment safeguarded in sub-section (1) above, it shall report the same to the Federal Government and recommend appropriate course of action against the perpetrator(s) of these violations.
