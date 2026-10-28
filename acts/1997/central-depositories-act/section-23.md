@@ -1,0 +1,2 @@
+23. Central depository to provide assistance to the Registrar, the Authority, the State
+Bank of Pakistan and the stock exchanges.—A central depository shall provide such assistance to the Authority, the State Bank of Pakistan, the Registrar, stock exchanges and to any person acting on their behalf, as they reasonably require for the performance of their functions and duties under this Act or under any other law for the time being in force.

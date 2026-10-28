@@ -1,0 +1,13 @@
+4. Central depository system. —(1) A central depository shall establish a central depository system whereby, in accordance with the regulations,—
+(a) (i) accounts may be opened and maintained with the central depository by the account‑holders so as to record the title of the account‑holders to book‑entry securities entered in such accounts; or
+(ii) where the account‑holders are participants, sub‑accounts may be opened and maintained, as part of the accounts of the participants, with the central depository by the participants on behalf of the sub‑account holders so as to record the title of the sub‑account holders to book‑entry securities entered in such sub‑accounts;
+(b) transfers of such book‑entry securities shall be effected electronically or by any similar means; and
+(c) pledging of such book‑entry securities may be effected in accordance with section 12.
+(2) Where any securities are issued to or registered in the name of a central depository or transferred by endorsement to or deposited with a central depository, such securities shall, in accordance with the regulations, be entered in the relevant accounts or sub‑accounts, as the case may be, as book‑entry securities.
+(3) Notwithstanding anything contained in sub-section (1), a participant may, with the written authorisation of his clients, enter book‑entry securities beneficially owned by the clients in his own account without establishing sub-accounts in the names of such clients in the central depository system:
+Provided that the central depository may, at its discretion, enquire whether such authorisation has been obtained by the participant.
+(4) Subject to the provisions of this Act, a central depository system shall be operated by a central depository for holding book‑entry securities as a nominee for account‑holders and for facilitating the transfer of such book‑entry securities:
+Provided that nothing containing herein shall be construed as preventing a central depository from holding book‑entry securities, as a beneficial owner of such securities, in its own account opened and maintained on its own central depository system.
+(5) The title to any book‑entry securities entered in an account shall vest in the account holder and the title to any book‑entry securities entered in a sub­account shall vest in the sub‑account holder.
+(6) The central depository system of a central depository shall handle such securities as book‑entry securities as are declared as such by the central depository.
+(7) Different types of accounts and sub‑accounts for different classes of persons may be opened with a central depository in accordance with the regulations.

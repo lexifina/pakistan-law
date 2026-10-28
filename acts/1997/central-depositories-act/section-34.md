@@ -1,0 +1,1 @@
+34. Amendment of Ordinance XLVII of 1984.—As from the date of commencement of this Act, sections 2, 3, 74, 77 and 209 of the Companies Ordinance, 1984,( XLVII of 1984), shall have effect subject to the amendments specified in the Schedule to this Act

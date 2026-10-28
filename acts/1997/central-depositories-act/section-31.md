@@ -1,0 +1,3 @@
+31. Punishment and adjudication of fine or penalty.—(1) A fine for any offence under, or contravention of any provisions of, this Act may be adjudged and imposed by any member of the Authority.
+(2) The fine as aforesaid shall be imposed after giving the person concerned an opportunity to show cause why he should not be punished for the alleged offence or contravention and, if he so requests, after giving him a reasonable opportunity of being heard personally or through such person as may be prescribed in this behalf.
+(3) Where imprisonment is provided for any offence under or contravention of any provisions of this Act, it shall be adjudged by a court not inferior to that of a court of session.
