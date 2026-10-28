@@ -1,0 +1,2 @@
+7. Inspection. (1) The Director or any other person authorized by him in this behalf may inspect any unrecognized private educational institution and may give advice or make suggestions for the improvement of the institution.
+(2) The note of inspection under the last preceding sub-section shall be recorded in a log book to be kept by the person to whom the certificate of registration has been granted, and such person shall comply with the directions given in the inspection note within sixty days of the recording of the note.
