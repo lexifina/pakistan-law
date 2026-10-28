@@ -1,0 +1,1 @@
+3. Establishment of the Fund. As soon as may be, after the commencement of this Act, the Federal Government shall establish the National Fund for Cultural Heritage to carry out the purposes of this Act.
