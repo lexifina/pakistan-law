@@ -1,0 +1,1 @@
+12. Power to exempt. The Federal Government may, by notification in the official Gazette, exempt any person or class of persons from all or any of the provisions of this Act or the rules made thereunder.
