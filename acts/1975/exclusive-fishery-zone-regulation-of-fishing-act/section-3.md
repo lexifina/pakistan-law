@@ -1,0 +1,1 @@
+3. Fishing without licence prohibited. No person shall, for the purpose of fishing, operate a fishing craft or use any kind of fishing gear within the Zone except under the authority of a licence granted by the licencing authority nor otherwise than in accordance with the terms and conditions of such licence.

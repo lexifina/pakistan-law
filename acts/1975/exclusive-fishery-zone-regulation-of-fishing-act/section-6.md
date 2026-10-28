@@ -1,0 +1,1 @@
+6. Closed season and prohibited area. Notwithstanding anything contained in this Act, the Federal Government may, by notification in the official Gazette, declare any period to be period during which, and any area to be an area within which, fishing of all or any specified description of fish shall be prohibited in the Zone.

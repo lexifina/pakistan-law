@@ -1,0 +1,1 @@
+11. Burden of proof. Where any person is prosecuted for doing any act or being in possession of anything without lawful authority or licence, the burden of proving that he has such authority or licence shall lie on that person.

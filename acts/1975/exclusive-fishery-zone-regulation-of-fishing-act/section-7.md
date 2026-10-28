@@ -1,0 +1,1 @@
+7. Power to search. Any Fishery Officer may search any fishing craft or landing ground in or on which he has reason to believe to be concealed any fish caught or taken, or anything used, in contravention of any provision of this Act or the rules.
