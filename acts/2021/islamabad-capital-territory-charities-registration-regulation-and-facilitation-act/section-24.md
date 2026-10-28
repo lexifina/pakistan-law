@@ -1,0 +1,1 @@
+24. Power to make rules.— The Government may, by notification in the official Gazette, make rules, not inconsistent with any provision of this Act, for carrying into effect the provisions of this Act.

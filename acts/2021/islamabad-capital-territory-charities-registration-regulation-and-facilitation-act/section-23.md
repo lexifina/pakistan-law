@@ -1,0 +1,1 @@
+23. Delegation of powers.— The Government may, by notification in the official Gazette, delegate all or any of its powers under this Act, either generally or in respect of such charity or class of charities as may be specified in the notification, to any of its officers.

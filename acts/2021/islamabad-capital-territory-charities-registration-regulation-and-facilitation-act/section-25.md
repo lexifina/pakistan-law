@@ -1,0 +1,1 @@
+25. Power to make regulations.— The chief commissioner Islamabad Capital Territory may make regulations, not inconsistent with any of the provisions of this Act and of the rules made thereunder, to carry out purposes of this Act.

@@ -1,0 +1,1 @@
+22. Power to amend the Schedules.— The Government may, by notification in the official Gazette, amend the Schedules so as to amend therein or omit therefrom or add thereto any field of social welfare service or, as the case may be, offences of any law.
