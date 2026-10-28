@@ -1,0 +1,4 @@
+10. Advisory Committees.—(1) The Board shall establish as many Advisory committees as it deems appropriate for various trades and subjects and shall be responsible for improving the existing SPS standards, monitoring maximum residual limits (MRLs) of pesticides and other chemicals, assessing the storage and post-harvest losses, improvement in farm practeices, transportation, inter-regional trade of goods, providing training and awareness, provincial coordination or and carrying out any other functions as directed by the Authority.
+(2) The Board shall establish the operational guidelines for the advisory committees.
+(3) The advisory committee shall comprise of representatives of the Federal and provincial governments, experts in the subject area and relevant stakeholders from public and private sector.
+(4) The Board shall appoint the convener of the advisory committee from amongst its members.

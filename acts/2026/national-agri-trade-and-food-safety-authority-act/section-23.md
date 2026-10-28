@@ -1,0 +1,1 @@
+23. Disposal of forfeited goods.—Any goods forfeited on conviction of a person by the Court under this Act shall be disposed of by the Authority at the cost of the convicted person or business operator as the case may be, in the prescribe manner.

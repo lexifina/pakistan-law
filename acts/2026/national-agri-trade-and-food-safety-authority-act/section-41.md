@@ -1,0 +1,1 @@
+41. Power to make regulations.—The Authority with the previous approval of the Federal Government may by notification in the official Gazette make regulations for carrying out the purposes of this Act.

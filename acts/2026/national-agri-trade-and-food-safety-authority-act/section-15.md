@@ -1,0 +1,2 @@
+15. Appointment of authorized officers.—(1) The Authority may appoint such number of officers as authorized officers as may be necessary for the performance of its functions under this Act.
+(2) Subject to the provisions of this Act and the regulations made thereunder, the Authority may confer the powers of the Authorized Officers, as may be prescribed, upon any officers of the Authority, Federal Government, Provincial Government or any other statutory entity established by the Federal or Provincial government.

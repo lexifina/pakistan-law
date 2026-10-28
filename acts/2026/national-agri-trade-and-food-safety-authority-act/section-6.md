@@ -1,0 +1,1 @@
+6. Delegation.—The Authority may delegate any of its powers and functions under this Act to the Director General or any authorized officer, except section 42, under this Act, subject to such conditions as may be prescribed.
