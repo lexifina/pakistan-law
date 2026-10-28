@@ -1,0 +1,10 @@
+3. Establishment and Incorporation of the University. —(1) There shall be established a University to be called the Ibadat International University located at Islamabad, in the Private sector.
+(2) The University shall consist of the following, namely: —
+(a) the Patron, Chairman, Vice Chairman, the members Board of Governors, the members of Executive Committee, the Rector, the Deans and such other officers as may be prescribed;
+(b) the members of the authorities of the University established under section 23;
+(c) all University teachers and persons recognized as students of the University in accordance with terms prescribed from to time; and
+(d) all other full-time officers and members of the staff of the University.
+(3) The University shall be a body corporate by the name of the lbadat International University, Islamabad and shall have perpetual succession and a common seal, and may sue and be sued by the said name:
+(4) The University shall be competent to acquire and hold property, both movable and immovable, and to lease, sell or otherwise transfer any movable and immovable property which may have become vested in or been acquired by it.
+(5) Notwithstanding anything contained in any other law for the time being in force, the University shall have academic, financial and administrative autonomy, including the power to employ officers, teachers and other employees on such terms as may be prescribed, subject to the terms of this act and the Higher Education Commission Ordinance, 2002 (LIII of 2002). In particular, andwithout prejudice to the authority granted to the Commission by the law, the Government or an authority or auditor appointed by the Government shall haveno power to question the policy underlying the allocation of resources approved by the Board of Governors in the annual budget of the University.
+(6) All properties, rights and interests of whatever kind, used, enjoyed, possessed, owned or vested in, or held in trust by or for any of its constituent colleges shall pass to the University established under this act.
