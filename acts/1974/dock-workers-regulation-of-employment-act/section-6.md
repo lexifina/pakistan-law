@@ -1,0 +1,1 @@
+6. Recovery of money due.___Any money due from any person, board, organisation or committee under sub-section (1) or sub-section (2) of section 5 shall be recoverable as an arrear of land revenue on the request of the body nominated by the Federal Government under the said sub-section (1).
