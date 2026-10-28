@@ -1,0 +1,1 @@
+42. Appeal to the Court.__ Any person aggrieved by an order of the Commission comprising two or more Members or of the Appellate Bench of the Commission may within sixty days of the communication of the order, prefer appeal to the Competition Appellate Tribunal.

@@ -1,0 +1,2 @@
+17. Term of office.__ The Chairman and Members of the Commission shall be appointed for a term of three years on such salary, terms and conditions of service as the Federal Government may by rules prescribe:
+Provided that the Chairman and Members shall be eligible for re-appointment for such term or terms but shall cease to hold office on attaining the age of sixty-five years or the expiry of the term whichever is earlier.

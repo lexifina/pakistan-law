@@ -1,0 +1,3 @@
+53. Assistance and advice to the Commission.__ (1) The Commission may seek the assistance of any person, authority or agency for the performance of its functions under this Act.
+(2) All officers of an agency and any person whose assistance has been sought by the Commission in the performance of its functions shall render such assistance to the extent it is within their power or capacity.
+(3) Subject to sub-section (3) of section 35, no statement made by a person or authority in the course of giving evidence before the Commission or its staff shall use against him or subject such person or authority to civil or criminal proceedings except for prosecution of such person or authority for giving false evidence.

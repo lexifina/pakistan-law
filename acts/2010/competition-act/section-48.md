@@ -1,0 +1,1 @@
+48. Indemnity.__ Subject to sub-section (3) of section 35 no suit, prosecution or other legal proceeding shall lie against the commission or any Member, officer or servant of the Commission for anything in good faith done or intended to be done under this Act or any regulations or order made thereunder.

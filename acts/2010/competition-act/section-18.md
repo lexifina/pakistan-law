@@ -1,0 +1,1 @@
+18. Restriction on employment of the Chairman and other Members in certain cases.__ The Chairman and other Members shall not, for a period of one year from the date on which they cease to hold office, accept any employment in, or connected with the management or administration of, any undertaking with has been a party to any investigation before the Commission under this Act.

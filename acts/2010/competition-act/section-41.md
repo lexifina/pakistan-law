@@ -1,0 +1,5 @@
+41. Appeal to the Appellate Bench of the Commission.__ (1) An appeal shall lie to an Appellate Bench of the Commission in respect of an order made by any Member or authorized officer of the Commission. The person aggrieved by such order may, within thirty days of the passing of the order submit an appeal, to the Appellate Bench of the Commission.
+(2) The Commission shall constitute Appellate Benches comprising not less than two Members to hear appeals under sub-section (1).
+(3) The decisions of the Appellate Bench shall be made unanimously or by a majority of votes if the Appellate Bench comprises of more than two members. In the event of a split verdict, the original order appealed against shall hold and have effect as the final order of the Commission.
+(4) No Member shall be included in an Appellate Bench who has participated or been involved in the decision being appealed against.
+(5) The form in which an appeal is to be filed and the fees to be paid therefore and other related matters shall be prescribed by rules.

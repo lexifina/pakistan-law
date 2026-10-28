@@ -1,0 +1,1 @@
+56. Powers of the Federal Government to issue directives.__ The Federal Government may, as and when it considers necessary, issue policy directives to the Commission, not inconsistent with the provisions of this Act, and the Commission shall comply with such directives.

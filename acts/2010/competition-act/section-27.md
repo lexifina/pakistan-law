@@ -1,0 +1,1 @@
+27. Officers and employees, etc., to be public servants.__ The Chairman, Members, employees, experts, consultants and advisers of the Commission authorized to perform any function or exercise any power under this Act shall be deemed to be public servants within the meaning of section 21 of the Pakistan Penal Code, 1860 (Act XLV of 1860).

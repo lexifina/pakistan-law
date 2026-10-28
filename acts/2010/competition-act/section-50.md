@@ -1,0 +1,3 @@
+50. Sharing and supply of information.__ In order that information relevant to the performance of its functions is available to the Commission and for carrying out the purposes of this Act,___
+(a) all offices and agencies of the Federal Government and Provincial Government shall supply free of cost or charges information requested by the Commission in the discharge of its functions under this Act; and
+(b) the State Bank of Pakistan, Security and Exchange Commission of Pakistan, the Central board of Revenue, the Federal Bureau of Statistics and all regulatory authorities shall arrange to provide requisite information as permissible under their own laws to the Commission, from time to time, at its request in the discharge of its functions under this Act.

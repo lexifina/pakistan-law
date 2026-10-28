@@ -1,0 +1,1 @@
+49. Agreement for exchange of information.__ The Commission may, with approval of the Federal Government, enter into agreement with competition agencies in any part of the world for the exchange and assistance in performance of its function under this Act.
