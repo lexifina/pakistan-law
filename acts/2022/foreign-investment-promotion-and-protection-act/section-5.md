@@ -1,0 +1,1 @@
+5. Investment agreement.— Any agreement entered into between an investor and one or more concerned Governments in respect of a qualified investment providing investment incentives that are protected benefits shall be deemed to be an investment agreement that has been entered into pursuant to this Act.
