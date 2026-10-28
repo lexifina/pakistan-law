@@ -1,0 +1,4 @@
+13. Report to the sub-Divisional Magistrate and punishment.- [^18][(1) If the notice delivered under the last preceding section is not complied with, the Superintendent of Vaccination or other person authorised under section 12 shall report the matter to a Magistrate of the first class who shall thereupon summon the person, parent or guardian to whom the notice was issued to comply with the notice within a time to be fixed by the Magistrate.
+(2) If such person, parent or guardian fails to comply with the orders of the Magistrate passed under sub-section (1), then the Magistrate may punish such person, parent or guardian with simple imprisonment for a term which may extend to three months or with fine which may extend to one hundred rupees, or with both.]
+
+[^18]: Substituted by the West Pakistan Ordinance No. XVI of 1969, s.12.
