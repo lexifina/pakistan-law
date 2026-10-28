@@ -1,0 +1,1 @@
+5. Bar to legal proceedings. No suit or legal proceedings shall lie against Government or the Director, or any other officer or member of the Anti-Corruption Establishment in respect of anything in good faith done or intended to be done under this Ordinance.
