@@ -1,0 +1,1 @@
+27. Power to make regulations.― The Board may, with the prior approval of the Federal Government, by notification in the official Gazette, make regulations, not inconsistent with this Ordinance and the rules made thereunder, for carrying out the purposes of this Ordinance.

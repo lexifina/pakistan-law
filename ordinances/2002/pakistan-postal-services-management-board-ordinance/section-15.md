@@ -1,0 +1,1 @@
+15. Preparation of plans.―The Board shall, from time to time, prepare plans and, if necessary, prospective plans, for the development of postal and other services and for the furtherance of its purposes and functions under this Ordinance and matters incidental thereto.

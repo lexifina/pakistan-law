@@ -1,0 +1,2 @@
+23. Submission of yearly reports.―(1) The Board shall submit to the Federal Government, as soon as possible after the end of every financial year but before the 30th September a report on the conduct of its affairs for the year.
+(2) The Federal Government may require the Board to furnish to it with any report, return, statement, estimates and statistics on any subject and any other document or any other information regarding any matter under the control of the Board.
