@@ -1,0 +1,8 @@
+24. Power to deal with postal articles containing goods contraband or liable to duty.
+[^48][Except as otherwise provided in this Act, where a postal article suspected to contain any goods of which the import by post the transmission by post is prohibited by or under any enactment for the time being in force,] or anything liable to duty, is received for delivery at a post office, the Officer in charge of the post office shall send a notice in writing to that addressee inviting him to attend, either in person or by agent, within a specified time at the post office, and shall in the presence of the addressee or his agent, or if the addressee or his agent fails to attend as aforesaid then in his absence, open and examine the postal article:
+Provided, first, that, if the Director General so directs in the case of any post office or class of post office, the officer in charge of the post office shall call in two respectable persons as witnesses before he opens a postal article in the absence of the addressee or his agent:
+Provided, secondly, that in all cases a postal article, after being opened under this section shall be delivered to the addressee, unless it is required for the purpose of any further proceeding under this or any other law or enactment for the time being in force, and that the opening of the postal article and the circumstances connected the therewith shall be immediately reported the Post Master General.
+[^49]* * * * * * *
+
+[^48]: Subs. by Act 3 of 1912, s. 4, for “Where a postal article suspected to contain any contraband goods”.
+[^49]: The third proviso was rep. by the Indian Post Office (Amdt.) Act, 1921 (15 of 1921), s. 2.

@@ -1,0 +1,13 @@
+27. Power to deal with postal articles from abroad bearing fictitious or previously used
+stamps.___(1) Where a postal article is received by post from any place beyond the limits of [^55][Pakistan]___
+(a) bearing a fictitious postage stamp, that is to say, any facsimile or imitation or representation of a postage stamp, or
+(b) purporting to be prepaid with any postage stamp which has been previously used to prepay any other postal article, the officer in charge of the post office at which the postal article is received, shall send a notice to the addressee inviting him to attend, either in person or by agent, within a specified time, at the post office to receive delivery of the postal article.
+(2) If the addressee or his agent attends at the post office with in the time specified in the notice and consents to make known to the officer in charge of the post office the name and address of the sender of the postal article and to redeliver to the officer aforesaid the portion of the postal article which bears the address and the fictitious or previously used postage stamp, or, if the postal article is inseparable from the stamp, the entire postal article, the postal article shall be delivered to the addressee or his agent.
+(3) If the addressee or his agent fails to attend at the post office within the time specified in the notice, or, having attended within that time, refuses to make known the name and address of the sender or to redeliver the postal article or portion thereof as required by sub-section (2), the postal article shall not be delivered to him, but shall be disposed of in such manner as the [^65][Federal Government] may direct.
+Explanation.___For the purposes of this section, the expression “postage stamp” includes any postage stamp for denoting any rate or duty of postage of any[^66]* * * foreign country [^67][and the impression of any stamping machine provided or authorised for the like purpose by or under the authority of the Government of such [^68]* * * country].
+
+[^55]: Subs. by the Central Laws (Statute Reform) Ordinance, 1960 (21 of 1960), s. 3 and 2nd Sch. (with effect from the 14th October, 1955), for “the Provinces and the Capital of the Federation”, which had been subs. by A.O., 1949, Arts. 3(2)4, “British India”.
+[^65]: Subs. by F.A.O., 1975, Art. 2 and Table, for “Central Government”, which had been subs, by A.O, 1937, for “G, G. in C.”,
+[^66]: The words “part of her Majesty’s dominions or of any [Acceeding State] or” omitted by the Federal Laws (Revision and Declaration) Ordinance, 1981 (27 of 1981), s. 3 and Second Sch.
+[^67]: Ins, by the Indian Post Office (Amendment) Act, 1924 (16 of 1924) section 3.
+[^68]: The words “part, State or” omitted by Ordinance 27 of 1981 (s.) 3 and Second Sch.

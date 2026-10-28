@@ -1,0 +1,3 @@
+13. Customs duty paid by the Post Office to be recoverable as postage. When a postal article, on which any duty of customs is payable, has been received by post from any place beyond the limits of [^33][Pakistan], and the duty has been paid by the postal authorities at any customs-port or elsewhere, the amount of the duty shall be recoverable as if it were postage due under this Act.
+
+[^33]: Subs. by the Central Laws (Statute Reform) Ordinance, 1960 (21 of 1960), s. 3 and 2nd Sch. (with effect from the 14th October, 1955, for “the Provinces and the Capital of the Federation” which had been subs. by A.O. 1949. Arts. 3(2) and 4, for “British India”.

@@ -1,0 +1,2 @@
+52. Penalty for theft, dishonest misappropriation, secretion, destruction or throwing
+away of postal articles. Whoever, being an officer of the Post Office, commits theft in respect of, or dishonestly misappropriates, or, for any purpose whatsoever, secretes, destroys or throws away, any postal article in course of transmission by post or anything contained therein, shall be punishable with imprisonment for a term which may extend to seven years, and shall also be punishable with fine.

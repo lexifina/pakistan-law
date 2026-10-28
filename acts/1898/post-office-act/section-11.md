@@ -1,0 +1,3 @@
+11. Liability for payment of postage.___(1) The addressee of a postal article on which postage or any other sum chargeable under this Act is due, shall be bound to pay the postage or sum so chargeable on his accepting delivery of the postal article, unless he forthwith returns it unopened:
+Provided that, if any such postal article appears to the satisfaction of the Post Master General to have been maliciously sent for the purpose of annoying the addressee, he may remit the postage.
+(2) If any postal article on which postage or any other sum chargeable under this Act is due, is refused or returned as aforesaid, or if the addressee is dead or cannot be found, then the sender shall be bound to pay the postage or sum due thereon under this Act.

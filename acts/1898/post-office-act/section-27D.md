@@ -1,0 +1,1 @@
+27D. Jurisdiction barred. No order passed or action taken under section 27B shall be called in question in any Court otherwise than in accordance with the second proviso to sub-section (3) of that section.]
