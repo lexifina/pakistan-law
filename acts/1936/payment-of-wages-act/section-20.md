@@ -1,0 +1,2 @@
+20. Penalty for offences under the Act.___ (1) Whoever being responsible for the payment of wages to an employed person contravenes any of the provisions of any of the following sections, namely, section 5 and sections 7 to 13, both inclusive, shall be punishable with fine which may extend to five hundred rupees.
+(2) Whoever contravenes the provisions of section 4, section 6 or section 25 shall be punishable with fine which may extend to two hundred rupees.

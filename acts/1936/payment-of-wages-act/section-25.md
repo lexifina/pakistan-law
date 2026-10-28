@@ -1,0 +1,1 @@
+25. Display by notice of abstracts of the Act. The person responsible for the payment of wages to persons employed in a factory shall cause to be displayed in such factory a notice containing such abstracts of this Act and of the rules made thereunder in English and in the language of the majority of the persons employed in the factory, as may be prescribed.
