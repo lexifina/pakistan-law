@@ -1,0 +1,1 @@
+14. Defect or irregularity in appointment.––No act, proceeding or decision of the board shall be invalid by reason only of the existence of a vacancy in, or defect or irregularity in the constitution of the board. _________________________________________________________________________

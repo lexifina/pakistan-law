@@ -1,0 +1,3 @@
+26. Annual report.––(1) A state-owned enterprise must submit to the Federal Government a report on its operations and its subsidiaries for the financial year to which it relates, not later than four months after the end of that financial year in the form prescribed in Schedule-VI.
+(2) The annual report may omit information that the board of the state-owned enterprise reasonably considers is likely to materially prejudice the commercial interests of the state-owned enterprise or a subsidiary if disclosed.
+(3) The Board shall submit a report to the Federal Government on the information omitted from the annual report under sub-section (2) and the reasons for such omission and such report shall be confidential.

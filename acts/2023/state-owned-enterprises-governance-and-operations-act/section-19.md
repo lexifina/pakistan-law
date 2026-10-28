@@ -1,0 +1,4 @@
+19. Responsibility to the shareholders and the state-owned enterprise.––(1) The Board shall ensure its obligations to shareholders of the state-owned enterprise are fulfilled and they are duly informed in a timely manner of all material events through shareholder meetings and other communications as necessary.
+(2) The Board shall develop and implement a code of conduct for the members of the Board, as well as the employees of the state-owned enterprise for the matters set out in Schedule-V of this Act, with a view to ensure the highest professional standards and corporate values are in place:
+Provided that the code of conduct developed under this sub-section shall be effectively communicated within the state-owned enterprise together with supporting policies and procedures,
+including adequate systems and controls for the identification and redressal of grievances arising from unethical practices.
