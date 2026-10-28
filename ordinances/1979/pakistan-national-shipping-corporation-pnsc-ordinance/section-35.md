@@ -1,0 +1,2 @@
+35. Reserves and dividends.⸺(1) Out of its earnings, the Corporation shall establish a general reserve and create from time to time such other special reserves as the Board may determine.
+(2) After making provision for interest, taxes, bad and doubtful debts, depreciation of assets, maintenance of reserves and any other matter determined by the Board, the Corporation in general meeting may declare a dividend out of the profits accruing in a year, so however that the dividend so declared shall not exceed the dividend as recommended by the Board.

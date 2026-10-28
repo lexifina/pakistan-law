@@ -1,0 +1,2 @@
+5. Establishment and incorporation of Pakistan National Shipping Corporation.⸺ (1) As from the first day of January, 1979, there shall be established by virtue of this Ordinance a new corporation, to be called the Pakistan National Shipping Corporation.
+(2) The Corporation shall be a body corporate having perpetual succession and a common seal with power, subject to the provisions of this Ordinance, to acquire, hold and dispose of property, both movable and immovable, and shall by the name assigned to it by sub-section (1) sue and be sued.

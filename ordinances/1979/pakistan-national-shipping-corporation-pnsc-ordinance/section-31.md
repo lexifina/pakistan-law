@@ -1,0 +1,1 @@
+31. Maintenance of accounts.⸺The Corporation shall maintain its accounts in such manner as may be required for a company under the Companies Act, 1913 (VII of 1913), and the Securities and Exchange Ordinance, 1969 (XVII of 1969).
