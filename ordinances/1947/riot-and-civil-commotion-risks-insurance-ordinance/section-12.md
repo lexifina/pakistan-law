@@ -1,0 +1,8 @@
+12. Powers of [^8][Federal Government] to obtain information.___(1) Any person authorised in this behalf by the [^8][Federal Government] may, for the purpose of ascertaining whether or not the requirements of this Ordinance have been complied with___
+(a) require any person carrying on in any part of [^9][Pakistan] the business of fire insurance or an owner of property to submit to him such accounts, books or other documents or to furnish to him such information as he may reasonably think necessary, or
+(b) at any reasonable time enter any premises occupied by any person carrying on in any part of the [^9][Pakistan] any such business or by such owner of the property, and inspect the premises and require any person found therein who is for the time being in charge thereof to produce to him and allow him to examine such accounts, books or other documents as may relate to the business carried on in the premises or to furnish to him such information as he may reasonably think necessary.
+(2) Whoever willfully obstructs any person in the exercise of his powers under this section or fails without reasonable excuse to comply with a request made thereunder shall, in respect of each occasion on which any such obstruction or failure takes place, be punishable with fine which may extend to five hundred rupees.
+(3) Whoever in purporting to comply with his obligations under this section, knowingly or recklessly makes a statement false in a material particular, shall be punishable with fine which may extend to one thousand rupees.
+
+[^8]: Subs. by the Federal Adaptation of Laws Order, 1975 (P. O. 4 of 1975), and Table.
+[^9]: Subs. by the Central Laws (Adaption) Order, 1961 (P.O. No. 1 of 1961), Art. 2 and Sch., (with effect from the 23rd March, 1956).
