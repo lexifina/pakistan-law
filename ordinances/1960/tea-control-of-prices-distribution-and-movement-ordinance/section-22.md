@@ -1,0 +1,1 @@
+22. Attempts and abetments.— Any person who attempts to contravene, or abets the contravention of any provision of this Ordinance or any rule or order made thereunder shall be deemed to have contravened the provisions of this Ordinance.

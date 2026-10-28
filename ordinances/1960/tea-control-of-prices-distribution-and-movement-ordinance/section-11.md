@@ -1,0 +1,1 @@
+11. Power to order sale.—The Controller-General may by order in writing require any approved dealer to sell to such person or persons such quantity of tea as may be specified in the order, and may issue such incidental or supplementary instructions in writing to any approved dealer in regard to the sale thereof as he thinks fit.

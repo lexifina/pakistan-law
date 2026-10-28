@@ -1,0 +1,3 @@
+24. False statements.— Any person who,___
+(a) when required by or under this Ordinance to make any statement or furnish any information, makes any statement or furnishes any information which is false in any material particular and which he knows or has reasonable cause to believe to be false, or does not believe to be true, or
+(b) makes any statement as aforesaid in any book, account, record, declaration, return or other document which he is required by or under this Ordinance to maintain or furnish, shall be punishable with imprisonment for a term which may extend to three years or with fine or with both.

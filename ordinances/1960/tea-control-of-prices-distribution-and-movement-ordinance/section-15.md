@@ -1,0 +1,1 @@
+15. Declaration of godowns, store-houses and ware-houses.— Any dealer may be required by the Controller-General to declare the situation and descriptive particulars of any place other than his usual place of business where he keeps or stores tea, and after making such declaration he shall not keep or store tea elsewhere than at such place or his usual place of business.

@@ -1,0 +1,1 @@
+7. Duty to declare possession of excess stocks.—Any person having in his possession a quantity of tea exceeding that permitted by or under this Ordinance shall forthwith report the fact to the Controller-General and shall take such action as to the storage, distribution and disposal of the excess quantity as the Controller-General may direct.
