@@ -1,0 +1,1 @@
+31. Allocation of funds by Federal and Provincial Governments.__ The Federal Government and Provincial Governments shall, in their annual budgets, make provisions for funds for the purposes of carrying out the activities and programmes set out in its disaster management plan.

@@ -1,0 +1,1 @@
+12. Relief in loan repayment, etc.— Subject to such directions as the National Commission may give, the National Authority may, in cases of disasters of severe magnitude, give directions regarding relief in repayment of loans or for grant of fresh loans to the persons affected by disaster on concessional terms as may be appropriate.

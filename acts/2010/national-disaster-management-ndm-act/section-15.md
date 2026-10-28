@@ -1,0 +1,3 @@
+15. Establishment of Provincial Disaster Management Authority.__ (1) Each Provincial Government shall, as soon as may be after issue of the notification under sub-section (1) of section 3, by notification in the official Gazette, establish a Provincial Disaster Management Authority for the Province.
+(2) The Provincial Authority shall consist of such number of members as may be prescribed and shall include as its Chairperson the Provincial Director General or Provincial Relief Commissioner.
+(3) There shall be a Director General of the Provincial Authority, to be appointed by the Provincial Government, with the status and powers on such terms and conditions, as may be prescribed by the Provincial Government.
