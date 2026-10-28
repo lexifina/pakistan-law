@@ -1,0 +1,1 @@
+33. Indemnity.—No suit, prosecution or other legal proceeding shall lie against the Federal Government or any Provincial Government or local authority or any other person exercising any power or performing any function under this Act or for anything which is in good faith done or intended to be done under this Act.

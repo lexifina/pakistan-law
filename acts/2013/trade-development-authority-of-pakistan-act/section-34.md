@@ -1,0 +1,1 @@
+34. Power of the Federal Government to issue directives.— The Federal Government may, as and when necessary, issue directives to the Authority on matters of policy and such directives shall be binding on the Authority and if a question arises as to whether any matter is a matter of policy, the decision of the Federal Government shall be final.

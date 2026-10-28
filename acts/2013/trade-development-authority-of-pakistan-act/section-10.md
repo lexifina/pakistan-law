@@ -1,0 +1,2 @@
+10. Delegation of the Authority's functions or powers.—(1) The Authority may, subject to such conditions and limitations as the Board may deem fit to impose, delegate any of its functions or powers to one or more of any officer of the Authority.
+(2) The delegation of powers under this section shall not diminish the responsibility or prevent the concurrent performance or exercise by the Authority of the functions or powers so delegated.
