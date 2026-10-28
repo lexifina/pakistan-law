@@ -1,0 +1,1 @@
+4. Saving. Nothing in this Act shall be deemed to prevent the Government from granting to any person such individual service allowance as it may deem fit and requiring such person to discharge such duties and perform such functions as Government may from time to time direct.

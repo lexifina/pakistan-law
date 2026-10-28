@@ -1,0 +1,1 @@
+5. Penalty. Whoever contravenes any provision of this Act shall be punishable with imprisonment of either description for a term which may extend to three years, or with fine which may extend to ten thousand rupees, or with both.
