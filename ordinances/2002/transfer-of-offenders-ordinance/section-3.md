@@ -1,0 +1,1 @@
+3. Application of the Ordinance:___ Where an agreement for mutual transfer of offenders has been entered into between Pakistan and any specified country, whether before or after the commencement of this Ordinance, the Competent Authority shall, by notification in the official Gazette, declare that the provisions of this Ordinance shall apply in respect of such country.

@@ -1,0 +1,4 @@
+5. Application to be made by an appropriate authority:___ (1) An application made to the Competent Authority by an appropriate authority of specified country for the transfer to Pakistan of an offender who claims to be a citizen of Pakistan shall be entertained if-
+(a) such application is made in the form prescribed for that purpose;
+(b) a copy of the order, decision or judgment by which such offender was sentenced to the term of imprisonment, certified as correct by the appropriate authority of such specified country, is attached to the application.
+(2) Where the Competent Authority, by order, allows an application made under sub-section (1), the copy of the order, decision or judgment, as the case may be, attached to an application shall be proof of the facts stated therein and shall have effect as if it were an order, decision or judgment, as the case may be, passed by a court of competent jurisdiction in Pakistan.
