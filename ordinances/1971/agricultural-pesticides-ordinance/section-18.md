@@ -1,0 +1,8 @@
+18. Report of Government Analyst.—(1) The Government Analyst to whom a sample of any pesticide has been forwarded by an Inspector under sub-section (2) of section 17 deliver to the Inspector, in triplicate in the prescribed form assigned report of the result of the test or analysis conducted by him.
+(2) The Inspector shall deliver one copy of the report received by him to the person from whose possession the sample was taken and shall send one copy to the 1[Federal Government].
+(3) Any document purporting to be a report signed by the Government Analyst of an analysis conducted by him under this Chapter shall be conclusive evidence of the particulars stated therein unless the person to whom the report has been delivered under sub-section (2) disputes the correctness of the analysis conducted by the Government Analyst and, within thirty days of the delivery of the report to him, places before the 1[Federal Government] evidence which in his opinion controverts the correctness of such analysis.
+(4) Where the evidence placed before the 1[Federal Government] under sub-section (3) is such as would in its opinion justify a further investigation, it may cause a second part of the same sample to be analysed at the Pesticide Laboratory.
+(5) After the sample forwarded to it by the [^29][Federal Government] has been analysed by the Pesticide Laboratory, the Laboratory shall record the result of the analysis in a certificate of analysis and forward the certificate to the [^29][Federal Government].
+(6) A certificate of analysis prepared by the Pesticide Laboratory shall be conclusive evidence of the facts stated therein.
+
+[^29]: Subs, by F.A.O., 1975 (P.O. No. 4 of 1975), Art. 2 and Table, for "Central Government."
