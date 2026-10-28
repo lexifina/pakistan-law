@@ -1,0 +1,4 @@
+10. Compulsory insurance of buildings. Every company which owns a building, or a building under construction exceeding in value such amount as the [^9][Federal Government] may, by notification in the official Gazette, specify in this behalf, shall, by such date as the[^9][Federal Government] may, by a like notification, specify in this behalf, take out a policy of insurance against war risks issued in accordance with the Scheme whereby the owner is insured in respect of all property insurable under this Ordinance which appertains to the building for a sum not less than the insurable value of such property.
+11. [Compulsory Insurance of ships] Omitted by and shall be deemed to have been omitted by the War Risks Insurance (Amendment) Act, 1972 (XII of 1972), s. 4.
+
+[^9]: Subs. by P. O. No. 4 of 1975, Art. 2 and Table.

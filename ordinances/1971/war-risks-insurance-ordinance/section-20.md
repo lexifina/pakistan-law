@@ -1,0 +1,1 @@
+20. Recovery of arrears of premium instalments. Any instalment of premium due on a policy required to be taken out under any of the Schemes or any sum due under section 13 may be recovered as an arrear of land revenue.
