@@ -1,0 +1,2 @@
+3. Declaration of Harbour areas.—(1) The Federal Government may, by notification in the official Gazette, within the limits of Port Qasim, define the limits of Korangi Fisheries Harbour for the purposes of this Ordinance ; and may, from time to time, by a like notification, alter such limits.
+(2) The limits defined under clause (1) may include any wharves, buildings and other works made on behalf of the public for convenience of traffic, for safety of vessels, or for the improvement, maintenance and good government of the Harbour.

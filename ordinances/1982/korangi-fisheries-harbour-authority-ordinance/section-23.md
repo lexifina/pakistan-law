@@ -1,0 +1,1 @@
+23. Cognizance of offences. No court shall take cognizance of any offence punishable under this Ordinance except on a complaint in writing made by the Authority or an officer authorized for the purpose by the Authority.
