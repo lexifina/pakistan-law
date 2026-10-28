@@ -1,0 +1,9 @@
+[^18][16A. Certain persons to lose and others to retain citizenship.__ (1) All persons who, at any time before the sixteenth day of December, 1971, were citizens of Pakistan domiciled in the territories which before the said day constituted the Province of East Pakistan and who__
+(i) were residing in those territories on that day and are residing therein since that day voluntarily or otherwise shall cease to be citizens of Pakistan;
+(ii) were residing in Pakistan on that day but after that day voluntarily migrated to those territories shall cease to be citizens of Pakistan;
+(iii) were residing in Pakistan on that day and are voluntarily residing therein since that day shall continue to be citizens of Pakistan;
+(iv) were residing in those territories on that day but voluntarily came to Pakistan after that day with the approval of the Federal Government shall continue to be citizens of Pakistan:
+Provided that any persons referred to in clause (i) whose repatriation to Pakistan has been agreed to by the Federal Government and who have not been so repatriated before the commencement of Pakistan Citizenship (Amendment) Ordinance, 1978, shall continue to be citizens of Pakistan.
+(2) Any person who, at any time before the sixteenth day of December, 1971, was a citizen of Pakistan domiciled in the territories which before the said day constituted the Province of East Pakistan and who, being under the protection of a Pakistan passport, was on that day, or is, residing in any country beyond those territories shall not be deemed to be a citizen of Pakistan unless, upon an application made by him to the Federal Government in this behalf, the Federal Government has granted him a certificate that at the date of the certificate he is a citizen of Pakistan.]
+
+[^18]: Ins. by Ordinance No. XI of 1978, s.2.
