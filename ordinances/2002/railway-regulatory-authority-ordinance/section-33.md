@@ -1,0 +1,2 @@
+33. Complaints.___(1) Any interested person may file a written complaint with the Authority against a licensee, for contravention of any provision of this Ordinance, rule, regulation, license or track access agreement.
+(2) The Authority shall, on, receipt of a complaint, provide an opportunity to the complainant as well as to the person against whom such complaint has been made to state its ease before making a decision thereon.

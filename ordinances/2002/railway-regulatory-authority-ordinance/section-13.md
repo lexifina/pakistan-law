@@ -1,0 +1,2 @@
+13. Rates and approved discount schemes.__(1) A license may include provision with respect to rates to be charged for railway services.
+(2) The Authority shall ensure that in the case of a licensee enjoying a monopolistic position, the license contains such provisions necessary for the purpose of securing that any rates which are to be charged are, in the opinion of the Authority, reasonable in all the circumstances of the case.

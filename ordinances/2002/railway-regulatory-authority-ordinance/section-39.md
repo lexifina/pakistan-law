@@ -1,0 +1,1 @@
+39. Winding-up of the Authority.―No provision of any law relating to winding-up of body corporates shall apply to the Authority. The Authority shall only be wound up by Ordinance or Act of Parliament.

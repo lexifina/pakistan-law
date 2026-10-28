@@ -1,0 +1,1 @@
+12. Bidding for license.___ The person in whose favour a license is to be granted shall be selected by the Authority following a transparent and competitive bidding process carried out by the Authority in accordance with the rules.

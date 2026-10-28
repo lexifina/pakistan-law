@@ -1,0 +1,1 @@
+19. Approval of track access agreements.―The railway administration shall not enter into a track access agreement unless it does so pursuant to directions issued under section 18 and such track access agreement has been approved by the Authority.

@@ -1,0 +1,2 @@
+10. Delegation of powers.― The Authority may, by general or special order, delegate to any officer of the Authority the power to exercise on behalf of the Authority any of its powers, duties or functions under this Ordinance subject to such conditions as it may think fit to impose:
+Provided that the powers of the Authority to grant licenses and to issue orders pursuant to section 22, shall only be exercised in a meeting of the Authority.
