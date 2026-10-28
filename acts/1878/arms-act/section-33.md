@@ -1,0 +1,1 @@
+33. Notice and limitation of proceedings. No proceeding other than a suit shall be commenced against any person for anything done in pursuance of this Act, without having given him at least one month’s previous notice in writing of the intended proceeding and of the cause thereof, nor after the expiration of three months from the accrual of such cause.

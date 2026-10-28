@@ -1,0 +1,2 @@
+31. Operation of other laws not barred. Nothing in this Act shall be deemed to prevent any person from being prosecuted under any other law for any act or omission which constitutes an offence against this Act or the rules made under it, or from being liable under such other law to any higher punishment or penalty than that provided by this Act: Provided that no person shall be punished twice for the same offence.
+32. [Power to take census of fire arms.] Omitted by the Federal Laws (Revision and Declaration )Ordinance,1981 (XXVII of 1981), s. 3 and IInd Sch.
