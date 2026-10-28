@@ -1,0 +1,2 @@
+78. What buildings, etc., are to be deemed vacant. (1) For the purposes of sections 76 and 77 no building, tenement or land shall be deemed vacant if maintained as a pleasure resort or town or country house, or be deemed unproductive of rent if let to a tenant who has a continuing right of occupation thereof, whether he is in actual occupation or not.
+(2) The burden of proving all facts entitling any person to claim relief under section 75, or section 76, or section 77, shall be upon him.

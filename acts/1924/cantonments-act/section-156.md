@@ -1,0 +1,4 @@
+156. Examination of milk or washed clothes. The Health Officer may take possession of any milk, clothes or other articles which are or have recently been in the possession of any dairyman on whom a notice has been served under section 152, or of any clothes or other articles which are or have recently been in the possession of any washerman, on whom a notice has been served under section 153, and may subject the same or cause the same to be subjected to such chemical or other process as he may think necessary ; and the [^237][Board] shall pay from the cantonment fund all the costs of the process and shall also pay to the owner of the milk, clothes or [^238][other] articles such sum as compensation for any loss occasioned by such process as may appear to it to be reasonable.
+
+[^237]: Subs. by Act No. XXIV of 1936, s. 69.
+[^238]: Subs. by the Repealing and Amending Act, 1930 (Act No. VIII of 1930) s. 2 and 1st Sch.

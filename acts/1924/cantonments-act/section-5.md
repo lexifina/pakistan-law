@@ -1,0 +1,1 @@
+5.The effect of including area in cantonment. When, by a notification under section 4, any local area is included in a cantonment, such area shall thereupon become subject to this Act and to all other enactments for the time being in force throughout the cantonment and to all notifications, rules, regulations, bye‑laws, orders and directions issued or made thereunder.

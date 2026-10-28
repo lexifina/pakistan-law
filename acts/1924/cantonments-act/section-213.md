@@ -1,0 +1,3 @@
+213. Carrying on trade, etc., without licence or in contravention of section 212. Whoever carries on any trade, calling or occupation for which a licence is required without obtaining a licence therefor or while the licence therefor is suspended or after the same has been cancelled, and whoever, after receiving a notice under section 212, uses or allows to be used any building or place in contravention thereof, shall be punishable with fine which may extend to [^292][five thousand] rupees and, in the case of a continuing offence, with an additional fine which may extend to [^292][two thousand] rupees for every day after the first during which the offence is continued.
+
+[^292]: Subs. by Act No. XLVII of 2023, ss. 68 and 69.

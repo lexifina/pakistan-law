@@ -1,0 +1,3 @@
+228. Wires, etc., laid above surface of ground. In the event of any cable, wire, pipe, drain, sewer or channel being laid or carried above the surface of any land or through, over or up the side of any building, such cable, wire, pipe, drain, sewer or channel shall be so laid or carried as to interfere as little as possible with the rights of the owner or occupier to the due enjoyment of such land or building, and compensation shall be payable by the [^306][Board] in respect of any substantial interference with the right to any such enjoyment.
+
+[^306]: Subs. by Act No. XXIV of 1936, ss. 69 and 57.

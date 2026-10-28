@@ -1,0 +1,1 @@
+11. Incorporation of Cantonment Board. Every Board shall, by the name of the place by reference to which the cantonment is known, be a body corporate having perpetual succession and a common seal with power to acquire and hold property both moveable and immoveable and to contract and shall, by the said name, sue and be sued.

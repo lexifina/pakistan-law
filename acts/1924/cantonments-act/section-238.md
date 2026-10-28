@@ -1,0 +1,11 @@
+238. Removal and exclusion from cantonment of disorderly persons. (1) A Magistrate of the first class, having jurisdiction in a cantonment, on receiving information that any person residing in or frequenting the cantonment__
+(a) is a disorderly person who has been convicted more than once of gaming or who keeps or frequents a common gaming house, a disorderly drinking shop or a disorderly house of any other description, or
+(b) has been convicted more than once, either within the cantonment or elsewhere, of an offence punishable under Chapter XVII of the Pakistan Penal Code (XLV of 1860), or
+(c)[^316][* * * * * * *]
+(d) has been ordered under Chapter VIII of the Code of Criminal Procedure, 1898 (V of 1898), either within the cantonment or elsewhere, to execute a bond for his good behaviour,
+may record in writing the substance of the information received, and may issue a summons to such person requiring such person to appear and show cause why he should not be required to remove from the cantonment and be prohibited from re‑entering it.
+(2) Every summons issued under sub‑section (1) shall be accompanied by a copy of the record aforesaid, and the copy shall be served alongwith the summons on the person against whom the summons is issued.
+(3) The Magistrate shall, when the person so summoned appears before him, proceed to inquire into the truth of the information received and take such further evidence as he thinks fit, and if, upon such inquiry, it appears to him that such person is a person of any kind described in sub‑section (1) and that it is necessary for the maintenance of good order in the cantonment that such person should be required to remove therefrom and be prohibited from re‑entering the cantonment, the Magistrate shall report the matter to the [^317][Officer Commanding the station], and, if the [^317][Officer Commanding the station] so directs, shall cause to be served on such person an order in writing requiring him to remove from the cantonment within such time as may be specified in the order and prohibiting him from re‑entering it without the permission in writing of the [^317][Officer Commanding the station].
+
+[^316]: Omitted by the Federal Laws (Revision and Declaration) Ordinance, 1981 (Ordinance No. XXVIII of 1981), s. 3 and Sch. II.
+[^317]: Subs. by Act No. VII of 1925), s. 14.

@@ -1,0 +1,1 @@
+279. Right of appellant to be heard. No appeal shall be decided under this Chapter unless the appellant has been heard, or has had a reasonable opportunity of being heard in person or through a legal practitioner.

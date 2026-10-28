@@ -1,0 +1,4 @@
+19H. Election to vacant seats.―(1) If a seat of a member becomes vacant during the term of office of a Board, a new member shall be elected through bye-elections and the member elected in bye-elections shall hold office for the remaining portion of the term of the Board.
+(2) If any seat reserved for a member under section l9E through indirect election becomes vacant it shall be filled through bye-elections in the same manner applicable to the indirect election and the member so elected shall hold office for the residual period of the term of the member whose seat has become vacant.
+(3) A vacancy of vice-president shall be filled through bye-election within sixty days of the occurrence of vacancy.
+(4) When the office of vice-president falls vacant, the elected members of a Board shall, by a majority vote, elect an officiating vice-president from amongst the elected members of the Board.

@@ -1,0 +1,1 @@
+242. Powers of inspection by member of a Board. With the previous sanction of the President, any member of a Board may inspect any work or institution constructed or maintained, in whole or part, at the expense of the Board, and any register, book, accounts or other document belonging to, or in the possession of, the Board.

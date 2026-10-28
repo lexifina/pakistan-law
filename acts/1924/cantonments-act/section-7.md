@@ -1,0 +1,6 @@
+7. Disposal of cantonment fund when area ceases to be included in a cantonment. (1) When, by a notification under section 4, any local area forming part of a cantonment ceases to be under the control of a particular [^53][Board] and is immediately placed under the control of some other local authority, such portion of the cantonment fund and other property vesting in the [^53][Board] and such portion of the liabilities of the [^53][Board], as the [^55][Federal Government] may, by general or special order, direct, shall be transferred to that other local authority.
+(2) When, in like manner, any local area forming part of a cantonment ceases to be under the control of a particular [^53][Board] and is not immediately placed under the control of some other local authority, such portion of the cantonment fund and other property vesting in the [^53][Board] shall vest in [^54][Government], and such portion of the liabilities of the [^53][Board] shall be transferred to the [^55][Federal Government], as the [^55][Federal Government] may, by general or special order, direct.
+
+[^53]: Subs. by Act No. XXIV of 1936, s. 69.
+[^54]: Subs. by A.O., 1961, Art. 2. (with effect from the 23rd March, 1956).
+[^55]: Subs. by the Federal Adaptation of Laws Orders, 1975 (P.O No. 4 of 1975), Art. 2 and Table.

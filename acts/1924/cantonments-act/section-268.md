@@ -1,0 +1,2 @@
+## General Penalty Provisions.
+268. General penalty. Whoever, in any case in which a penalty is not expressly provided by this Act, fails to comply with any notice, order or requisition issued under any provision thereof, or otherwise contravenes any of the provisions of this Act, shall be punishable with fine which may extend to two hundred rupees, and, in the case of a continuing failure or contravention, with an additional fine which may extend to twenty rupees for every day after the first during which he has persisted in the failure or contravention.

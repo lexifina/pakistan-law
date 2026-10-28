@@ -1,0 +1,1 @@
+148. Exemption from operation of sections 145 to 147. The provisions of sections 145, 146 and 147 shall not apply in the case of any burial ground which is for the time being managed by or on behalf of the Government.

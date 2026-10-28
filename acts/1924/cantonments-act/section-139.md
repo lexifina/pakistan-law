@@ -1,0 +1,5 @@
+139. Overcrowding of dwelling houses. (1) Where it appears to a [^226][Board] that any building or part of a building in the cantonment which is used as a dwelling house is so overcrowded as to endanger the health of the inmates thereof, it may, after such inquiry as it thinks fit, by notice in writing require the owner or occupier of the building or part thereof, as the case may be, within such time not being less than one month as may be specified in the notice, to abate the overcrowding of the same by reducing the number of lodgers, tenants, or other inmates to such number as may be specified in the notice.
+(2) Any person who fails, without reasonable cause, to comply with a requisition made upon him under sub‑section (1) shall be punishable with fine which may extend to [^228][five hundred] rupees, and, in the case of a continuing offence, to an additional fine which may extend to [^228][one hundred] rupees for every day after the first during which the failure has continued.
+
+[^226]: Subs. by Act No. XXIV of 1936, ss. 69 and 39.
+[^228]: Subs. by Act No. XLVII of 2023, ss.49 and 50.

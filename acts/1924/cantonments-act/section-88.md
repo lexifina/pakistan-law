@@ -1,0 +1,2 @@
+88. Finality of appellate orders. The order of an appellate authority confirming, setting aside or modifying an order in respect of any valuation or assessment or liability to assessment or taxation shall be final:
+Provided that it shall be lawful for the appellate authority, upon application or on its own motion, to review any order passed by it in appeal if application in this behalf is made within three months from the date of the original order.

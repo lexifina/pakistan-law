@@ -1,0 +1,5 @@
+204. Penalty for keeping market or slaughter-house open without licence, etc. (1) Any person who keeps open for public use any market or slaughter‑house in respect of which a licence is required by or under this Act, without obtaining licence therefor, or while the licence therefor is suspended, or after the same has been cancelled, shall be punishable with fine which may extend to [^281][five thousand] rupees and, in the case of a continuing offence, with an additional fine which may extend to [^281][fifty] rupees for every day after the first during which the offence is continued.
+(2) When a licence to open a private market or private slaughter‑house is granted or refused or is suspended or cancelled, the [^280][Board] shall cause a notice of the grant, refusal, suspension or cancellation to be posted in English, and in such other language or languages as it thinks necessary, in some conspicuous place by or near the entrance to the place to which the notice relates.
+
+[^280]: Subs. by Act No. XXIV of 1936, s. 69.
+[^281]: Subs. by Act No. XLVII of 2023, ss. 63, 64 and 65.

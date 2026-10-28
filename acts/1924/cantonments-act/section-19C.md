@@ -1,0 +1,1 @@
+19C. Election on the basis of adult franchise.―The election of members to be elected on general seats of a Board shall be held on the basis of single member constituency and adult franchise through secret ballot.
