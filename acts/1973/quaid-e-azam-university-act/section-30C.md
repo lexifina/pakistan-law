@@ -1,0 +1,2 @@
+30C. Grant of affiliation.—The Syndicate may, after considering the report of the Affiliation Committee, grant or refuse to grant affiliation to an educational institution, and if it grants affiliation, it shall advise the Chancellor to assent to it:
+Provided that affiliation shall not be refused unless the educational institution has been given an opportunity to show cause why affiliation should not be refused on the grounds to be given in writing.

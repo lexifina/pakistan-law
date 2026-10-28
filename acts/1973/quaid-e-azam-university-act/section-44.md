@@ -1,0 +1,1 @@
+44. Removal of difficulties.—(1) If any difficulty arises as to the first constitution or reconstitution of any Authority upon the coming into force of this Act or otherwise in giving effect to the provisions of this Act, the Chancellor may, on the recommendation of the Vice-Chancellor, give appropriate directions to remove such difficulty.
