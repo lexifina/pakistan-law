@@ -1,0 +1,1 @@
+9. Audit of accounts. The accounts of the Council shall be audited by an auditor who is a Chartered Accountant within the meaning of the Chartered Accountants Ordinance, 1961 (X of 1961.), appointed by the Federal Government, in consultation with the Auditor-General of Pakistan, on such remuneration, to be paid by the Council, as the Federal Government may fix.
