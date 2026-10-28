@@ -1,0 +1,1 @@
+21. Capacity of minors to act as guardians. A minor is incompetent to act as guardian of any minor except his own wife or child or, where he is the managing member of an undivided Hindu family, the wife or child of another minor member of that family.

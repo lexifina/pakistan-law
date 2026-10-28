@@ -1,0 +1,1 @@
+6. Saving of power to appoint in other cases.— In the case of a minor who is not an European British subject, nothing in this Act shall be construed to take away or derogate from any power to appoint a guardian of his person or property, or both, which is valid by the law to which the minor is subject.

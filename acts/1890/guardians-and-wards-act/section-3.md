@@ -1,0 +1,6 @@
+3. Saving of jurisdiction of Courts of Wards and Chartered High Courts. This Act shall be read subject to every enactment heretofore or hereafter passed relating to any Court of Wards by [^3][any competent legislature, authority or person] in [^4][Pakistan], and nothing in this Act shall be construed to affect, or in any way derogate from, the jurisdiction or authority of any Court of Wards, or to take away any power possessed by [^5][any High Court [^6][* * *].
+
+[^3]: Subs. by A.O., 1937, for “the G. G. in C. or by a Governor or Lieutenant-Governor in Council”.
+[^4]: Subs. by Ord. 21 of 1960, s. 3 and 2nd Sch. (with effect from the 14th October, 1955), for “the Provinces and the Capital of the Federation”, which had been subs. by A.O., 1949, Arts. 3(2) and 4, for “British India.”
+[^5]: Subs. by A.O., 1937, for “any High Court established under the Statute 24 and 25 Vict, c. 104 (an Act for establishing High Courts of Judicature in India)”.
+[^6]: The words “established in [the Provinces and the Capital of the Federation] by Letters Patent” omitted by Ord. 21 of 1960, s. 3 and 2nd Sch. (with effect from the 14th October, 1955). The words in crotchets were subs. by A. O., 1949, Arts. 3(2) and 4, for “British India.”.

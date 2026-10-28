@@ -1,0 +1,2 @@
+16. Appointment or declaration of guardian for property beyond jurisdiction of the
+Court. If the Court appoints or declares a guardian for any property situate beyond the local limits of its jurisdiction, the Court having jurisdiction in the place where the property is situate shall, on production of a certified copy of the order appointing or declaring the guardian, accept him as duly appointed or declared and give effect to the order.
