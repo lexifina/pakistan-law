@@ -1,0 +1,5 @@
+SCHEDULE
+[See sections 4 (1) and 6 (1)]
+S. No. Column 1 Column 2 1 2 3 1 Maple-Leaf Cement Factory Ltd. State Cement Corporation of Pakistan Ltd. 2 Zeal-Pak Cement Factory Ltd. State Cement Corporation of Pakistan Ltd. 3 White Cement Industries Ltd. State Cement Corporation of Pakistan Ltd. 4 Gypsum & Limestone Quarries, State Cement Corporation of Pakistan Ltd. Daudkhel. 5 Antibiotics (Private) Ltd. Federal Chemical &Ceramic Corporation Ltd. 6 Kurram Chemical Company Ltd. Federal Chemical & Ceramic Corporation Ltd. 7 Development of Swat China Clay Federal Chemical & Ceramic Corporation Ltd. (Mining and Elutrition Plant, Shahdari). 8 Pak-American Fertilizers Ltd. National Fertilizer Corporation of Pakistan Ltd. 9 Pakistan Machine Tool Factory, State Heavy Engineering & Machine Tool Landhi. Corporation Ltd. 10 Heavy Mechanical Complex, State Heavy Engineering & Machine Tool Taxila. Corporation Ltd. 11 Heavy Foundry & Forge Project State Heavy Engineering & Machine Tool Taxila. Corporation Ltd. 12 Heavy Electrical Complex State Electrical Corporation of Pakistan Ltd. Project.
+_______________
+RGN Uploaded on 28.2.2024

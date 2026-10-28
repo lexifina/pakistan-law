@@ -1,0 +1,1 @@
+11. Indemnity.—No suit, prosecution or other legal proceeding shall lie against the Federal Government, the principal corporation, a corporation, a managed establishment, a managed company or any other person for anything in good faith done or intended or purporting to be done under this Act.

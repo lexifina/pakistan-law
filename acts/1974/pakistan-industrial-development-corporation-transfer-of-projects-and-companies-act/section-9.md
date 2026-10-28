@@ -1,0 +1,1 @@
+9. Reference in other law.—Any reference to the principal corporation, in relation to a project transferred to a corporation or a managed company vesting in a corporation in any law, other than this Act, or in any contract or other instrument, shall, if not inconsistent with any provision of this Act, be construed as a reference to such corporation.
