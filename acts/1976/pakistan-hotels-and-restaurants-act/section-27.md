@@ -1,0 +1,1 @@
+27. Power to exempt ― The Federal Government may, by notification in the official Gazette, exempt any hotel or restaurant from the operation of all or any of the provisions of this Act for such period, and on such conditions, if any, as may be specified in the notification.

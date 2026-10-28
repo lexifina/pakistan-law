@@ -1,0 +1,2 @@
+13. Fair rates, etc., to be displayed.―(1) The fair rates, the maximum number of guests that may be accommodated in a room or unit of accommodation in a hotel and the rules of the establishment shall be displayed in a conspicuous manner in the office and in the public rooms, if any, of every hotel.
+(2) The fair rates and the rules of the establishment shall be displayed in a conspicuous manner in the office and the hall and rooms of every restaurant.

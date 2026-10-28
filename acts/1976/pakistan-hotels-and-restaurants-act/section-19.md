@@ -1,0 +1,6 @@
+19. Additional powers of Controller.―For the purposes of this Act, the Controller may―
+(i) call for such information, reports, or returns from an owner or a manager as may be necessary for satisfying himself that the provisions of this Act, the rules and orders made thereunder are being duly complied with ;
+(ii) require an owner or a manager to produce before himself or an officer designated by him for the purpose any book of account, document or other papers in his possession or power which contain or are believed to contain information relating to the hotel or restaurant of which he is the owner or manager ;
+(iii) require an owner or a manager to undertake through an agency qualified to do so scientific tests of water, food and other articles of human consumption at the cost of the owner, to determine their quality and conformity with the requirements of health and hygiene ;
+(iv) declare the site of any restaurant not registered under this Act, a fit site for a restaurant and issue directive to the management of such a restaurant to improve, within a period of six months from the date of such order, the conditions, services and facilities at the restaurant to conform to the prescribed minimum criteria ;
+(v) call for any other information relating to development of hotel industry.
