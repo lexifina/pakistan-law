@@ -1,0 +1,1 @@
+7. Additional power of the President. Nothing contained in this Order shall be construed to limit or derogate from the power of the President to grant to a Ruler any privilege, facility or concession for such period and or such conditions as he may determine.

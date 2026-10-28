@@ -1,0 +1,1 @@
+2. Order to override other laws. The provisions of this Order shall have effect notwithstanding anything contained in the Provisional Constitution Order or in any other law for the time being in force, or in any Instrument of Accession or any agreement with a Ruler.
