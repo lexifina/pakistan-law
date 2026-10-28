@@ -1,0 +1,3 @@
+22. Governing Bodies for Constituent Units:___ (1) The University may set up a separate governing body for each Constituent Unit consisting of such persons as it may determine. The Registrar shall be ex-officio member of the Governing body of constituent unit.
+(2) The members of the existing bodies shall continue to operate with suitable representation from the University headquarters subject to ratification by the Board in its first meeting and shall consist of suitably qualified persons appointed by the Board of Governors.
+(3) The business of the governing bodies shall be regulated by the Board as may be prescribed.

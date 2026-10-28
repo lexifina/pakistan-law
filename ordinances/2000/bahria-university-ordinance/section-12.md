@@ -1,0 +1,1 @@
+12. Director Finance:___ The Director Finance shall be mainly responsible for the proper and judicious management of the University funds received from various sources in accordance with the policies laid by the Board of Governors.

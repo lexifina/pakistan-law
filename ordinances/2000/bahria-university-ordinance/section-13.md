@@ -1,0 +1,1 @@
+13. Director (Research and Development):___There shall be a Director (Research and Development) who shall be responsible for providing guidelines and coordinating all arrangements for research and development activities in the University and its Constituent Units. He shall also perform such other duties as may be assigned to him by the Rector.

@@ -1,0 +1,1 @@
+27. Rules:___ The Executive Committee may make Rules for Implementation of Statutes or Regulations where so required under the Statutes or Regulations or make Rules to regulate any matter relating to the affairs of the University which under this Ordinance are not specifically required to be provided for by the Statutes or the Regulations.

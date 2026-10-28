@@ -1,0 +1,1 @@
+40. Removal of difficulties: if any difficulty arises in giving effect to any provision of this Ordinance, the Board may make such order or direction, not inconsistent with the provisions of this Ordinance, as may appear to it to be necessary for the purpose of removing such difficulty.

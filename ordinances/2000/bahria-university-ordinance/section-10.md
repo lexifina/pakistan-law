@@ -1,0 +1,1 @@
+10. Registrar:___ The Registrar shall be mainly responsible for the maintenance of University records, student affairs and administration and in addition, he may be entrusted With other responsibilities by the Board of Governors, the Executive Committee or the Rector as considered appropriate and necessary.
