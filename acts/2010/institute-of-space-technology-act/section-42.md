@@ -1,0 +1,3 @@
+42. Power to allow appointment of employees of the Government, other universities
+or educational or research institutions to the Institute. ___ (1) Notwithstanding anything contained in this Act, the Senate may, on the advice of the Syndicate, allow any post in the Institute to be filled by appointment or transfer, on such terms as the Senate may specify, an employee of the Government or any other university or educational or research institution.
+(2) Where any appointment or transfer has been made under this section, the terms and conditions of service of the appointee or transferee shall not be less favorable than those admissible to him immediately before such appointment or transfer and he shall be entitled to all benefits of his post of service.
