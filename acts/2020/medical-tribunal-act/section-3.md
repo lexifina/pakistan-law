@@ -1,0 +1,3 @@
+3. Cognizance of offences.—(1) No court shall take cognizance in any matter to which jurisdiction of the Tribunal extends.
+(2) Any person or entity aggrieved by an act which is an offence under any law for the time being in force triable by the Tribunal or by an order or act which is appealable before the Tribunal may institute a complaint or claim or appeal as the case may be before the Tribunal.
+(3) The Tribunal may also initiate appropriate proceeding on dependable information against any individual or institution after issuing notice against an act or omission which falls within the jurisdiction of the Tribunal.

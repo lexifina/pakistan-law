@@ -1,0 +1,1 @@
+9. Appeals from orders of the Medical Tribunal.— Any person aggrieved by any final order in suit, in appeal or against any sentence passed by the Tribunal may, within thirty days of communication of such order or sentence, prefer an appeal to the Supreme Court of Pakistan.

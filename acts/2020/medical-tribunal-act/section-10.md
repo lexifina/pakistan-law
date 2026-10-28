@@ -1,0 +1,2 @@
+10. Abatement of suit and other proceedings.— All suits, appeals, complaints or applications regarding any matter within the jurisdiction of the Tribunal pending in any court immediately before the commencement of this Act shall abate forthwith:
+Provided that any party to such proceedings may, within ninety days of the establishment of the appropriate Tribunal, approach to the Tribunal in respect of any such matter which is in issue in such suit, complaint, appeal or application etc.
