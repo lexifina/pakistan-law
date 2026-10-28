@@ -1,0 +1,2 @@
+[^1]: For Statement of Objects and Reasons, see Gazette of India, 1908, Pt. V, p. 357; for Report of Select Committee, see ibid., 1909, Pt. V,p. 1034; and for Proceedings in Council, see ibid., 1908, Pt. VI, p. 156, and ibid., 1909 Pt. VI, pp. 156, 161 and 165.
+[^2]: Subs. by the Central Laws (Statute Reform) Ordinance, 1960 (21 of 1960), s. 3 and 2nd Sch. (with effect from the 14th October, 1955), for the original sub-section (2) as amended by A.O., 1949.

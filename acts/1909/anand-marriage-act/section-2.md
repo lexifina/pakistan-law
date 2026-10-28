@@ -1,0 +1,1 @@
+2. Validity of Anand marriage. All marriages which may be or may have been duly solemnized according to the Sikh marriage ceremony called Anand shall be, and shall be deemed to have been with effect from the date of the solemnization of each respectively, good and valid in law.
