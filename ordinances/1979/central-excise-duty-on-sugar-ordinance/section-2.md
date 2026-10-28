@@ -1,0 +1,4 @@
+2. Validation of levy and collection of central excise duty on enhanced rate, etc.__
+Notwithstanding anything contained in the Central Excise and Salt Act, 1944 (I of 1944) or in any rule or notification made or issued thereunder, or in any judgment of a Court, the central excise duty levied and collected on stocks of sugar held by sugar mills on 7th June, 1975, at the rate of twenty-seven rupees and twenty-two paisa per cwt in additional to the excise duty chargeable from the sugar mills under subsection (4) of section 3 of the said Act for the year 1974-75 shall be deemed to have been validly levied and collected and shall not be liable to be refunded and so much of such duty as has not been paid, collected or realised before the corning into force of this Ordinance shall be recoverable in accordance with provisions of the said Act and the rules made thereunder.
+__________
+Date: 13-09-2024
