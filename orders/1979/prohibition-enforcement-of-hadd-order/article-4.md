@@ -1,0 +1,6 @@
+4. Owning or possessing intoxicant: Whoever owns, possesses or keeps in-his custody any intoxicant shall be punished with imprisonment of either description for a term which may extend to two years, or with whipping not exceeding thirty stripes, and shall also be liable to fine:
+Provided that nothing contained in this Article shall apply to a non-Muslim foreigner or to a non-Muslim citizen of Pakistan who keeps in his custody at or about the time of ceremony prescribed by his religion a reasonable quantity of intoxicating liquor for the purpose of using it as a part of such ceremony [:][^4]
+[^4][Provided further that, if the intoxicant in respect of which the offence is committed is heroin, cocaine [^3][*], opium or coca leaf, and the quantity exceeds ten grams in the case of heroin or cocaine or one kilogram in the case of [^3][*] opium or coca leaf, the offender shall be punishable with imprisonment for life or with imprisonment which is not less than two years and with whipping not exceeding thirty stripes, and shall also be liable to fine.]
+
+[^3]: Omitted by the Act the Prohibition (Enforcement of Hadd) (Amdt.) Act, 1994 (Act No. VI of 1994) s.2.
+[^4]: Added and Subs., ibid., Art.3.

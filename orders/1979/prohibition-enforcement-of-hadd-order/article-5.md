@@ -1,0 +1,1 @@
+5. Article 3 or Article 4 not to apply to certain acts: Nothing contained in Article 3 or Article 4 shall apply to any act done under, and in accordance with the provisions of this Order, or the terms of any rule, notification, order or license issued there under.

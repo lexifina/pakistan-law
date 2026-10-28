@@ -1,0 +1,1 @@
+28. Indemnity: No suit, prosecution or other legal proceeding shall lie against a Provincial Government, a Police Officer, a Prohibition Officer or any other officer in respect of anything which is in good faith done under this Order or the rules made there under.

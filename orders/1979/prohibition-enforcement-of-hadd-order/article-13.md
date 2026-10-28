@@ -1,0 +1,1 @@
+13. Punishment for vexatious delay: Any officer or person exercising powers under this Order who vexatiously and unnecessarily delays forwarding to a Prohibition Officer any person arrested or any article seized under this Order shall be punishable with fine which may extend to one thousand rupees.
