@@ -1,0 +1,3 @@
+11. Functions of the division concerned.—The division concerned being controlling authority shall get executed its policies through the IBCC forum or BoG as within their domain, with the following powers, namely: -
+(a) exercise general supervision over the affairs of IBCC and may obtain or ask for advice on any issue relating to and covered in the mandate of IBCC or its secretariat, BoG, or forum, as the case may be;
+(b) examine the budget proposal for the grant of appropriate allocation to IBCC, ensure maintenance of financial discipline, and audit of accounts of IBCC as per normal procedures of the Federal Government through the Auditor General of Pakistan.

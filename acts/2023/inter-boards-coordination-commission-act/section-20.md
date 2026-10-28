@@ -1,0 +1,1 @@
+20. Indemnity. No suit, prosecution, or other legal proceedings shall lie against any person for anything done or intended to be done in good faith under this Act or any rule or regulation made thereunder.

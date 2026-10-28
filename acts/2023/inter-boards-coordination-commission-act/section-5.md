@@ -1,0 +1,3 @@
+5. Appointment, functions and powers of national coordinator.—(1) The national coordinator shall, by notification in the official Gazette, be appointed by the division concerned on a rotation basis of respective province or group or board from amongst the chairpersons of BISEs having membership of IBCC forum for a period of one year to be nominated by the respective government or IBCC forum.
+(2) Sequence of rotation shall be determined in alphabetical order of the name of province or group or board decided by IBCC forum.
+(3) The national coordinator shall preside over the meetings of the IBCC forum,
