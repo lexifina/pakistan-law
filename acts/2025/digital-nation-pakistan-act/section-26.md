@@ -1,0 +1,1 @@
+26. Power to make regulations.—The Authority may, by notification in the official Gazette, make regulations, not inconsistent with the provisions of this Act or the rules, for exercising its powers and carrying out of its functions under this Act.
