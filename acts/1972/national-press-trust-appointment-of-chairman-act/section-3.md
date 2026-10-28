@@ -1,0 +1,1 @@
+3. Act to override other laws. The provisions of this Act shall have effect notwithstanding anything contained in any other law for the time being in force or in the Trust Deed or in the regulations, bye-laws or rules framed thereunder.
