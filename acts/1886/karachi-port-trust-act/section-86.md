@@ -1,0 +1,1 @@
+86. Trustees liable for breach of trust. – Every trustee shall be liable for any misapplication of money entrusted to the Board to which he has been a party, or which happens through; or is facilitated, by the neglect of his duty.

@@ -1,0 +1,3 @@
+34. If accommodation sufficient, all seagoing vessels compelled to use wharves, etc. When a sufficient number of wharves, quays, stages, jetties, piers, warehouses, sheds ad appliances have been provide as aforesaid, the Board may [^87]* * * direct that no goods shall be landed or shipped from or in any seagoing vessel within the port, save at such wharves, quays, stages, jetties and piers, and may in like manner, alter, vary or revoke any such order; Provided that it shall be competent to the Board at any time to exempt any specified vessel from the operation of any order made under this section.
+
+[^87]: Added & Omitted by Ord. 30 of 2001, s.6.

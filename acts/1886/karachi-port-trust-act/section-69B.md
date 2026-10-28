@@ -1,0 +1,2 @@
+69B. Purchase, etc. by the Board of debentures issued by the Board not to operate to
+extinguish such debentures. – The purchase by or the transfer, assignment or endorsement to the Board of any debenture issued by the Board shall not operate to extinguish or cancel any such debenture, but the same shall be valid and negotiable in the same manner and to the same extent as if held by or transferred, assigned or endorsed to any other person.

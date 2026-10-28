@@ -1,0 +1,5 @@
+[^212][89. Responsibilities of Master etc. – The Master, agent and owner of a vessel shall, severally and jointly, be responsible for - (a) any damage caused to the property and servants of the Port, whether within Port’s limit or in the approaches, by their vessel or servants and such vessel shall be detained till such time the costs of the damage as determined by the Board are paid;
+(b) any misdeclaration of particulars of a vessel and for disobeying the parameters specified for handling of vessels in Karachi Harbour and shall be liable to a penalty not exceeding five hundred thousand rupees to be imposed by the Chairman or Deputy Conservator; and
+(c) the sinking or grounding of any vessel or causing damage to any other vessel in the Port limits or approaches and for removal of the vessel at their own risk and cost failing which the Board may salvage or remove such vessel out of the Port’s limit and the cost of such removal shall be recoverable from the sale proceeds of such vessels.
+
+[^212]: Subs. and added by Ord. No. 31 of 2000 (w.e.f. 02-07-1997), ss. 28-29.

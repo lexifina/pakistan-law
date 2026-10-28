@@ -1,0 +1,9 @@
+## LANDING AND SHIPPING OF GOODS
+32. Appliances for shipping etc. for seagoing vessels. The Board shall, so far as the funds at their disposal will allow, provide and maintain wharves, quays, stages, jetties, piers, warehouses, sheds and appliances for the expeditious and convenient shipment and landing of goods in and from seagoing vessels within the port and for the storing of such goods, and shall by their servants land and ship all goods, from and in any such vessel coming to any such wharf, quay, stage, jetty or pier [^84][or standing in the stream] except where there is lawful excuse for refusing to land or ship such goods or such vessel is under any enactment for the time being in force, not entitled to have her cargo shipped or discharged.
+Provided that –
+(1) the Board shall not be bound to land, ship or move any single article or package exceeding ten tons of twenty hundred-weight, in weight except at such special charge as may be agreed on in respect of such article or package ;
+(2) the Board may, by special agreement with the masters of vessels or the owners of goods, permit goods to be landed and shipped y other than the servants of the Board but every such permission shall be subject to the condition that the means to be employed and the appicances to be used by the said masters or owners for landing or shipping goods shall be subject to the approval of the Board, whose duty it shall be to satisfy themselves that the said means and appliances are at all times such and in such conditions as not to endanger the lives or safety of the persons employed.
+(3)[^87][the Board shall be competent to enter into lease concessions, management agreements or other arrangements with outside parties to provide for cargo handling, terminal operation and any other works or services in the port.]
+
+[^84]: Ins. by Act 42 of 1950, s.19.
+[^87]: Added & Omitted by Ord. 30 of 2001, s.6.

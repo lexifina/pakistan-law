@@ -1,0 +1,7 @@
+## AUDIT OF ACCOUNTS
+68. Accounts to be audited and examined – The accounts of the receipts and expenditure of the Board shall, twice in every year, be laid before Government and shall be audited and examined in such manner and by such auditor or auditors as shall, from time to time, be appointed by Government.
+Auditors to have power to call for books, etc – For the purpose of such audit and examination, the auditors may by summons in writing, require the production before them of all books, deeds, contracts, vouchers and all other documents and papers which they may deem necessary, and may require any person holding or accountable for any such books, deeds, contracts, accounts, vouchers, documents or papers, to appear before them at any such audit and examination or adjournment thereof and to make and sign a declaration with respect to the same.
+Their remuneration to be fixed by Government. Their report to be published. The auditors shall be paid by the Board such remuneration as Government shall determine; and, within fourteen days after the audit and examination of the accounts for any half-year shall have been completed, the auditors shall forward a report upon the accounts for such half-year to the Board, who shall cause the same to be published, together with an abstract of the accounts,[^179]*** in the [^180][official Gazette].
+
+[^179]: The words “in the Bombay Government Gazette and” omitted by Federal Laws (Revision and Declaration) Act 1951(26 of 1951), s.5 and Fourth Sch.
+[^180]: Subs. by A.O., 1937 for “Sind Official Gazette”.

@@ -1,0 +1,6 @@
+57. Approval and publication of by-laws. – No bye-law, or alteration or revocation of a bye-law, shall have effect until the same shall have been approved by Government, and such approval shall have been published[^123]*** in the [^124][official Gazette] and no bye-law or alteration or revocation of a bye-law shall be approved by Government until a draft of the same and a notice specifying a date at or after which the draft will be submitted to Government shall have been published in the [^124][official Gazette] and in such other manner as Government from time to time prescribed nor unless the said draft shall have been submitted for their approval [^125]***.
+Cancelment by Government. – It shall be lawful for Government at any time by notification[^123]*** in the [^124][official Gazette] to cancel any bye-law or regulation made and published under the provisions of this and of the two last preceding sections.
+
+[^123]: The words “in the Bombay Government Gazette and” occurring twice, omitted by Federal Laws (Revision and Declaration) Act, 1951(26 of 1951), s.5 and Fourth Sch.
+[^124]: Subs. by A.O., 1937, for “Sind official Gazette”.
+[^125]: The words “through the commissioner” omitted by the Sind Laws Regulation, 1936 (6 of 1936), s.4 and Third Sch.

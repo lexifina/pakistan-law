@@ -1,0 +1,1 @@
+29B. Board may form independent subsidiary company. For carrying out he purposes of this Act, the Board may with the prior approval of the Federal Government, form an independent subsidiary or company to be incorporated under the Companies Ordinance, 1984 (XLVII of 1984), which may or may not involve outside participation.]
