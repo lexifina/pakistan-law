@@ -1,0 +1,3 @@
+14. Assets and liabilities.—(1) All rights, properties, assets and liabilities of the Railway Police of a Province shall stand transferred to the Pakistan Railways Police on the commencement of this Act.
+(2) The transfer of rights, properties, assets and liabilities under sub-section (1) shall be subject to such terms and conditions as may be agreed upon between the Federal Government and the Provincial Government or, in the absence of such agreement, as may be determined by the President.
+(3) All rights, properties, assets and liabilities of the Railway Watch and Ward shall stand transferred to the Pakistan Railways Police on the commencement of this Act in such manner and to such extent as may be determined by the Federal Government.

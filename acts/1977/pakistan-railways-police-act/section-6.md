@@ -1,0 +1,1 @@
+6. Ordinance No. XXIII of 1969 not to apply to the Pakistan Railways Police. Nothing contained in the Industrial Relations Ordinance, 1969 (XXIII of 1969), shall apply to, or in relation to, the Pakistan Railways Police.
