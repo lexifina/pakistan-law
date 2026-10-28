@@ -1,0 +1,1 @@
+20. Removal of difficulties. –lf any difficulty arises in giving effect to any of the provisions of this Act, the Chairman may make such order as may appear to him to be necessary for the purpose of removing the difficulty.

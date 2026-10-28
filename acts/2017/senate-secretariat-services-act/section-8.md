@@ -1,0 +1,5 @@
+8. Seniority. – (1) For proper administration, the appointing authority shall cause a seniority list of the employees, for the time being, of such group, category or post to be prepared, but nothing herein contained shall be construed to confer any vested right to a particular seniority in such group, category or post, as the case may be.
+(2) Subject to the provisions of sub-section (I), the seniority of an employee shall be reckoned in relation to other employees belonging to the same group or post whether serving in the same department or office or not, as may be prescribed.
+(3) Seniority on initial appointment to a group, category or post shall be determined as may be prescribed.
+(4) Seniority in a group, category or post to which an employee is promoted shall take effect from the date of regular appointment to that post:
+Provided that employees who are selected for promotion to a higher post in one batch shall, on their promotion to the higher post, retain their inter se seniority as in the lower post.
