@@ -1,0 +1,8 @@
+## PROCEDURE
+13. Service of process and judgment in default of appearance.___ (1) Any notice or other document required to be served for instituting proceedings against a State shall be served by being transmitted through the Ministry of Foreign Affairs or Pakistan to the Ministry of Foreign Affairs of the State and service shall be deemed to have been effected when the notice or document is received at the latter Ministry.
+(2) Any proceedings in Court shall not commence earlier than two months after the date on which the notice or document is received as aforesaid.
+(3) A State which appears in proceedings cannot thereafter object that sub-section (1) has not been complied with as respects those proceedings.
+(4) No judgment in default of appearance shall be given against a State except on proof that sub-section (1) has been complied with and that the time for the commencement of proceedings specified in sub-section (2) has elapsed.
+(5) A copy of any judgment given against a State in default of' appearance shall be transmitted through the Ministry of Foreign Affairs of Pakistan to the Ministry of Foreign Affairs of the State and the time for applying to have the judgment set aside shall begin to run two months after the date on which the copy of the judgment is received at the latter Ministry.
+(6) Sub-section (1) does not prevent the service of a notice or other document in any manner to which the State agreed and sub-sections (2) and (4) do dot apply where service is effected in any such manner.
+(7) The preceding provisions of this section shall not be construed as applying to proceedings against the State by way of a counter-claim or to an action in rem.

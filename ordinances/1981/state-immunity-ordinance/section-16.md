@@ -1,0 +1,3 @@
+16. Restriction and extension of immunities and privileges.___(1) If it appears to the Federal Government that the immunities and privileges conferred by this Ordinance in relation to any State___
+(a) exceed those accorded by the law of that State in relation to Pakistan; or
+(b) are less than those required by any treaty, conventional or other international agreement to which that State and Pakistan are parties, the Federal Government may, by notification in the official Gazette, provide for restricting or, as the case may be, extending those immunities and privileges to such extent as it may deem fit.
