@@ -1,0 +1,6 @@
+2. Value of improvements made by bona fide holders under defective titles secured to
+them. If any person shall erect any building or make an improvement upon any lands held by him bona fide in the belief that he had an estate in fee-simple, or other absolute estate, and such person, his heirs or assigns, or his or their under-tenants, be evicted from such lands by any person having a better title, the person who erected the building or made the improvement, his heirs or assigns, shall be entitled either to have the value of the building or improvement so erected or made during such holding and in such belief, estimated and paid or secured to him or them, or, at the option of the person causing the eviction, to purchase the interest of such person in the lands at the value thereof, irrespective of the value of such building or improvement:
+Amount how fixed. Provided that the amount to be paid or secured in respect of such building or improvement shall be the estimated value of the same at the time of such eviction.
+3. [Act to apply only to cases governed by English Law.] Omitted by the Federal Laws (Revision and Declaration) Ordinance, 1981 (XXVII of 1981), s. 3 and Sch. II.
+__________
+Date: 13-09-2024
