@@ -1,0 +1,1 @@
+24. Transparency and public disclosure.—The public private partnership agreement shall be a public document. Any interested person shall be entitled to obtain a copy of it in accordance with the applicable laws.
