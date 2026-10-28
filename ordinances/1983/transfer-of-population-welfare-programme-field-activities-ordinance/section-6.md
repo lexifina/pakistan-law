@@ -1,0 +1,3 @@
+6. Functions of the Federal Government, etc.⎯ (1) The Federal Government shall continue to perform all functions pertaining to National Policy, Planning and Coordination, Information, Training, Supplies, Statistics, Monitoring and Evaluation, Research and Foreign Assistance.
+Explanation.___ In this sub-section, “Information” includes “Education” and “Communication” components of the Population Welfare Programme.
+(2) In the performance of their functions relating to field activities, the Provincial Government shall be guided by such guidelines and instructions on questions of policy as may be laid down and given from time to time by the Federal Government, which shall be the sole judge as to whether a question is a question of policy.

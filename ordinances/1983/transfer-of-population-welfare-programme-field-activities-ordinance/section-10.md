@@ -1,0 +1,4 @@
+10. Financing of the Population Welfare Programme.⎯ (1) The financial liability of the Federal Government in respect of field activities shall be limited to the extent of the approved projects and financial grants shall be provided to the Provincial Governments through the Development Budget of the Population Welfare Division.
+(2) The grants provided to the Provincial Governments for specific approved projects shall not be transferred by them to other projects or for any other purpose.
+(3) The Provincial Government shall maintain complete and accurate account and other record in respect of the Population Welfare Programme in such manner and form as may be specified by the Federal Government in consultation with the Auditor General of Pakistan, provided that separate accounts shall be maintained for the Head Office and for each organization, unit or project.
+(4) The accounts shall be audited by the Auditor General of Pakistan.

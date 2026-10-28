@@ -1,0 +1,1 @@
+11. Removal of difficulties. The Federal Government may, for the purpose of removing any difficulty that may arise in bringing into operation, or giving effect to, any provision of this Ordinance, make such orders as it may consider necessary.
