@@ -1,0 +1,1 @@
+23. Delegation of powers.— The Board may, by notification in the official Gazette, delegate all or any of its powers and functions, except the power to make regulations, to any member, CEO or officer subject to such conditions and limitations as may be specified in the notification.

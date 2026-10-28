@@ -1,0 +1,4 @@
+3. Establishment of the Board.— (1) As soon as may be but not later than thirty days of the commencement of this Act, the Federal Government shall, by notification in the official Gazette, establish a Board to be known as National Information Technology Board for carrying out the purposes of this Act.
+(2) The Board shall be a body corporate having perpetual succession and a common seal, with administrative and financial powers, subject to the provisions of this Act to enter into agreements and contracts, acquire, hold and dispose of property, both movable and immovable and to sue and to be sued.
+(3) The headquarters of the Board shall be at Islamabad and it may set up offices at such place or places, with the prior approval of the Federal Government, as it may deem appropriate throughout Pakistan.
+(4) The Board shall consist of the Chairman and Members.

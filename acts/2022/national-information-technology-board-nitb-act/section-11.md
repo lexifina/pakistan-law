@@ -1,0 +1,3 @@
+11. Organization of the Board.— (1) The Board may, for carrying out its functions for promotion of IT projects, developments of IT projects, certification of IT and project management, may enter into contract and agreement on such terms and conditions as may be prescribed by the Board as it may consider necessary.
+(2) The organization established or contracted with under sub-section (1) shall be subject to control and supervision of the Board and shall function within the framework of this Act.
+(3) An organization established or contracted with under sub-section (1) shall perform such business as may be prescribed by the Board from time to time.
