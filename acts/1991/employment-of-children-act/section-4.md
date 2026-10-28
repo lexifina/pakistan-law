@@ -1,0 +1,1 @@
+4. Amendment of Schedule. ___ The Federal Government, may by notification in the official Gazette, add any occupation or process to the Schedule and thereupon the Schedule shall be deemed to have been amended accordingly three months after the date of the notification.

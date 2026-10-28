@@ -1,0 +1,1 @@
+8. Weekly Holidays. ___ Every child employed in an establishment shall be allowed in each week, a holiday of one whole day, which day shall be specified by the occupier in a notice permanently displayed in a conspicuous place in the establishment and the day so specified shall not be altered by the occupier more than once in three months.

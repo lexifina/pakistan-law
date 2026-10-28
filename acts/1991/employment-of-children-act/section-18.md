@@ -1,0 +1,1 @@
+18. Power to make Rules. ___ The appropriate Government may, by notification in the Official Gazette and subject to the condition of previous publication, make rules for carrying into effect the provisions of this Act.

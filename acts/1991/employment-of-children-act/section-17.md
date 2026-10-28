@@ -1,0 +1,1 @@
+17. Appointment of Inspectors. ___ The appropriate Government may appoint Inspectors for the purposes of securing compliance with the provisions of this Act and any Inspector so appointed shall be deemed to be a public servant within the meaning of the Pakistan Penal Code.

@@ -1,0 +1,1 @@
+12. Display of Notice containing abstract of section 3 and 14. ___ Every occupier shall cause to be displayed in a conspicuous and accessible place a notice in the local language and in the English language containing an abstract of sections 3 and 14.

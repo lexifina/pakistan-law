@@ -1,0 +1,3 @@
+20. Power to remove difficulties. ___ (1) If any difficulty arises in giving effect to the provisions of this Act, the Federal Government may by order published in the official Gazette, make such provisions not inconsistent with the provisions of this Act as appear to it to be necessary or expedient for removal of the difficulty:
+Provided that no such order shall be made after the expiry of a period of three years from the date on which this Act receives the assent of the President.
+(2) Every order made under this section shall, as soon as may be after it is made, be laid before each House of Parliament.
