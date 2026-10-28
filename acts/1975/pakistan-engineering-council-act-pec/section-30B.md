@@ -1,0 +1,3 @@
+[^27][30B. Validation of actions.⎯ Anything done, actions taken, orders passed, instruments made, proceedings initiated, process or communications issued, powers conferred, assumed, exercised by the Council or its officer and servants on or after the 15th January, 2008, and before the commencements of the Pakistan Engineering Council (Amendment) Act, 2009 shall be deemed to have been validly done, made, issued , taken initiated, conferred, assumed and exercised and shall have, and shall be deemed always to have had, effect accordingly.]
+
+[^27]: Subs. by the Pakistan Engineering Council (Amdt.) Act, 2011 (II of 2011), s. 26 and shall be deemed to have taken effect of the 15th January, 2008

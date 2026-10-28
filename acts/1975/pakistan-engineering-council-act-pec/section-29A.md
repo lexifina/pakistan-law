@@ -1,0 +1,6 @@
+[^26][29A. Supersession of Council.⎯ (1) If at any time it appears to the Federal Government that the Council has failed to exercise or has exceeded or abused any of the powers conferred upon it by or under this Act, the Federal Government may, if it is satisfied that such failure, excess or abuse has adversely affected the efficient conduct of the affairs of the Council or the achievenment of the objects of this Act, by notification in the official Gazette, supersede the Council for a period of two years and may, by a like notification extend the period of supersession for a further period of one year.
+(2) Upon the supersession of the Council under sub-section (1)-
+(a) the persons holding office as Chairman, Vice Chairman and members of the Council shall cease to hold office, and (b) all powers and functions of the Council shall, during the period of supersession, be exercised and performed by such person or authority as the Federal Government may appoint in this behalf, as if such person or authority were the Council.
+(3) The Council shall be reconstituted in accordance with the provisions of this Act for the exercise and performance of its pwers and functions on the expiry of the period specified in the notification under sub-section (1)].
+
+[^26]: Ins. by the Pakistan Engineering Council (Amdt.) Act, 2002 (CXXIX of 2002), s.2.

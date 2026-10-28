@@ -1,0 +1,6 @@
+[^10][12. Grant of temporary licences.⎯ (1) The Enrolment Committee may grant to any person, domiciled outside Pakistan who does not hold an accredited engineering qualification but who holds an engineering degree or who is a corporate member of an engineering body, society, institute or association accredited by the Council of respective country, a temporary license for a specific project to work as an associate of a professional engineer; the professional engineer shall sign and seal the plans and specifications for the project.
+(2) The Enrolment Committee may, if it feels that such action is warranted by special circumstances, grant to a person referred to in sub-section (1) a temporary licence to work as the engineer in charge of a specific project for so long as he is assisted by a professional engineer.
+(3) The Enrolment Committee may, for works to be carried out at the discretion of an engineering public organization, grant a temporary licence to any person on the recommendation of such organization.
+(4) Any person to whom a temporary licence has been granted shall, during the period for which the licence is valid, be subject to the provisions of this Act and the bye-laws.]
+
+[^10]: Subs. by the Pakistan Engineering Council (Amdt.) Act, 2011 (II of 2011), ss. 10-13 and shall be deemed to have taken effect of the 15th January, 2008.
