@@ -1,0 +1,8 @@
+10. Authentication of the declaration.___ (1) Subject to the provisions of sub-sections (2) and (3), each of the duplicate originals of every declaration made and subscribed under section 6 shall be authenticated by the signature and official seal of the District Co-ordination Officer before whom the said declaration is made.
+(2) The District Co-ordination Officer may not authenticate the declaration if he is satisfied that,___
+(a) the declaration has been filed by a person other than the owner or proprietor of the newspaper or the printing press or a person not authorised by such proprietor; and
+(b) the title of the newspaper proposed to be published is the same as the title of any newspaper already being published in the same language at any place in the country, not being a newspaper of different periodicity published by the same publisher or another edition of the same newspaper published from another place;
+(c) the declaration has been filed by a person who was convicted of criminal offence involving moral turpitude and or for willful default of public dues.
+(d) the declaration has been cancelled or denied anywhere else in Pakistan
+(3) The District Co-ordination Officer shall not pass an order under sub-section (2) without giving to the person making the declaration, through a notice in writing, an opportunity of being heard and rebutting the evidence that may be available against him.
+(4) In case the District Co-ordination Officer fails to authenticate a declaration under sub-section (1) or pass an order under sub-section (2), within a period of thirty days, the declaration made by the publisher, printer and news agency shall be deemed to have been authenticated on the expiry of the said period.

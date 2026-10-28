@@ -1,0 +1,2 @@
+20. Appeals.___ (1) Any person who has been refused authentication of a declaration under this Ordinance or whose declaration has been cancelled may, within thirty days from the date of such order prefer an appeal to the High Court within whose jurisdiction such order has been passed.
+(2) The High Court shall, after giving notice to the appellant and the Government, hear and dispose of the appeal within sixty days of its institution and pass such order, including an order awarding damages to the aggrieved party, as it may deem fit.

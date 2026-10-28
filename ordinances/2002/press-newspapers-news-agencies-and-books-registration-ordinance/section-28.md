@@ -1,0 +1,2 @@
+28. Penalty for printing or publishing newspaper in contravention of the provisions of this
+Ordinance.___ Whoever edits, prints or publishes any newspaper in contravention of the provisions of this Ordinance, or whoever edits, prints or publishes, or causes to be edited, printed or published, any newspaper knowing that the said provisions have not been observed with respect to that newspaper, shall be punishable with fine not exceeding twenty thousand rupees or with imprisonment for a term not exceeding six months or with both.

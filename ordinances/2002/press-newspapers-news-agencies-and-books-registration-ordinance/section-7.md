@@ -1,0 +1,1 @@
+7. No minor to be printer, publisher or editor.___ No person who has not attained the age of eighteen years shall be permitted to make a declaration under section 6, nor shall any such person edit a newspaper.

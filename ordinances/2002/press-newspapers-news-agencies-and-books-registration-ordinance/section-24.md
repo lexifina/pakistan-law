@@ -1,0 +1,1 @@
+24. Copies of newspapers printed in the Province to be delivered gratis to Government.___ The printer of every newspaper shall deliver at such place and to such officer as the Provincial Government may, by notification in the official Gazette, direct, free of cost two copies of each issue of such newspaper as soon as it is published

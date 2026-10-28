@@ -1,0 +1,2 @@
+34. Responsibility of page In-charge.___ (1)The Page In-charge shall, in the supervision and superintendence of editor be responsible for checking the contents of the pages and ensure due satisfaction of the material sent to the printer and publisher for publication.
+(2) Eve publisher shall submit the intimation in writing, as furnished by the editor, with respect to the responsibilities of page in-charge with his acceptance to the office of concerned District Co-ordination Officer and a copy to the Press Registrar.

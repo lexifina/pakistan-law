@@ -1,0 +1,1 @@
+27. Punishment for making false statement.___ Any person who shall, in making any declaration under this Ordinance, makes a statement which is false and which he either knows or believes to be false, or does not believe to be true, shall be punishable with fine not exceeding twenty thousand rupees and with imprisonment for a term not exceeding six months.
