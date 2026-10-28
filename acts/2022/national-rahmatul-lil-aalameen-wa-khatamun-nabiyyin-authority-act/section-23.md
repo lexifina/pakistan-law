@@ -1,0 +1,1 @@
+23. Removal of difficulties.— If any difficulty arises in giving effect to the provisions of this Act, the Federal Government may be notification in the official Gazette, make such order, not inconsistent with the provisions of this Act, as may appear to it to be necessary or expedient for the removal of such difficulty.

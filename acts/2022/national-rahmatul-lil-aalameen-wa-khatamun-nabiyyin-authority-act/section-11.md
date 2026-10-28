@@ -1,0 +1,1 @@
+11. Appointment of officers, staff etc. by the Authority.— In addition to the appointment in the Secretariat under section 9, the Authority may create posts and appoint such directors, officers, staff, experts or consultants on such terms and conditions, as may be prescribed.

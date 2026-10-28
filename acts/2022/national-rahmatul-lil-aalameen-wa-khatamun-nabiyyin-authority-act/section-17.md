@@ -1,0 +1,1 @@
+17. Annual report.— The Authority shall prepare once every year, in such form and at such time as may be prescribed, an annual report giving a true and full account of its activities during the previous year and copies thereof shall be forwarded to the Government, which shall lay it before the National Assembly and the Senate.
