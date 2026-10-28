@@ -1,0 +1,4 @@
+19. Transfer of assets and liabilities, etc. ___Upon the commencement of this Ordinance,__
+(i) everything done, action taken, obligations and liabilities incurred, persons appointed or authorised, fellowships or scholarships instituted and orders issued prior to such commencement shall be continued and, so far as may be, be deemed to have been respectively done, taken, incurred, appointed or authorised, instituted or issued by the College.
+(ii) all moneys and properties held by the College immediately before such commencement shall stand transferred to, and vest in, the College ; and
+(iii) any rules made by the College shall, in so far as they are not inconsistent with the provisions of this Ordinance, continue to be in force until they are repealed, rescinded or modified under this Ordinance.

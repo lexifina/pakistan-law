@@ -1,0 +1,1 @@
+15. First Regulations. ___Notwithstanding anything contained in section 14 the Regulations set out in the Schedule shall be deemed to be Regulations framed under the said section and shall remain in force until they are amended or replaced by new Regulations framed in accordance with this Ordinance.
