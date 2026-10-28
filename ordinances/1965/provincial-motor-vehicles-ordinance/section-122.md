@@ -1,0 +1,4 @@
+122. Repeal and savings.– (1) The enactments specified in the [^78][Fourteenth] Schedule are hereby repealed to the extent specified against each.
+(2) Notwithstanding the repeal of the enactments specified in the Twelfth Schedule, everything done, action taken, obligation, liability, penalty or punishment incurred, inquiry or proceeding commenced, officer appointed or person authorised, jurisdiction or power conferred, licence, certificate or permit granted, rule made and order issued under any of the provisions of the said enactments shall, if not inconsistent with the provisions of this Ordinance, continue in force and, so far as may be, be deemed to have been respectively done, taken, incurred, commenced, appointed, authorised, conferred, granted, made or issued under this Ordinance.
+
+[^78]: Subs. by West Pakistan Ordinance No. IX of 1970, s. 16.

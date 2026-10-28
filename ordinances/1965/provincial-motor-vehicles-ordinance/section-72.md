@@ -1,0 +1,6 @@
+72. Powers of the Road Transport Corporation to acquire property for motor transport operated by it.– (1) The Corporation shall have power to acquire any property, movable or immovable, used in, or for, or ancillary to, the operation of any motor transport conducted under this Chapter.
+(2) Such acquisition may be made by serving a notice of acquisition on the owner of the property, or if such owner is not readily traceable or the ownership is in dispute, by a notice of acquisition published in the official Gazette and shall take effect from the beginning of the day on which the notice is served or published.
+(3) For any property so acquired there shall be paid compensation equivalent to the market value of the property acquired to be calculated in such manner as Government may prescribe.
+(4) If any dispute arises as to the amount of compensation payable under sub-section (3), it shall be referred to the arbitration of a person who is or has been a High Court Judge and his award shall be final and binding on the parties and shall not be called in question in any Court of law nor shall anything in the Arbitration Act, 1940 (X of 1940), apply to such an arbitration.
+CHAPTER VI
+CONSTRUCTION, EQUIPMENT AND MAINTENANCE OF MOTOR VEHICLES

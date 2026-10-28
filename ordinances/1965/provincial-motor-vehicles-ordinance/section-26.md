@@ -1,0 +1,2 @@
+26. Temporary registration.– (1) Notwithstanding anything contained in section 24, the owner of a motor vehicle may apply in the prescribed manner to any registering authority to have the vehicle temporarily registered and thereupon such registering authority shall issue to the owner of the vehicle a temporary certificate of registration and assign to the vehicle a temporary mark of registration.
+(2) A registration made under this section shall be valid only for a period of one month, and shall not be renewable.

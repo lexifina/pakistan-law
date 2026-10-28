@@ -1,0 +1,1 @@
+73. General provision regarding construction and maintenance.–Every motor vehicle shall be so constructed and so maintained as to be at all times under the effective control of the person driving the vehicle.

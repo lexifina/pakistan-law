@@ -1,0 +1,1 @@
+85. Leaving vehicle in dangerous position.– No person in charge of a motor vehicle shall cause or allow the vehicle or any trailer to remain at rest on any road in such a position or in such a condition or in such circumstances as to cause or be likely to cause danger, obstruction or undue inconvenience to other users of the road.

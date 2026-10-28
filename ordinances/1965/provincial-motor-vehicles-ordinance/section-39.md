@@ -1,0 +1,9 @@
+39. Certificate of fitness of transport vehicles.– (1) Subject to the provision of section 40, a transport vehicle shall not be deemed to be validly registered for the purposes of section 23, unless it carries a certificate of fitness in Form I as set forth in the First Schedule, issued by the prescribed authority, to the effect that the vehicle complies for the time being with all the requirements of Chapter VI and the rules made thereunder; and where the prescribed authority refuses to issue such certificate, it shall supply the owner of the vehicle with its reasons in writing for such refusal.
+(2) Subject to the provisions of sub-section (3), a certificate of fitness shall remain effective for three years unless a shorter period, not being in any case less than six months, is specified in the certificate by the [^22][authority issuing the certificate] [^23][:]
+[^24][Provided that in case of a permit issued under section 60 (1) (a), a certificate of fitness shall remain effective for a period of six months and on the expiry of that period the permit shall be deemed to be suspended until a new certificate of fitness has been obtained.]
+(3) The [^25][* * * * *] prescribed authority may, for reasons to be recorded in writing, cancel a certificate of fitness at any time, if satisfied that the vehicle to which it relates no longer complies with all the requirements of this Ordinance and the rules made thereunder; and on such cancellation the certificate of registration of the vehicle and any permit granted in respect of the vehicle under Chapter IV shall be deemed to be suspended until a new certificate of fitness has been obtained.
+
+[^22]: Subs. by West Pakistan Ord. IX of 1970, s.2.
+[^23]: Replaced by West Pakistan Ord. IX of 1970, s.2.
+[^24]: Added by Ord. IX of 1970, s.2.
+[^25]: Omitted by West Pakistan Ord. IX of 1970, s.2.

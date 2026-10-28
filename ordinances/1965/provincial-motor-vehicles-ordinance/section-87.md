@@ -1,0 +1,1 @@
+87. Obstruction of driver.– No person driving a motor vehicle shall allow any person to stand or sit or anything to be placed in such manner or position as to hamper the driver in his control of the vehicle.

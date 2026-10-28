@@ -1,0 +1,1 @@
+5. Owners of motor vehicles not to permit contravention of section 3 or section 4.__ No owner or person in charge of a motor vehicle shall cause or permit any person who does not satisfy the provisions of section 3 or section 4 to drive the vehicle.

@@ -1,0 +1,11 @@
+61. General conditions attaching to all permits.– (1) Save as provided in section 62, a permit shall not be transferable from one person to another except with the permission of the transport authority which granted the permit and shall not without such permission operate to confer on any person to whom a vehicle covered by the permit is transferred any right to use that vehicle in the manner authorized by the permit.
+(2) The holder of a permit may, with the permission of the authority by which the permit was granted, replace by another vehicle of the same or substantially similar nature and capacity any vehicle covered by the permit.
+(3) The following shall be conditions of every permit__
+(a) that the vehicle or vehicles to which the permit relates are at all times so maintained as to comply with the requirements of Chapter VI and the rules made thereunder;
+(b) that the vehicle or vehicles to which the permit relates are not driven at a speed exceeding the speed permissible under this Ordinance;
+(c) that any prohibition or restriction imposed and any maximum or minimum fares or freights fixed by notification made under section 45 are observed in connection with any vehicle or vehicles to which the permit relates;
+(d) that the vehicle or vehicles to which the permit relates are not driven in contravention of the provision of section 76;
+(e) that the permit holder shall furnish to the Provincial Transport Authority or a Regional Transport Authority or an officer of the Transport Department authorized in this behalf, within such period of time as may be fixed by that authority or the officer, such information relating to the vehicle or vehicles covered by the permit or the permit holder’s business as a carrier as may be required by that authority or officer;
+(f) that the provisions of any law for the time being in force in the Province relating to insurance of motor vehicles so far as they apply to the holder of the permit are observed; and
+(g) that the permit holder’s business premises shall be according to a design approved by the Provincial Transport Authority and maintained properly.
+Explanation___ In this clause, business premises include bus stations, shelters, garages and repairs shops for the vehicle or vehicles to which the permit relates.

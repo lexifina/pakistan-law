@@ -1,0 +1,1 @@
+103. Racing and trials of speed.– Whoever, without the written consent of Government, permits or takes part in a race or trial of speed between motor vehicles in any public place shall be punished with imprisonment for a term which may extend to six months, or with fine which may extend to one thousand rupees, or with both.

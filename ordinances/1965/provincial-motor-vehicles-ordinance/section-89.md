@@ -1,0 +1,1 @@
+89. Pillion riding.– No driver of a two wheeled motor cycle shall carry more than one person in addition to him self on the cycle and no such person shall be carried otherwise than sitting on a proper seat securely fixed to the cycle behind the driver’s seat.

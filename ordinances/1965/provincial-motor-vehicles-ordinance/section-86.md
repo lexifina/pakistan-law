@@ -1,0 +1,2 @@
+86. Riding on running boards.– No person driving or in charge of a motor vehicle shall carry any person or permit any person to be carried on the running board or otherwise than within the body of the vehicle:
+Provided that Government may, by notification in the official Gazette, permit, in such areas as may be specified in the notification, the Civil Armed Forces, the Frontier Constabulary, the West Pakistan Rangers and the Armed Police to have an armed picket on the running board of a motor vehicle or otherwise than within the body of the vehicle.

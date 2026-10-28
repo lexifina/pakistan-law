@@ -1,0 +1,2 @@
+47. General provisions as to applications for permits.– (1) Every application for a permit shall be made to the Regional Transport Authority of the region or of one of the regions in which it is proposed to use the vehicle or vehicles and, if the applicant resides or has his principal place of business in any one of those regions, to the Regional Transport Authority of that region.
+(2) Nothing in sub-section (1) shall apply to road transport services operated by the Corporation.

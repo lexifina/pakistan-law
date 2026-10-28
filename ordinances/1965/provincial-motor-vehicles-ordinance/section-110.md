@@ -1,0 +1,1 @@
+110. Unauthorised interference with vehicle.– Whoever otherwise than with lawful authority or reasonable excuse enters or mounts any stationary motor vehicle or tampers with the brake or any part of the mechanism of a motor vehicle shall be punished with imprisonment which may extend to one month or with fine which may extend to two hundred rupees, or with both.

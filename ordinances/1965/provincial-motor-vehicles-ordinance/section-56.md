@@ -1,0 +1,1 @@
+56. Application for public carrier’s permit.– An application for a permit to use a motor vehicle for the carriage of goods for hire or reward (in this Chapter referred to as a public carrier’s permit) shall be made on the prescribed form and shall contain the prescribed particulars.
