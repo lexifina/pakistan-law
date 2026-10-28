@@ -1,0 +1,2 @@
+9. Funds of the Commission.—(1) There shall be constituted for the Commission a fund to which shall be credited all sums received under sub- section (2) and out of which shall be defrayed all expenditure incurred by the Commission, including expenditure on the emoluments of the Chairman and members and the officers, employees, experts and consultants of the Commission.
+(2) Every financial institution shall make to the Commission such payments to defray its expenses as the Commission may, with the approval of the Federal Government, demand.

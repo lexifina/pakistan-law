@@ -1,0 +1,1 @@
+10. Appointment of officers, employees, etc.—For the efficient performance of its functions, the Commission may appoint its officers, employees experts, and consultants, on such terms and conditions as may be prescribed.

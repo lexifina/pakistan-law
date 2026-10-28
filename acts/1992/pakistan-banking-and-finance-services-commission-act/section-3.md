@@ -1,0 +1,1 @@
+3. Establishment of the Commission.— There shall be established for the purposes of this Act a Commission to be called the Pakistan Banking and Finance Services Commission and consisting of a Chairman and not more than four members appointed by the Federal Government.
