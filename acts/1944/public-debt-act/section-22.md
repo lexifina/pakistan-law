@@ -1,0 +1,1 @@
+22. Discharge in respect of interest on Government securities. Save as otherwise expressly provided in the terms of a Government security, no person shall be entitled to claim interest on such security in respect of any period which has elapsed after the earliest date on which demand could have been made for the payment of the amount due on such security.

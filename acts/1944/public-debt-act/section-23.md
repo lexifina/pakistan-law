@@ -1,0 +1,4 @@
+23. Discharge in respect of bearer bonds. [^38][Government] shall be discharged from all liability on a bearer bond or on any interest coupon of such a bond on payment to the holder of such bond or coupon on presentation on or after the date when it becomes due of the amount expressed therein, unless before such payment an order of a Court in [^39][Pakistan] has been served on [^38][Government] restraining it from making payment.
+
+[^38]: Subs. by the public debit (Amdt.) Ordinance, 1961 (VII of 1961), ss. 8, 9 and 10, for “Central Government”.
+[^39]: Subs. by the Central Laws (Statue Reforms) Ordinance, 1960 (21 of 1960), s. 3 and 2nd Sch. (with effect from the 14th October, 1955), for “the Provinces and the Capital of the Federation” which had been subs. by A. O., 1949, for “British India”.

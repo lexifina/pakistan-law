@@ -1,0 +1,1 @@
+29. Act X of 1920 not to apply to Government securities. The Securities Act, 1920 (X of 1920), shall cease to apply to Government securities to which this Act applies, and to all matters for which provision is made by this Act.

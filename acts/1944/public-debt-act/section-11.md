@@ -1,0 +1,13 @@
+11. Issue of duplicate securities and of new securities on conversion, consolidation, sub-
+division or renewal.—(1) If the person entitled to a Government security [^25][not being security in a form notified in pursuance of paragraph (iv) of sub-clause (a) of clause (2) of section 2,] applies to the Bank alleging that the security has been lost, stolen or destroyed, or has been defaced or mutilated, the Bank may, on proof to its satisfaction of the loss, theft, destruction, defacement or mutilation of the security, subject to such conditions and on payment of such fees as may be prescribed, order the issue of a duplicate security payable to the applicant.
+[^26][(lA) If a Government security in any of the forms notified in pursuance of paragraph (iv) of sub clause (a) of clause (2) of section 2 has been defaced or mutilated, the holder thereof may, in such manner, and subject to such conditions and on payment of such fees, if any, as may be [^27]notified by Government, apply for the issue of a duplicate security, or for the refund of its value [^28][:]
+[^29][Provided that where such Government security is in the form of a Prize Bond, the holder thereof may apply only for the refund of its value.]
+(2) If the person entitled to a Government security applies to the Bank to have the security converted into a security of another form, or into a security issued in connection with another loan or to have it consolidated with other like securities, or to have it subdivided, or to have it renewed, the Bank may, subject to such conditions and on payment of such fees as may be prescribed, cancel the security and order the issue of a new security or securities.
+(3) The person to whom a duplicate security or a new security is issued under this section shall be deemed for the purposes of section 19 to have been recognised by the Bank as the holder of the security; and a duplicate security or new security so issued to any person shall be deemed to constitute a new contract between [^30][Government] and such person and all persons deriving title thereafter through him.
+
+[^25]: Ins. by the Public Debt (Amdt.) Act, 1963 (13 of 1963), s. 4 (with effect from the 2nd August, 1960).
+[^26]: New sub-section (1A) ins. by the Public Debt. (Amdt.) Act, 1963 (13 of 1963), s. 4 (with effect from the 2nd August, 1960).
+[^27]: For the Prize Bonds Refund Rules, 1963, see Gaz. of P., 1963, Ext. pp. 807-809.
+[^28]: Subs. by the Public Debt (Amendment) Ordinance, 1979 (48 of 1979), s.2 for full-stop.
+[^29]: Added ibid.
+[^30]: Sub. by the Public Debt (Central Government) (Amdt.) Ordinance, 1961 (7 of 1961), s. 6, for “the Central Government”.

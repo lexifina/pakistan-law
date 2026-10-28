@@ -1,0 +1,2 @@
+10. Government securities not exceeding five thousand rupees face value belonging to
+minor or insane person.— When a Government security or securities belong to a minor or a person who is insane and incapable of managing his affairs and the face value of the security or securities does not in the aggregate exceed five thousand rupees, the Bank may make such order as it thinks fit for the vesting of such security or securities in such person as it considers represents the minor or insane person.
