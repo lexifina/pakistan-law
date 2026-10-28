@@ -1,0 +1,1 @@
+23. Cognizance of offence by courts. No Court shall take cognizance of an offence punishable under this Act save upon a complaint in writing made by the Federal Government or an officer appointed under this Act.

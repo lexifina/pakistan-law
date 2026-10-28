@@ -1,0 +1,2 @@
+27. Appearance by counsel or agent. Any person who is entitled or required to attend before the Chairman or any other authority in connection with any proceeding under this Act, otherwise than when called upon to attend personally for examination on oath or affirmation, may attend or be represented by his duly authorised agent, and any application, appeal or revision may be presented by counsel or such agent.
+Explanation.— In this section, “counsel” means an Advocate or any, person entitled or allowed to plead in any civil court.

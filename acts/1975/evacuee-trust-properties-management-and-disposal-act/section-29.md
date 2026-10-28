@@ -1,0 +1,1 @@
+29. Power to make regulations. The Board may with the approval of the Federal Government, make regulations regarding appointments, promotions, conditions of service, pensionary and other benefits in respect of the officers and staff of the Board.
