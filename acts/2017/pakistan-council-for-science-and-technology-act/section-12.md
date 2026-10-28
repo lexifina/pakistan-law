@@ -1,0 +1,1 @@
+12. Chairperson of the Council.—The Chairperson shall be an eminent scientist or engineer holding a Ph.D degree with sufficient relevant experience to be appointed by the Prime Minister on recommendations of the Federal Government for a term of three years extendable for another term on such terms and conditions as may be prescribed.
