@@ -1,0 +1,1 @@
+4. Secrecy of information.— Any information furnished or collected in connection with the deduction of Zakat at source under this Ordinance shall be treated as secret and shall not be used for any other purpose, including the assessment or collection of any tax.
