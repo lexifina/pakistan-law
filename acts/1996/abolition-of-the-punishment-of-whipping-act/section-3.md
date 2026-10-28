@@ -1,0 +1,2 @@
+3. Abolition of punishment of whipping.—Except in cases where the punishment of whipping is provided for as hadd, the sentence of whipping provided under any law, rule or regulation for the time being in force shall stand abolished:
+Provided that where, on the commencement of this Act, the sentence of whipping awarded by any Court or Tribunal has not been executed, such sentence of whipping shall stand remitted.
