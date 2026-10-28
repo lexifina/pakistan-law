@@ -1,0 +1,1 @@
+68. Removal of Difficulties. If any difficulty arises in giving effect to any provision of this Act, the Federal Government may, in consultation with the State Bank, make such order as appears to it to be necessary for the purpose of removing the difficulty.

@@ -1,0 +1,2 @@
+23. Settlement Rules .__ (1) The State Bank may make “settlement rules” to provide the basis on which payment obligations are calculated, netted or settled including rules for the taking of action in the event that a participant is unable or likely to become unable to meet its obligations to the Clearing House, or to the other participants.
+(2) Every participant and Clearing House shall, in respect of its Designated Payment System, provide the State Bank with such information, at such times and in such form as the State Bank may require in writing.

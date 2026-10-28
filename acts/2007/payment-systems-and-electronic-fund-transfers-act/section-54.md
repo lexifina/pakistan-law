@@ -1,0 +1,1 @@
+54. Action in Bad Faith. On finding by the court that an unsuccessful action for any alleged failure was brought in bad faith or for the purposes of harassment, the court may award to the defendant (s) costs of such litigation and the attorney’s fees found reasonable in relation to the work.

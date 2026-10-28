@@ -1,0 +1,5 @@
+47. Exceptions.— (1) Notwithstanding the provisions of section 46, a person may distribute to a consumer on an unsolicited basis a card, code or other means of access for use in initiating an Electronic Fund Transfer from such Consumer’s account if__
+(i) such card, code or other means of access is not validated;
+(ii) such distribution is accompanied by a complete disclosure, in accordance with section 29 of the Consumers’ rights and liabilities which will apply if such Card, code or other means of access is validated;
+(iii) such distribution is accompanied by a clear explanation, in accordance with instructions of the State Bank, that such card, code, or other means of access is not validated and how the Consumer may dispose of such code, card, or other means of access if validation is not desired and such Card, code, or other means of access is validated only in response to a request or application from •the Consumer, upon verification of the Consumer’s identity.
+(2) For the purpose of this section, a card, code, or other means of access is validated when it may be used to initiate an Electronic Fund Transfer.

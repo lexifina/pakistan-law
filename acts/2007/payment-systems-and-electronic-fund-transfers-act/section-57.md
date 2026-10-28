@@ -1,0 +1,6 @@
+57. Violations Affecting Electronic Commerce.—Whoever—
+(1) knowingly, in a transaction effected by electronic commerce, uses or attempts or conspires to use any counterfeit, fictitious, altered, forged, lost, stolen, or fraudulently obtained Debit Instrument to obtain money, goods, services or anything else of value aggregating five thousand rupees or more, or
+(2) knowingly receives, conceals, uses or transports money, goods, services or anything else of value aggregating five thousand rupees or more obtained by use of any counterfeit, fictitious, altered, forged, lost, stolen, or fraudulently obtained Debit Instrument, or
+(3) knowingly receives, conceals, uses, sells, or transports one or more tickets for transportation, and which have been purchased or obtained with one or more counterfeit, fictitious, altered, forged, lost, stolen or fraudulently obtained Debit Instrument,
+shall be punished with imprisonment of either description for a term which may extend to seven years, or with fine which may extend to one million rupees, or with both.
+Explanation.— For the purpose of this section e-commerce means the activity of buying, selling or contracting for goods, services and making payments using internet or worldwide web through communication networks including of wireless networks, within or outside Pakistan.

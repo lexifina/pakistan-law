@@ -1,0 +1,1 @@
+34. Documentation as Evidence.__ In any action involving a Consumer or any Participant, any documentation required by either section 31 or 32 of this Act to be given to the Consumer, which indicates that an Electronic Fund Transfer was made to another Person, shall be admissible as evidence of such transfer and shall constitute prima facie proof that such transfer was made.

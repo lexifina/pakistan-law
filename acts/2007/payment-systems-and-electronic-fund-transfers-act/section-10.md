@@ -1,0 +1,1 @@
+10. Governance Arrangements.__ The operator of a Designated Payment System shall establish adequate governance arrangements which are effective, accountable and transparent or which may be required by the State Bank to ensure the continued integrity of such designated Payment System.

@@ -1,0 +1,1 @@
+49. Waiver of Rights. __ No writing or other agreement between a Consumer and any other Person may contain any provision which constitutes a waiver of any right conferred or cause of action created by this Act, and any such writing waiving any right or cause of action shall be void and of no legal effect.

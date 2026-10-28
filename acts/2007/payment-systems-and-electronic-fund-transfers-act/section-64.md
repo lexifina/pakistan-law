@@ -1,0 +1,1 @@
+64. Application to acts done outside Pakistan. __The provisions of this Act shall apply notwithstanding the matters being the subject hereof occurring outside Pakistan, in so far as they are directly or indirectly connected to, or have an effect on or bearing in relation to persons, Payment Systems or events within the territorial jurisdiction of Pakistan.

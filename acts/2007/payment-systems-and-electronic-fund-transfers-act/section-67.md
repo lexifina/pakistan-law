@@ -1,0 +1,1 @@
+67. Overriding Effect.—This Act shall have effect notwithstanding anything to the contrary provided in any other law for the time being in force or any agreement, contract, memorandum, or articles of association.

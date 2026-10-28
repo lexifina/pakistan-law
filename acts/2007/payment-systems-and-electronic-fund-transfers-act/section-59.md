@@ -1,0 +1,10 @@
+## CHAPTER X
+## MISCELLANEOUS
+59. Act to override Law of Insolvency.— (1) Notwithstanding anything to the contrary provided in the law of insolvency, rights and liabilities of persons arising from transfer orders in this Act shall be governed subject to the provisions of this section, in case such person is a participant.
+(2) No transfer order passed under this Act, any disposition of property in pursuance of such order, or the default arrangements of a designated system shall be regarded to any extent as invalid on the ground of inconsistency with the law of insolvency.
+(3) No order of the court or any office holder acting under the law of insolvency shall interfere with settlement of a transfer order passed in accordance with the rules of the designated system.
+(4) A debt or other liability arising out of a transfer order which is the subject of action taken under default arrangements, may not be proved in a bankruptcy or winding up proceedings, or may not be taken into account for the purpose of any set-off until the completion of the action taken under default arrangements.
+(5) The Netting arrangement shall be valid and enforceable and an operator or participant of a designated system shall be required to give effect to such arrangement.
+(6) Nothing in this section shall be construed to require the unwinding of any netting or gross payment done by the operator of a Designated Payment System, whether pursuant to its default arrangements or otherwise:
+Provided that this section shall not apply in relation to any transfer order which is entered into a Designated Payment System after the expiry of the day on which a court made an order for insolvency, judicial management or winding up in respect of the participant, or after a resolution for voluntary winding up of the participant was passed.
+Explanation.— In this section “Default Arrangements” means the arrangements put in place .by a designated system to limit systemic and other kinds of risks which arise in the event of a participant appearing to be unable, or likely to become unable, to meet its obligations in respect of a transfer order, including any arrangements for netting.

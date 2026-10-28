@@ -1,0 +1,6 @@
+29. Requirement of Notice.__ (1) The instructions issued by the State Bank under section 3 shall require any ATM Operator or any other Service Provider who imposes a fee on any consumer for providing services to such consumer, to provide notice in accordance with sub-sections (2) and (3) to the consumer of the fact that –
+(i) a fee is imposed by such operator or Service Provider for providing the service; and
+(ii) the amount of any such fee.
+(2) The notice required by sub-section (1) with respect to any fee shall be posted at a prominent and conspicuous location on or at the ATM or other Electronic Terminal at which the consumer initiates the Electronic Fund Transfer.
+(3) The notice required under sub-section (1) with respect to charging of fee shall appear on the conspicuous part of the ATM or Electronic Terminal in the manner as may be determined and notified by the State Bank in this behalf.
+(4) No fee may be imposed by any ATM Operator or other Service Provider, as the case may be, in connection with any Electronic Fund Transfer initiated by a consumer for which a notice is required under sub-section (1), unless the consumer receives such notice in accordance with sub-sections (2) and (3) and such consumer elects to continue in the manner necessary to effect the transaction after receiving such notice.
