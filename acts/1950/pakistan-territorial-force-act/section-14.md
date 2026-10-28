@@ -1,0 +1,4 @@
+14. Summary trial and punishments. ___In addition to, or in substitution for, any punishment or punishments to which he may be liable under [^9][the Pakistan Army Act, 1952 (XXXIX of 1952), a junior commissioned officer,] non-commissioned officer or man of the Pakistan Territorial Force not being a member of a university corps, may be punished either by a criminal court or summarily by order of the prescribed authority for any offence under that Act, or for the contravention of any rule or regulation under this Act, with fine which may extend to fifty rupees, to be recovered in such manner and by such authority as may be prescribed:
+Provided that no court inferior to that of a magistrate of the first class shall try any offence made punishable by or under this Act.
+
+[^9]: Subs. by the Repealing and Amending Ordinance No. X of 1965, s. 3 and 2nd Sch.
