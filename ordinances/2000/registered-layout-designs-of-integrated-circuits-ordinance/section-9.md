@@ -1,0 +1,3 @@
+9. Register of Layout-Designs:___ (1) The Patent Office shall maintain a register to be called the “Register of Layout-Designs” in which it shall, for each registered layout-design, effect all the recordings provided for in this Ordinance.
+(2) The Register of Layout-Designs shall contain the number, title, filing date and the date of first commercial exploitation of the layout-design as well as the name and address of the right holder and other particulars as may be prescribed.
+(3) Any person may consult the Register of Layout Designs and obtain extracts therefrom, on payment of the prescribed fee.

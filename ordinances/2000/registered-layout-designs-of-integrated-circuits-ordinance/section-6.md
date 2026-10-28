@@ -1,0 +1,1 @@
+6. Commencement and duration of protection:___The protection of a layout-design registered under this Ordinance shall commence on the date of the first commercial exploitation anywhere in the world and shall terminate at the end of the tenth calendar year from the date of such first commercial exploitation.

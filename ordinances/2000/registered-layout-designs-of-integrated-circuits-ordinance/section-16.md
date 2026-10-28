@@ -1,0 +1,2 @@
+16. Offences and penalties:___ (1) Any person who, without authorization knowingly performs any act which is unlawful under section 5 shall be guilty of an offence punishable with imprisonment for a term which may extend to two years, or with fine which shall not be less than two hundred thousand rupees, or with both.
+(2) The Court may also order the seizure, forfeiture and destruction of the layout-designs of integrated circuits or article; and of any materials or implements having been predominantly used in the commission of the offence.

@@ -1,0 +1,2 @@
+18. Exercise of discretionary power and extension of time:___ (1) The Controller shall give any party to any proceeding before him an opportunity of being heard before exercising any discretionary power under the provisions of this Ordinance which may adversely affect such party.
+(2) The Controller may, if he is satisfied that the circumstances justify it, upon receiving a written request therefor, extend the time for doing any act or taking any proceeding under this Ordinance, upon notice to the parties concerned and upon such terms as he may direct.

@@ -1,0 +1,2 @@
+3. Originality :___ (1) A layout-design shall be considered to be original if it is the result of its creator's own intellectual effort and is not commonplace among creators and manufacturers of layout-designs of integrated circuits at the time of its creation.
+(2) A layout-design consisting of a combination of elements and inter-connections that are commonplace shall be considered to be original if the combination taken as a whole fulfils the conditions specified in sub-section (1).
