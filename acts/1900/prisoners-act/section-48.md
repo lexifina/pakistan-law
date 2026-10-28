@@ -1,0 +1,4 @@
+48. Process served to be transmitted at prisoner’s request.___ (1) Every officer in charge of a prison upon whom service is made under section 47 shall, as soon as may be, cause the copy of the process deposited with him to be shown and explained to the person to whom it is directed, and shall thereupon endorse upon the process and sign a certificate to the effect that such person as aforesaid is confined in the prison under his charge and has been shown and had explained to him a copy of the process.
+(2) Such certificate as aforesaid shall be prima facie evidence of the service of the process, and, if the person to whom the process is directed requests that the copy shown and explained to him be sent to any other person and provides the cost of sending it by post, the officer in charge of the prison shall cause it to be so sent.
+Miscellaneous
+149. [Application of Part in certain cases.] Omitted by A. O., 1949, Schedule.

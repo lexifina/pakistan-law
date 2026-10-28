@@ -1,0 +1,4 @@
+45. Commissions for examination of prisoners beyond limits of appellate jurisdiction of
+High Court. Where it appears to a High Court that the evidence of a person confined in a prison beyond the local limits of its appellate jurisdiction is material in any civil matter pending before it or before any Court subordinate to it, the High Court may, if it thinks fit, issue a commission, under the provisions of the [^57][Code of Civil Procedure, 1908 (Act V of 1908)], for the examination of the person in the prison in which he is confined.
+
+[^57]: Subs. by the Federal Laws (Revision and Declaration) Ordinance, 1981 (27of 1981), s. 3 and Second Sch., for “Code of Civil Procedure. (XIV of 1882).”. ISub-sections (2) and (3) of section 49 had been repealed previously by the Lower Burma Courts Act, 1900 (6 of 1900), s. 48 and Sch. II.
