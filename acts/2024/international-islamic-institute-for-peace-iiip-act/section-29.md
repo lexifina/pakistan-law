@@ -1,0 +1,1 @@
+29. First statutes.—Notwithstanding anything to the contrary contained in the Act, the statutes set out in the Schedule shall be deemed to be the statutes made under section 27 and shall continue to remain in force until amended or repealed in accordance with the provisions of the Act.
