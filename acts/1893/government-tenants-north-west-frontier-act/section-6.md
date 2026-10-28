@@ -1,0 +1,1 @@
+6. Entry in register and signature thereof on grant of tenancy. Before a tenancy is granted to any person in any such tract, the prescribed particulars regarding the proposed grant shall be duly entered in the appropriate register, and the entry shall be signed by the proposed tenant and by the Deputy Commissioner.

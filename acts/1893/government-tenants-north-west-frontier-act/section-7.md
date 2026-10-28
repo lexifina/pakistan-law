@@ -1,0 +1,3 @@
+7. Effect of signature of entry. When any entry in any such register has been so signed as directed in the last foreging section, the person signing the same as proposed tenant and his successors in interest shall, notwithstanding any previous agreement or anything contained in the Punjab Tenancy Act, 1887, (XVI of 1887) or the Hazara Tenancy Regulation, 1887 (Reg. XIII of 1887), or any other enactment now in force, be deemed to have accepted and to hold the lands described in such entry as a tenant from the [^12][Government] on the conditions prescribed in the statement prefixed to such register.
+
+[^12]: Subs. by A.O. ,1961, Art. 2, (with effect from the 23rd March, 1956) , for “Crown”, which had been subs. by A.O., 1937, for “Govt.”.
