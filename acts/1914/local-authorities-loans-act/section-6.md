@@ -1,0 +1,7 @@
+6. Issue of short term bills.___(1) Subject to the provisions of section [^15][17 of the State Bank of Pakistan Act, 1956 (XXXIII of 1956)], the local authorities mentioned in Schedule I and any other local authority to which the [^16][appropriate Government] may, by notification in the [^17][official Gazette], extend the provisions of this section, may, with the previous sanction of the [^16][appropriate Government], borrow money by means of the issue of bills or promissory notes payable within any period, not exceeding twelve months, for any purpose for which such local authority may lawfully borrow money under any law for the time being in force:
+Provided that the amount of the bills or promissory notes which may be so issued, shall not exceed, when the amount of the other moneys for the time being borrowed by such local authority is taken into account, the total amount which such local authority is empowered by law to borrow.
+(2) The [^16][appropriate Government] may, by general or special order, regulate the conditions on which money may be borrowed or repaid under this section.
+
+[^15]: Subs. by the Federal Laws (Revision and Declaration) Ordinance, 1981 (27 of 1981), s. 3 and Sch., II. for “26 of the Indian Paper Currency Act, 1910”, which has previously been amended by various enactments from time to time.
+[^16]: Subs. by A. O., 1937, for “G. G. in C. “.
+[^17]: Subs. ibid., for “Gazette of India”.
