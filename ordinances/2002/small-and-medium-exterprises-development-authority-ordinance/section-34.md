@@ -1,0 +1,1 @@
+34. Common seal. The Authority shall have a common seal and such seal shall be kept in the custody of the Chief Executive Officer or such other person as may be authorized by the Board. All documents that are required or permitted to be executed under seal shall be specified and authenticated in such manner as may be prescribed.
