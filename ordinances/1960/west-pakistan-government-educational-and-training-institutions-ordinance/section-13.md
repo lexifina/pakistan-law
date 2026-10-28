@@ -1,0 +1,1 @@
+13. Annual financial statement. The Board shall submit a statement of estimated receipts and expenditure in respect of the next financial year to Government for approval, at such time and in such manner as may be prescribed and shall give effect to any modifications made therein by Government.
