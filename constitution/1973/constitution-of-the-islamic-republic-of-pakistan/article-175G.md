@@ -1,0 +1,1 @@
+175G. Review of judgments or orders by the Federal Constitutional Court.__The Federal Constitutional Court shall have the power, subject to the provisions of any Act of Majlis-e-Shoora (Parliament) and any rules made by the Federal Constitutional Court, to review any judgment pronounced or any order made by it.

@@ -1,0 +1,1 @@
+158. Priority of requirements of natural gas. The Province in which a well-head of natural gas is situated shall have precedence over other parts of Pakistan in meeting the requirements from that well-head, subject to the commitments and obligations as on the commencing day.

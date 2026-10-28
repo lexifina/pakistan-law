@@ -1,0 +1,1 @@
+276. Oath of first President. Notwithstanding anything contained in the Constitution, the first President may, in the absence of the Chief Justice of Pakistan, make the oath referred to in Article 42 before the Speaker of the National Assembly.

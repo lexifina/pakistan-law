@@ -1,0 +1,1 @@
+254. Failure to comply with requirement as to time does not render an act invalid. When any act or thing is required by the Constitution to be done within a particular period and it is not done within that period, the doing of the act or thing shall not be invalid or otherwise ineffective by reason only that it was not done within that period.

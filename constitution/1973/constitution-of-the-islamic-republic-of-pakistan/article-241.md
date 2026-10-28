@@ -1,0 +1,1 @@
+241. Existing rules, etc., to continue. Until the appropriate Legislature makes a law under Article 240, all rules and orders in force immediately before the commencing day shall, so far as consistent with the provisions of the Constitution, continue in force and may be amended from time to time by the Federal Government or, as the case may be, the Provincial Government.

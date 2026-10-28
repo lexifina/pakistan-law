@@ -1,0 +1,1 @@
+266. Repeal. The Interim Constitution of the Islamic Republic of Pakistan, together with the Acts and President's Orders making omissions from, additions to, modifications of, or amendments in, that Constitution is hereby repealed.

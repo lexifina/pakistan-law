@@ -1,0 +1,1 @@
+52. Duration of National Assembly. The National Assembly shall, unless sooner dissolved, continue for a term of five years from the day of its first meeting and shall stand dissolved at the expiration of its term.

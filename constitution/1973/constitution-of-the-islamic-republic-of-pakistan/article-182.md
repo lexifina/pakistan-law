@@ -1,0 +1,6 @@
+182. Appointment of ad-hoc Judges. If at any time it is not possible for want of quorum of Judges of the Supreme Court to hold or continue any sitting of the Court, or for any other reason it is necessary to increase temporarily the number of Judges of the Supreme Court, the Chief Justice of [^218][Supreme Court] [^221][, in Consultation with the Judicial Commission as provided in clause (2) of Article 175A,] may, in writing,__
+(a) with the approval of the President, request any person who has held the office of a Judge of that Court and since whose ceasing to hold that office three years have not elapsed; or
+(b) with the approval of the President and with the consent of the Chief Justice of a High Court, require a Judge of that Court qualified for appointment as a judge of the Supreme Court, to attend sittings of the Supreme Court as an ad hoc Judge for such period as may be necessary and while so attending an ad hoc Judge shall have the same power and jurisdiction as a Judge of the Supreme Court.
+
+[^218]: Subs. by the Constitution (Twenty-seventh Amendment) Act, 2025 (Act No. XXXII of 2025), ss. 25-27.
+[^221]: Inserted by the Constitution (Nineteenth Amendment) Act, 2011 (Act No. I of 2011), s. 5.

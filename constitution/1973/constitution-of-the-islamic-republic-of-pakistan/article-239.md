@@ -1,0 +1,9 @@
+[^351][239. Constitution amendment Bill.__ (1) A Bill to amend the Constitution may originate in either House and, when the Bill has been passed by the votes of not less than two-thirds of the total membership of the House, it shall be transmitted to the other House.
+(2) If the Bill is passed without amendment by the votes of not less than two-thirds of the total membership of the House to which it is transmitted under clause (1), it shall, subject to the provisions of clause (4), be presented to the President for assent.
+(3) If the Bill is passed with amendment by the votes of not less than two-thirds of the total membership of the House to which it is transmitted under clause (1), it shall be reconsidered by the House in which it had originated, and if the Bill as amended by the former House is passed by the latter by the votes of not less than two-thirds of its total membership it shall, subject to the provisions of clause (4), be presented to the President for assent.
+(4) A Bill to amend the Constitution which would have the effect of altering the limits of a Province shall not be presented to the President for assent unless it has been passed by the Provincial Assembly of that Province by the votes of not less than two-thirds of its total membership.
+[^352][(5) Notwithstanding anything contained in the Constitution and any judgment of any court, no court shall have jurisdiction to call in question any amendment to the Constitution on any ground whatsoever.]
+(6) For the removal of doubt, it is hereby declared that there is no limitation whatever on the power of the Majlis-e-Shoora (Parliament) to amend any of the provisions of the Constitution.]
+
+[^351]: Subs. by the Constitution (Second Amendment) Order, 1985 (P. O. No. 20 of 1985), Art. 3.
+[^352]: Subs. by the Constitution (Twenty-seventh Amendment) Act, 2025 (Act No. XXXII of 2025), s. 50.

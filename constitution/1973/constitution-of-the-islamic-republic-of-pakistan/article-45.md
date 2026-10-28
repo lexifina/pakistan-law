@@ -1,0 +1,1 @@
+45. President’s power to grant pardon, etc. The President shall have power to grant pardon, reprieve and respite, and to remit, suspend or commute any sentence passed by any court, tribunal or other authority.

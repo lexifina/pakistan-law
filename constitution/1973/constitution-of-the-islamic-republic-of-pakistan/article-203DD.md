@@ -1,0 +1,6 @@
+[^276][203DD. Revisional and other jurisdiction of the Court.__ (1) The Court may call for and examine the record of any case decided by any criminal court under any law relating to the enforcement of Hudood for the purpose of satisfying itself as to the correctness, legality or propriety of any finding, sentence or order recorded or passed by, and as to the regularity of any proceedings of, such court and may, when calling for such record, direct that the execution of any sentence be suspended and, if the accused is in confinement, that he be released on bail or on his own bond pending the examination of the record.
+(2) In any case the record of which has been called for by the Court, the Court may pass such order as it may deem fit and may enhance the sentence:
+Provided that nothing in this Article shall be deemed to authorise the Court to convert a finding of acquittal into one of conviction and no order under this Article shall be made to the prejudice of the accused unless he has had an opportunity of being heard in his own defence.
+(3) The Court shall have such other jurisdiction as may be conferred on it by or under any law.]
+
+[^276]: Subs. by the Constitution (Second Amendment) Order, 1982 (P. O. No. 5 of 1982), Art. 5.

@@ -1,0 +1,1 @@
+23. Provision as to property. Every citizen shall have the right to acquire, hold and dispose of property in any part of Pakistan, subject to the Constitution and any reasonable restrictions imposed by law in the public interest.

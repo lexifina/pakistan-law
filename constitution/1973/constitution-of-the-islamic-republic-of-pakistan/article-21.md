@@ -1,0 +1,1 @@
+21. Safeguard against taxation for purposes of any particular religion. No person shall be compelled to pay any special tax the proceeds of which are to be spent on the propagation or maintenance of any religion other than his own.
