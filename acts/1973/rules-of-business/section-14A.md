@@ -1,0 +1,1 @@
+14A. Consultation with Revenue Division.- (1) No Division shall, without previous consultation with the Revenue Division, authorise the issue of any orders, other than orders in pursuance of any general or special delegation made by the Revenue Division, which will affect directly or indirectly the collection of revenue from federal taxes, levy of taxes, duties, cesses or fees.

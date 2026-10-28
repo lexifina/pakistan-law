@@ -1,0 +1,6 @@
+42. Assent to Bills.-- A Bill to be presented to the President for his assent shall be forwarded by the appropriate Secretariat duly certified by the Speaker or, as the case may be, the Chairman to the Parliamentary Affairs Division who shall submit it to the President for his assent. The President shall-
+(a) assent to the Bill, or
+(b) if it is a Bill other than a Money Bill, return the Bill to the Majlis-e- Shoora (Parliament) with a message requesting that the Bill, or any specified provision thereof, be reconsidered and that any amendments specified in the message be considered.
+[^35]42A Reconsideration of Bill by Majlis-e-Shoora (Parliament).− When the President has returned a Bill to the Majlis-e-Shoora (Parliament), it shall be reconsidered by the Majlis-e-Shoora (Parliament) in joint sitting and if it is passed by the votes of the majority of the members of both Houses present and voting, it shall be deemed for the purposes of the Constitution to have been passed by both Houses and shall be presented to the President, and the President shall give his assent within ten days, failing which such assent shall be deemed to have been given.
+
+[^35]: Substituted vide S.R.O. 368 (I)/2010 dated 1st June 2010

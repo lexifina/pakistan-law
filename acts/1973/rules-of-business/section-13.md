@@ -1,0 +1,1 @@
+13. Consultation with the Foreign Affairs Division.-- The Foreign Affairs Division shall, subject to orders in pursuance of any general or special delegation made by that Division, be consulted on all matters which affect the foreign policy of Pakistan, or the conduct of its foreign relations.

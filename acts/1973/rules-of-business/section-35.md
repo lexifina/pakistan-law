@@ -1,0 +1,2 @@
+35. Summoning and prorogation of the Senate by the Chairman.--(1) When the Senate is summoned by the Chairman under clause (3) of article 54 read with Article 61, the date, time and place for the commencement of the session shall be notified in the Gazette by the Secretary of the Senate.
+(2) When the Senate is prorogued by the Chairman under clause (3) of Article 54 read with Article 61, the date of prorogation shall be notified in the Gazette by the Secretary of the Senate.

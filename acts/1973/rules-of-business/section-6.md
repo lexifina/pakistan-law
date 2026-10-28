@@ -1,0 +1,1 @@
+6. Individual and collective responsibility.-- The Cabinet shall collectively be responsible for the advice tendered to, or the executive orders issued in the name of the President whether by an individual Minister or as a result of decision by the Cabinet; but the Minister shall assume primary responsibility for the disposal of business pertaining to his portfolio.

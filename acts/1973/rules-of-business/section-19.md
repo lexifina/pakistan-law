@@ -1,0 +1,4 @@
+19. Procedure regarding circulation of Cabinet cases.--(1) When a case is circulated to Cabinet for recording opinion, the Cabinet Secretary shall specify the time by which opinions should be communicated to him. If a Minister does not communicate his opinion by that time, it shall be assumed that he accepts the recommendations contained in the summary.
+(2) On expiry of the specified time, the Cabinet Secretary shall submit the opinions received to the Prime Minister for decision.
+(3) If the Prime Minister directs that the case shall be discussed at a Cabinet meeting, the Cabinet Secretary shall circulate the opinions recorded by the Ministers, in the form of a supplementary summary.
+(4) Report made to the Cabinet of action taken on its decisions, and other cases submitted only for information, shall normally be disposed of by circulation.

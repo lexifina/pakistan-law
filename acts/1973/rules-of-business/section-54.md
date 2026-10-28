@@ -1,0 +1,1 @@
+54. Revocation of Proclamation, etc.-- The Proclamation issued under rule 51,52 or 53 shall be varied or revoked by a subsequent Proclamation to be issued by the Division concerned in terms of rule 15-A.

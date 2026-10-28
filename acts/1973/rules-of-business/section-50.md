@@ -1,0 +1,1 @@
+50. Conferment of powers and imposition of duties upon a Province. -- The Division concerned shall obtain the specific orders of the Prime Minister, if it is proposed to enact a law conferring powers and imposing duties upon a Province or officers or authorities thereof under clause (2) of Article 146.

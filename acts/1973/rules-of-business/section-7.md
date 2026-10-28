@@ -1,0 +1,5 @@
+7. Orders and instruments, agreements and contracts.--(1) Subject to Article 173, all executive actions of the Government shall be expressed to be taken in the name of the President. Note.- The use of the expression "Federal Government" in relation to the Provincial Governments and "Government of Pakistan" in relation to foreign Government shall be in order.
+(2) The officers listed in Schedule IV may authenticate by signature all orders and other instruments made and executed in the name of the President:
+Provided that in certain cases an officer may be so authorised for a particular occasion by order of the Prime Minister.
+(3) Instructions regarding the manner of authentication of orders and instruments in connection with the representation of Pakistan in foreign countries or at international conferences and of international agreements and treaties shall be issued by the Foreign Affairs Division.
+(4) Instructions for the making of contracts on behalf of the President and the execution of such contracts and all assurances of property shall be issued by the Law and Justice Division.
