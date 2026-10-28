@@ -1,0 +1,3 @@
+12. Power to delegate authority. Any authority upon which any power to make or give any direction, consent or permission or to do any other act is conferred by this Act or by any order[^27]made there under may, unless express provision is made to the contrary, in writing authorise, conditionally or otherwise, any authority subordinate to it to exercise such power on its behalf, and thereupon the said subordinate authority shall, subject to such conditions as may be contained in the authorisation, be deemed to be the authority upon which such power is conferred by or under this Act.
+
+[^27]: For the Foreigners (Parolees) Order, 1965, see Gaz. of P., 1965, Ext. pp. 1027-1029. For instance of notifications issued under this section, see Gaz. of P. 1965, Ext., p. 1029.

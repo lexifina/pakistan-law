@@ -1,0 +1,4 @@
+[^29][14. Penalties.—(1) where any person contravenes any provisions of this Act, or of any order made thereunder, or any direction given in pursuance of this Act or order, he shall, except as otherwise provided herein, be punished with imprisonment for a term which may extend to three years and shall also be liable to fine, and if such person has entered into a bond in pursuance of clause (f) of sub-section (2) of section 3, his bond shall be liable to be forfeited, and any person bound thereby shall be liable to pay the penalty thereof, or show cause to the satisfaction of the convicting court as to why such penalty should not be paid.
+(2) Where any person knowingly enters into Pakistan illegally, he shall be guilty of an offence under this Act and shall be punished with imprisonment for a term which may extend to ten years and fine which may extend to ten thousand rupees.]
+
+[^29]: Ins. and Subs by Ord. XXV of 2000, ss. 2-4 .

@@ -1,0 +1,12 @@
+4. Internees.___(1) Any foreigner (hereinafter referred to as an internee) in respect of whom there is in force any order made under clause (g) of sub-section (2) of section 3, directing that he be detained or confined, shall be detained or confined in such place and manner and subject to such condition as to maintenance, discipline and the punishment of offences and breaches of discipline as the [^12][Federal Government] may from time to time determine[^15].
+(2) Any foreigner (hereinafter referred to as a person on paid) in respect of whom there is in force an order under clause (e) of sub-section (2) of section 3 requiring him to reside at a place set apart for the residence under supervision of a number of foreigners, shall while residing therin be subject to such conditions as to maintenance, discipline and the punishment of offences and breaches of discipline as the [^12][Federal Government] may from time to time by order determine.
+(3) No person shall___
+(a) knowingly assist an internee or a person on a parole to escape from custody or the place set apart for his residence, or knowingly harbour an escaped internee or person on parole, or
+(b) give an escaped internee or a person on parole any assistance with intent thereby to prevent, hinder on interfere with apprehension of the internee or the person on parole.
+(4) The [^16][Federal Government] may by order[^17]provide for regulating access to, and the conduct of persons in, places in [^19][Pakistan] where internees or persons on parole are detained or restricted, as the case may be, and for prohibiting or regulating to dispatch an conveyance from outside such places to or internees or persons on parole therein of such articles as may be prescribed.
+
+[^12]: Subs. by F. A. O., 1975, Art. 2 and Table, for “Central Government”.
+[^15]: For the Enemy Foreigners Order 1965, see Gaz., of P., 1965, Ext., pp. 1019-1023 and for the Internees (Discipline and offences) Regulation 1965, see Ibid, 1965, Ext., pp. 1024-1027.
+[^16]: Subs. by the Preventive Detention Laws (Amendment) Act, 1975 (44 of 1975), s. 3, for “Central Government”.
+[^17]: For an Order imposing restrictions on communication, etc. with the person detained or confined by an order under cl. (g) of sub-section (2) of s. 3, see S. R. O. No . 145 (R)/ 65, dated the 10th September 1965, Gaz. of P., 1965, Ext., p. 1029.
+[^19]: The original words “Royal license or” omitted by the Adaptation (Security Laws) Order, 1956 (P. O. No. 8 of 1956), Art. 2 and Sch. (with effect from the 23rd March, 1956).

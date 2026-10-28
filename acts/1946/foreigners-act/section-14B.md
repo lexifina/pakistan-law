@@ -1,0 +1,3 @@
+14B. Deportation pending trial or undergoing sentence of imprisonment. Notwithstanding anything contained in this Act, the Code or any other law for the time being in force, a foreigner having no permission to stay in Pakistan or for whose deportation arrangements have been made by the Federal Government, may, if his presence in Pakistan is not required in connection with any other case,___
+(i) with the consent of the Federal Government, be permitted by the Court trying him for any offence under this Act to depart from Pakistan; or
+(ii) under the order of the Federal Government , be permitted to depart from Pakistan while he is undergoing any sentence passed under this Act.

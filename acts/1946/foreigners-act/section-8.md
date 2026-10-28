@@ -1,0 +1,7 @@
+8. Determination of nationality.—(1) When a foreigner is recognised as a national by the law of more than one foreign country or where for any reason it is uncertain what nationality if any is to be ascribed to a foreigner, that foreigner may be treated as the national of the country with which he appears to the prescribed authority to be most closely connected for the time being in interest or sympathy or if he is of uncertain nationality, of the country with which he was last so connected:
+Provided that where a foreigner acquired a nationality by birth, he shall, except where the [^23][Federal Government] so directs either generally or in a particular case, be deemed to retain that nationality unless he proves to the satisfaction of the said authority that he has subsequently acquired by naturalization or otherwise some other nationality and still recognised as entitled to protection by the Government of the country whose nationality he has so acquired.
+(2) A decision as to nationality given under sub-section (1) shall be final and shall not be called in question in any Court:
+Provided that the [^24][Federal Government], either of its own motion or on an application by the foreigners concerned, may revise any such decision.
+
+[^23]: Subs. by the Preventive Detention Laws (Amendment) Act, 1975 (44 of 1975), s. 3, for “Central Government”.
+[^24]: Subs. by the Preventive Detention Laws (Amendment) Act, 1975 (44 of 1975), s. 3, for “Central Government”.

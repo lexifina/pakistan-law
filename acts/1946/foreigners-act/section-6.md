@@ -1,0 +1,10 @@
+6. Obligations of masters of vessels, etc.—(1) The master of any vessel landing or embarking at a port in [^20][Pakistan], passengers coming to or going from that port by sea and the pilot of any aircraft landing or embarking at any place in [^20][Pakistan], passengers coming to or going from that place by air, shall furnish to such person and in such manner as may be prescribed a return giving the prescribed particulars with respect to any passengers or members of the crew, who are foreigners.
+(2) Any [^21][District Coordination Officer or any officer authorized by Federal Government or] [^22]* * * and any Superintendent of Police may, for any purpose connected with the enforcement of this Act or any order made thereunder, require the master of any such vessel or the pilot of any such aircraft to furnish such information as may be prescribed in respect of passengers or members of the crew on such vessel or aircraft, as the case may be.
+(3) Any passenger on such vessel or such aircraft and any member of the crew of such vessel or aircraft shall furnish to the master of the vessel or the pilot of the aircraft, as the case may be, any information required by him for the purpose of furnishing the return referred to in sub- section (1) or for furnishing the information under sub-section (2).
+(4) For the purposes of this section___
+(a) “master of a vessel, and “pilot of any aircraft” shall include any person authorised by such master or pilot as the case may be, to discharge on his behalf any of the duties imposed on him by this section;
+(b) “passenger” means any person not being a bona fide member of the crew, travelling or seeking to travel on a vessel or aircraft.
+
+[^20]: Subs. by P. O. No.8 of 1956, Art. 2 and Sch., (with effect from the 23rd March, 1956), for “the Provinces and the Capital of the Federation” which had been subs. by A. O., 1949, for “British India”.
+[^21]: Subs. by Ord. 44 of 02, s. 2 & 3.
+[^22]: The words “any Commissioner of Police or, where there is no Commissioner of Police,” omitted by A. O., 1949.
