@@ -1,0 +1,5 @@
+31. Appeal to and review by the Executive Council.___(1). Where an order is passed punishing any officer (other then vice-Chancellor), Teacher or other employees of the University or altering or interpreting to his disadvantage the prescribed terms and conditions of his service, he shall, where the order is passed by the Vice-Chancellor or any other officer or Teacher of the University, have the right to appeal to the Executive Council against the order, and, where the order is made by the Executive Council, have the right to apply to that Authority for review of that order or appeal to the Pro-Chancellor.
+(2) The appeal or application for review shall be submitted to the Vice-Chancellor who shall lay it before the Executive Council or, as the case may be, Pro-chancellor or with his comments.
+[^15][(3) No order on an appeal or application for review shall be passed with our affording to the appellant or applicant, as the case may be, an opportunity of being heard.]
+
+[^15]: Ins. by the Allama Iqbal Open University (Amdt.) Ordinance 1981 (2 of 1981), s.4

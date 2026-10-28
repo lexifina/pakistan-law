@@ -1,0 +1,1 @@
+23. Appointment of Committees by the Authorities. The Executive council, the Academic Council and any other Authority may, from time to time, appoint such standing, special or advisory committees as it may deem fit, and may appoint to such committees persons who are not its members.

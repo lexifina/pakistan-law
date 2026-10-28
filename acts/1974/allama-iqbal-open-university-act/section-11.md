@@ -1,0 +1,2 @@
+11. Vice-Chancellor.—(1) The Vice-Chancellor shall be appointed by the Chancellor on such terms and conditions as the Chancellor may determine for a term not exceeding four years.
+(2) At any time when the office of the Vice-Chancellor is vacant, or the Vice- Chancellor is absent or is unable to perform the functions of his office due to illness or some other cause, the Pro- Chancellor shall make such arrangement for the performance of the duties of Vice-Chancellor as he may deem fit.

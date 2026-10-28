@@ -1,0 +1,1 @@
+33. Commencement of term of office of members of authorities. Where a member of a newly constituted Authority is elected, appointed or nominated, his term of office, as fixed under this Act, shall commence from such date as may be prescribed.
