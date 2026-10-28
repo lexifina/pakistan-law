@@ -1,0 +1,1 @@
+31. First Schedule:___Notwithstanding anything to the contrary contained in this Ordinance shall be deemed to be the Statutes framed under section 27 and shall remain in force until they are amended or replaced by new Statutes framed in accordance with this Ordinance.

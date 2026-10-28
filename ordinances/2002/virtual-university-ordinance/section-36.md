@@ -1,0 +1,3 @@
+36. Removal of difficulties:___(1) If any question arises as to the interpretation of any of the provision of this Ordinance, it shall be placed before the Chancellor whose decision thereon shall be final.
+(2) If any difficulty arises in giving effect to any of the provisions of this Ordinance, the Chancellor may make such order, not inconsistent with the provisions of this Ordinance, as may appear to him to be necessary for removing the difficulty.
+(3) Where this Ordinance makes any provision for anything to be done but no provision or no sufficient provision has been made in respect of the authority or the time at which it shall be done, then it shall be done by such authority, at such time, or in such manner as the Chancellor may direct.
