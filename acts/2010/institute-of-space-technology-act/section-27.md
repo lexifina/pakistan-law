@@ -1,0 +1,2 @@
+27. Rules.—(1) Subject to sub-section (2), the Authorities and the other bodies of the institute may make rules, consistent with this Act, statutes or the regulations, to regulate any matter relating to the affairs of the Institute including rules to regulate the conduct of business and the time and place of meetings and related matters.
+(2) The rules under sub-section (1) shall be made with the approval of the Syndicate.

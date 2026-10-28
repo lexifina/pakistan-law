@@ -1,0 +1,3 @@
+5. Institute open to all classes, creeds, etc.— (1) The Institute shall be open to all persons of either gender and no person shall be denied the privileges of the Institute on the grounds of religion, race, caste, residence or place of birth.
+(2) An increase in any fee or charge that is in excess of ten per cent per-annum on an annualized basis from the last such increase may not be made except in special circumstances, and only with the approval of the Senate.
+(3) The Institute shall initiate financial aid programmes for students in need, to the extent considered feasible by the Senate given the resources available, so as to enable admission and access to the Institute and the various opportunities provided by it to be based on merit rather than ability to pay.
