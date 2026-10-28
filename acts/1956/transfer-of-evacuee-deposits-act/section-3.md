@@ -1,0 +1,5 @@
+3. Appointment of Custodian and Assistant Custodian of Deposits.___(1) The [^3][Federal Government] may, by notification in the official Gazette, appoint a Custodian of Deposits and as many Assistant Custodians of deposits as may be necessary for the purpose of discharging the duties imposed upon the Custodian and Assistant Custodians by or under this Act.
+(2) Subject to the provisions of this Act, the Custodian and Assistant Custodians of Deposits shall discharge the duties imposed on them by or under this Act under the general superintendence and control of the [^3][Federal Government], and the [^3][Federal Government] may, by general or special order, provide for the distribution and transfer of work among them.
+(3) Subject to the provisions of this Act, the Assistant Custodians of Deposits shall discharge the duties imposed on them by or under this Act under the general superintendence and control of the Custodian.
+
+[^3]: Subs. by the Federal Adaptation of Laws Order, 1975 (P. O. No. 4 of 1975), Art. 2 and Sch.
