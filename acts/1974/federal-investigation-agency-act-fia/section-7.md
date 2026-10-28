@@ -1,0 +1,1 @@
+7. Delegation of powers.— The Director-General may, by order in writing, direct that all or any of his powers under this Act or the rules shall, subject to such conditions, if any, as may be specified in the order, be exercisable also by any member of the Agency so specified.
