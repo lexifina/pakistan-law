@@ -1,0 +1,1 @@
+8. Powers of Executive Committee. ___ Subject to the overall supervision of the Authority, the Executive Committee may exercise such powers and functions including administrative and financial powers as may be delegated to it by the Authority by regulations.
