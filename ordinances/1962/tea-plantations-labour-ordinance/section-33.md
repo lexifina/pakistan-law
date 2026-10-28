@@ -1,0 +1,1 @@
+33. Penalty for contraventions of provisions relating to medical facilities.—Any employer who contravenes the provisions of section 10 shall be punishable with imprisonment which may extend to three months, or with fine which may extend to five hundred rupees, or with both.

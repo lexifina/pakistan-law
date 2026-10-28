@@ -1,0 +1,1 @@
+16. Facilities for daily necessities, etc.—It shall be the duty of the employers to provide facilities within easy reach of the employees for obtaining the daily necessities of life through co-operative or other means and also to provide the employees with such amenities for protection from adverse weather conditions as may be prescribed.

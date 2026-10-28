@@ -1,0 +1,2 @@
+## CHAPTER VIII
+42. Leave for person simultaneously engaged in a tea factory and a tea plantation.—If a person is employed within the same year both in the tea plantation covered by this Ordinance and a tea processing factory covered by the Factories Act, 1934 (XXV of 1934), under the sane management, he shall be entitled to the maximum facilities provided under either this Ordinance or that Act so far as annual leave, sick leave and other similar conditions are concerned.

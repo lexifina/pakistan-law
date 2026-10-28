@@ -1,0 +1,3 @@
+20. Notice of period of work.___(1) There shall be displayed and correctly maintained in every tea plantation, in such form and manner as may be prescribed, a notice of periods of work showing clearly for every day the periods during which the workers may be required to work.
+(2) Subject to the other provisions of this Ordinance, no worker shall be required or allowed to work in any tea plantation otherwise than in accordance with the notice of periods of work displayed in the tea plantation.
+(3) An employer may refuse to employ a worker for any day if on that day he turns up for work more than half an hour after the time fixed for the commencement of the day’s work.

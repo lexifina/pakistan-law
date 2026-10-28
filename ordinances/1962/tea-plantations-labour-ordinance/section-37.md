@@ -1,0 +1,1 @@
+37. Enhanced penalty after previous conviction.—If any person who has been convicted of any offence punishable under this Ordinance is again guilty of an offence involving a contravention of the same provision, he shall be punishable on a subsequent conviction with imprisonment which may extend to six months, or with fine which may extend to one thousand rupees, or with both.

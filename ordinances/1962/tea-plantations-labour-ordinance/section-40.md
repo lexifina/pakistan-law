@@ -1,0 +1,2 @@
+40. Limitation of prosecutions.—No court shall take cognizance of any offence punishable under this Ordinance unless the complaint thereof has been made or is made within three months from the date on which the alleged commission of the offence comes to the knowledge of an inspector:
+Provided that, where the offence consists of disobeying a written order made by an inspector, complaint thereof may be made within six months of the date on which the offence is alleged to have been committed.

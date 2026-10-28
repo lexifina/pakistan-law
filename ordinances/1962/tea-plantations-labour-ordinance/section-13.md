@@ -1,0 +1,1 @@
+13. Recreational facilities.—The Provincial Government tray make rules requiring every employer to make provision in his tea plantation for such recreational facilities for the workers and their children as may be prescribed.

@@ -1,0 +1,1 @@
+43. Power to exempt.—The Provincial Government may, by order in writing, exempt, subject to such conditions and restrictions as it may think fit to impose, any employer or class of employers from all or any of the provisions of this Ordinance.

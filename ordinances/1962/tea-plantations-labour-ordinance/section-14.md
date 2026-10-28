@@ -1,0 +1,1 @@
+14. Educational facilities.—Where the children between the ages of six and twelve of workers employed in any tea plantation exceed twenty five in number, the Provincial Government may make rules requiring every employer to provide educational facilities for the children in such manner and of such standard as may be prescribed.

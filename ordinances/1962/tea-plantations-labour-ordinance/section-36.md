@@ -1,0 +1,1 @@
+36. Other offences.—Whoever contravenes any of the provisions of this Ordinance or of any rules made thereunder for which no other penalty is elsewhere provided by this Ordinance or the rules, shall be punishable with imprisonment for a term which may extend to three months, or with fine which may extend to five hundred rupees, or with both.

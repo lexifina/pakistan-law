@@ -1,0 +1,1 @@
+31. Extra wages for overtime.—Where a worker works on any day or in a week for more than the hours fixed under section 18, he shall be entitled in respect of the overtime worked to wages at such rate as may be prescribed.
