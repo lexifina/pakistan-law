@@ -1,0 +1,1 @@
+7. Tax in lieu of taxes under sections 3 and 4. The manager of every race-meeting in any local area in respect of which a notification has not been issued under section 3 or section 4 shall pay to the Government by way of tax, in respect of such meeting, such amount not exceeding five hundred rupees as may be prescribed.

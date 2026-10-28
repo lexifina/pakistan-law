@@ -1,0 +1,3 @@
+3. Levy of totalizator tax. (1) Government may, by notification, from time to time, direct that a tax not exceeding 20 per cent (hereinafter referred to as the “totalizator tax”) shall be levied on backers in respect of all moneys paid by them into any totalizator by way of bets.
+(2) Every notification issued under sub-section (1) shall specify the local area in which, the rate at which, and the date from which totalizator tax shall be levied.
+(3) Such portion of the moneys paid into the totalizator as is equivalent to the amount of the totalizator tax calculated at the rate specified in the aforesaid notification shall be deemed to have been paid by the backers on account of the totalizator tax, and to have been received by the manager on behalf of the Government.
