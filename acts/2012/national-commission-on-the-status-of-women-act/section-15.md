@@ -1,0 +1,6 @@
+15. Accounts and Audit.__ (1) The Commission shall maintain proper accounts and other relevant records and prepare an annual statement of accounts in such form as may be prescribed by the Federal Government in consultation with the Auditor-General of Pakistan.
+(2) The accounts of the Commission shall be audited by the Auditor-General at such intervals as may be specified by him or her.
+(3) The Auditor-General and any other person appointed by him or her in connection with the audit of the accounts of the Commission under this Act shall have the same rights and privileges and the authority in connection with such audit as the Auditor-General generally has in connection with the audit of Federal Government accounts and in particular shall have rights to demand the production of books, accounts connected vouchers and other documents and papers and to inspect any of the offices of the Commission.
+(4) The accounts of the Commission, as certified by the Auditor-General or any other person appointed by him or her in this behalf, together with the Audit Report, thereon shall be forwarded annually to the [^8][administrative division] by the Commission and the [^8][administrative division] shall cause the audit report to be laid, as soon as may be after it is received, before each House of Parliament.
+
+[^8]: Subs. by Act No. III of 2025, s.6.

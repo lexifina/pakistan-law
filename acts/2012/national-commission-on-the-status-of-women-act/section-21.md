@@ -1,0 +1,1 @@
+21. Delegation of powers.__ The Commission may subject to such conditions, as it may specify, delegate any of its powers under this Act to the Executive Committee or member and to other such committees formed by the Commission.

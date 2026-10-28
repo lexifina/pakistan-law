@@ -1,0 +1,2 @@
+22. Power to remove difficulties.__ If any difficulty arises in giving effect to the provisions of this Act, the Federal Government may by order published in the official gazette make such provisions not inconsistent with the provisions of this Act as appears to it, be necessary or expedient for removing the difficulty:
+Provided that this power shall be available for a period of one year from the date of commencement of this Act.
