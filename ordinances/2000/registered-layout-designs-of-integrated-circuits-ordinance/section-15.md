@@ -1,0 +1,3 @@
+15. Infringement and enforcement of right:___ (1) Infringement shall consist of the performance of any act which is unlawful under section 5.
+(2) On the request of the right holder, or of his licensee if the latter has requested the right holder to institute court proceedings for a specific relief and the right holder has refused or failed to do so within a reasonable period, the District Court may grant an injunction to prevent infringement or an imminent infringement and award damages and grant any other remedy provided for in the relevant law in force.
+(3) An action under sub-section (2) may be initiated only after a layout-design has been registered under section 8.
