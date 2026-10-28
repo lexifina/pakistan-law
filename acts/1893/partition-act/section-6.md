@@ -1,0 +1,3 @@
+6. Reserved bidding and bidding by shareholder.___ (1) Every sale under section 2 shall be subject to a reserved bidding, and the amount of, such bidding shall be fixed by the Court in such manner as it may think fit and may be varied from time to time.
+(2) On any such sale any of the shareholders shall be at liberty to bid at the sale on such terms as to non-payment of deposit or as to setting off or accounting for the purchase-money or any part thereof instead of paying the same as to the Court may seem reasonable.
+(3) If two or more persons, of whom one is a shareholder in the property, respectively advance the same sum at any bidding at such sale, such bidding shall be deemed to be the bidding of the shareholder.
