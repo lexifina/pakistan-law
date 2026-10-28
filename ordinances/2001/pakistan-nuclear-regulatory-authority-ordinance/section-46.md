@@ -1,0 +1,2 @@
+46. Tribunals.__ (1) The Authority may, from amongst its professional staff, establish special tribunals for resolving disputes between its Directorates and licensees or such other matters as the Authority may assign.
+(2) The Authority's determinations on decisions by tribunals set up under sub-section (1) shall be deemed to be decrees of a civil court under the Code of Civil Procedure,1908(Act V of 1908).

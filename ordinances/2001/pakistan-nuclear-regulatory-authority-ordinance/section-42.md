@@ -1,0 +1,2 @@
+42. Budget.__ (1) The Authority shall, in respect of each financial year, submit for the approval of the Federal Government, by such date and in such form as may be prescribed by rules, a statement showing the estimated receipts and expenditures.
+(2) Any surplus of receipts over the actual expenditure in a year, after payment of tax, shall be remitted to the Federal Consolidated Fund and any deficit from the actual expenditure shall be made up by the Federal Government.

@@ -1,0 +1,1 @@
+13. Directorates of the Authority.—The Authority may establish one or more Directorates which shall execute, enforce and supervise all decision of the Authority and all nuclear anal radiation safety measures vested in the Authority under the provisions of this Ordinance or the rules and regulations made thereunder.

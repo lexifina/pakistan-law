@@ -1,0 +1,1 @@
+57. Expenses for safety measures or medical examination.__ The expenses of any safety measures or medical examination carried out under this Ordinance or any regulations made thereunder shall be borne by the applicant.

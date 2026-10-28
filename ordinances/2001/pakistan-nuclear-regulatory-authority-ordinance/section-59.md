@@ -1,0 +1,2 @@
+59. Removal of difficulties.__ If any difficulty arises in giving effect to the provisions of this Ordinance, the Federal Government may make such orders not inconsistent with the provisions of this Ordinance, as may appear to it to be necessary for the purpose of removing the difficulty:
+Provided that no such power shall be exercised after the expiry of one year from the commencement of this Ordinance.

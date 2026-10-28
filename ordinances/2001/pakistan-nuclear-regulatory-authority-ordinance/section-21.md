@@ -1,0 +1,2 @@
+21. Authorization prior to licensing.__ No person shall commence construction of any nuclear installation without first obtaining an authorization for the purpose from the Authority as may be prescribed by regulations.
+Explanation. For the purposes of this section, “construction” includes the sitting, designing and construction of buildings for, and every stage of setting up of, a nuclear installation.

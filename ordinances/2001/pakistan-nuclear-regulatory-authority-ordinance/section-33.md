@@ -1,0 +1,2 @@
+33. Indemnity by the Federal Government.___ The Federal Government shall ensure payment of claims against any operator liable for nuclear damage and for such damage by providing necessary funds to the extent that the yield of insurance or other financial guarantee maintained by the operator under section 32 falls short to satisfy such clams in full:
+Provided that in no case shall the civil liability of the Federal Government be more than fifteen times the insurance or the financial guarantee required to be carried by an operator of a nuclear installation:

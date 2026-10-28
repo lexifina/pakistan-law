@@ -1,0 +1,1 @@
+7. Term of office of a member.___ Subject to the provisions of this Ordinance, a full-time member and a part-time member other than an ex-officio member, shall hold office for a period of four years from the date of his appointment and shall be eligible for reappointment for a period of four years but not for more than two consecutive terms.

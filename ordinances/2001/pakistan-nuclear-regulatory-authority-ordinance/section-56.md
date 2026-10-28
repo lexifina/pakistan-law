@@ -1,0 +1,4 @@
+56. Power to make regulations.__ (1) The Authority may, by notification in the official Gazette, make regulations, not inconsistent with this Ordinance and the rules, for carrying out the purposes of this Ordinance.
+(2) In particular and without prejudice to the generality of the foregoing power, such regulations may provide for__
+(a) charging and collection of fees in connection with its licensing and regulatory functions provided that such fees shall be imposed by regulations on the basis of such published criteria as the Authority deems appropriate, taking into consideration among other criteria the nature of the activity authorized; and
+(b) charging of consultation fees and expenses, etc., from the applicant for any services provided, including the expenses of any consultation of experts.

@@ -1,0 +1,1 @@
+32. Insurance or other financial guarantee.___ Every opera or of a nuclear installation shall maintain insurance or other financial guarantee adequate to cover his civil liability for nuclear damage, in such amount of such type and on such terms as the Authority may from time to time, determine.

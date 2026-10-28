@@ -1,0 +1,1 @@
+49. Submission of periodical reports, etc.__ The Authority shall submit to the Federal Government periodical reports, accounts statements, or any other report at such time and at such intervals as the Federal Government may specify.
