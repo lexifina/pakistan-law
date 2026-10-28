@@ -1,0 +1,1 @@
+3. Agreement for engagement of legal practitioner.___Any legal practitioner who acts or agrees to act for any person may by private agreement settle with such person the terms of his engagement and the fee to be paid for his professional services.
