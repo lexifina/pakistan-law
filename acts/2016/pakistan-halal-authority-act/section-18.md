@@ -1,0 +1,1 @@
+18. Import of Halal articles and processes.—No article or process shall be imported into Pakistan with the description of being a Halal article or process unless it has been certified as such by an Accredited Halal Certification Body in Pakistan or the exporting country, recognized by the National Accreditation Body.

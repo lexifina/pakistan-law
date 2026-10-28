@@ -1,0 +1,1 @@
+17. Export of Halal articles and processes.—No article or process shall be exported from Pakistan. with the description or representation of being a Halal article or process unless it bears the Halal logo of the Authority, having been affixed after the requisite certification by a duly accredited Halal certification body.

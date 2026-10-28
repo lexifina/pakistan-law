@@ -1,0 +1,1 @@
+35. Power to exempt. —The Government may, by notification in the official Gazette, exempt any article or process or class of articles or processes from the operation of all or any of the provisions of this Act.

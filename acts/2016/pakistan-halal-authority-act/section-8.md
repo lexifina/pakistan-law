@@ -1,0 +1,3 @@
+8. Constitution of the Executive Committee.— (1) The Government may constitute an Executive Committee for carrying out day-to-day matters of the Authority and for exercising such powers and doing such acts and things as may be delegated to it by the Board.
+(2) The executive committee under sub-section (1) shall consist of the following members, namely:—
+(a) Secretary, Ministry of Science and Technology; Convener (b) Director General of the Authority; Member (c) A representative of Ministry of Interior; and Member (d) Four members nominated by the Board, one of whom shall be a Members Shariah Scholar and one a Food Technologist.

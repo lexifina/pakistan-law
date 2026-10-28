@@ -1,0 +1,1 @@
+14. Prohibition of improper use of Halal logo. —No person shall use, in relation to any article, product or process or in the title of any patent or in any trademark or design, the Halal logo except under the terms of a Halal Certificate, issued under this Act.

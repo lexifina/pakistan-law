@@ -1,0 +1,1 @@
+13. Disclosure of ingredients, etc. —The Halal Standard for a food or non-food article or product shall require that the ingredients, dates of manufacture and expiry and complete name and address of its manufacturer, exporter or supplier be clearly mentioned on the box, wrapper or other packaging in which it is contained, or on the label, tag or sticker affixed to it.

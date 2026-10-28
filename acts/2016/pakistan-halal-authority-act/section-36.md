@@ -1,0 +1,1 @@
+36. Power to obtain information.— Every holder of a Halal Certificate shall supply to the Authority such information and such samples of any article or material or substance used in relation to any article or process as the Authority may require.

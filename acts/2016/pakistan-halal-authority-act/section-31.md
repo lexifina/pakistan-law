@@ -1,0 +1,1 @@
+31. Protection of actions taken in good faith under this Act.—No suit, prosecution or other legal proceeding shall lie against the Government or the Authority or any person acting under the authority of the Government or the Authority for anything which is in good faith done or intended to be done in pursuance of this Act or any rule or regulation made thereunder.

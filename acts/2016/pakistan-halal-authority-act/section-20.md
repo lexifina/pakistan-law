@@ -1,0 +1,2 @@
+20. Penalty for improper use of Authority name, mark or logo. —(1) Any person who contravenes the provisions of sections 14, 15, 16, 17, 18 or 19 shall be punishable with imprisonment of either description for a term which may extend to three years, or with a fine up to one million rupees but not less than one hundred thousand rupees, or with both.
+(2) A Court convicting a person under this section may direct that any articles in respect of which the contravention was made shall be forfeited to the Government.
