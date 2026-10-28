@@ -1,0 +1,1 @@
+27. Effectiveness of filing. — A statement shall stand registered when a unique registration number or registration number, as applicable, date and time is assigned to it in the register and such statement becomes publicly searchable.

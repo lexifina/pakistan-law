@@ -1,0 +1,1 @@
+40. Subordination. — An agreement may be entered into between secured creditors of a customer or between a secured creditor and a customer pursuant to which one secured creditor subordinates his security interest to the security interest of another secured creditor.

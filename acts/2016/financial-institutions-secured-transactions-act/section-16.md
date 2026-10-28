@@ -1,0 +1,1 @@
+16. Specialized registry.—A security interest in intellectual property that requires registration in a specialized registry pursuant to any other law currently in force, may, notwithstanding the provisions of such law, be perfected only by registration as provided under this Act.

@@ -1,0 +1,1 @@
+17. Unperfected security Interests. —A security interest that is not perfected shall be void against the liquidator, administrator or receiver but shall not prejudice the secured creditor’s right to repayment of finance as an unsecured creditor.

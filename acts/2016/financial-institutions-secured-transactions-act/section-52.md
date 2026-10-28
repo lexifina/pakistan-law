@@ -1,0 +1,4 @@
+52. Transferee of funds held in a deposit account taking free of security interest. — Where the customer has initiated a transfer of funds from a deposit account that is subject to a security interest, the transferee of the funds takes the funds free of any security interest unless the transferee had actual knowledge that the funds transfer is prohibited under the security agreement.
+[^23][52A Transferee of money. ― A person that obtains possession of money that is subject to a security interest acquires its rights in the money free of the security interest, unless the person had actual knowledge that its obtaining the money is prohibited under the security agreement.]
+
+[^23]: Ins. by the Act of The Financial Institutions (Secured Transactions) (Amendment) Act, 2021 (XXXIII of 2021), ss. 33-35.

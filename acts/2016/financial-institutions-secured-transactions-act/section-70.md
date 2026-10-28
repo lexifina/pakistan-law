@@ -1,0 +1,1 @@
+70. Power to make rules.—(1) The Federal Government may, by notification in the official Gazette. make rules, not inconsistent with the provisions of this Act, for carrying out the purposes of this Act.
