@@ -1,0 +1,1 @@
+46. Penalty for negligently wasting energy or injuring works.–Whoever negligently causes energy to be wasted or diverted, or negligently breaks, throws down or damages any electric supply-line, post, pole or lamp or other apparatus connected with the supply of energy, shall be punishable with fine which may extend to two hundred rupees.

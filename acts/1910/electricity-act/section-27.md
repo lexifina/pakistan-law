@@ -1,0 +1,8 @@
+27. Supply of energy outside area of supply.–Notwithstanding anything in this Act, the [^57][Provincial Government] may, by order in writing, and subject to such conditions and restrictions, if any, as it thinks fit to impose, authorize any licensee to supply energy to any person outside the area of supply, and to lay down or place electric supply-lines for that purpose:
+Provided, first, that no such authority shall be conferred on the licensee within the area of supply of another licensee without that licensee’s consent, unless the [^57][Provincial Government] considers that his consent has been unreasonably withheld:
+Provided, secondly, that such authority shall not be conferred unless the person to whom the supply is to be given has entered into a specific agreement with the licensee for the taking of such supply:
+Provided, thirdly, that a licensee on whom such authority has been conferred shall not be deemed to be empowered outside the area of supply to open or break up any street, or any sewer, drain or tunnel in or under any street, railway or tramway, or to interfere with any telegraph-line, without the written consent of the local authority or person by whom such street, sewer, drain or tunnel is repairable, or of the telegraph-authority, as the case may be, [^58][unless the [^57][Provincial Government], after such inquiry as it thinks fit, considers that such consent has been unreasonably withheld] :
+Provided, fourthly, that, save as aforesaid, the provisions of this Act shall apply in the case of any supply authorized under this section as if the said supply were made within the area of supply.
+
+[^57]: Subs. by A.O., 1937, for “L.G.”
+[^58]: Ins. by the Indian Electricity (Amdt.) Act 1922 (I of 1922), s. 12. 28

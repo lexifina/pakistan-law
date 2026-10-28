@@ -1,0 +1,4 @@
+[^123][54A. Charges for supply of energy recoverable as arrears of land revenue.–(1) Notwithstanding anything contained in this Act or in any other law for the time being in force or in any instrument or agreement, the charges for supply of energy or any other sum outstanding against a consumer under this Act shall be recoverable as an arrear of land revenue.
+(2) A licensee, or any person duly authorised by the licensee, may apply, with a certificate showing the amount outstanding against a consumer, to the Collector of the district concerned for the recovery of the said amount, and the Collector shall, thereupon proceed to recover the same from such consumer, or his sureties, or from all of them, as an arrear of land revenue.
+
+[^123]: New sections 54A. 54B and 54C ins. by the Electridty (Amdt.) Ordinance: 1979 (LXII of 1979), s. 12. 43

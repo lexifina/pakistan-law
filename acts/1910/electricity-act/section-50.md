@@ -1,0 +1,1 @@
+50. Institution of prosecutions.–No prosecution shall be instituted against any person for any offence against this Act or any rule, license or order thereunder, except at the instance of the Government or an Electric Inspector, or of a person aggrieved by the same.

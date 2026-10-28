@@ -1,0 +1,1 @@
+31. Protection of railways and canals, docks, wharves and piers.–No person shall, in the generation, transmission, supply or use of energy, in any way injure any railway, tramway, canal or waterway or any dock, wharf or pier vested in or controlled by a local authority, or obstruct or interfere with the traffic on any railway, tramway, canal or water-way.

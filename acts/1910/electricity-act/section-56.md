@@ -1,0 +1,1 @@
+56. Protection for acts done in good faith.–No suit, prosecution or other proceeding shall lie against any public officer, or any servant of a local authority, for anything done, or in good faith purporting to be done, under this Act.

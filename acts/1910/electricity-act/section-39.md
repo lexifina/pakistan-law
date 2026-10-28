@@ -1,0 +1,9 @@
+[^102][39. Theft of energy.–(1) Whoever dishonestly abstracts, consumes or uses energy shall be punished with imprisonment of either description for a term which may extend to three ears or with fine which may extend to [^103][five million] rupees, or with both; and the existence of any device, contrivance or artificial means for such abstraction, consumption or use shall be prima facie evidence of such abstraction, consumption for use.
+(2) Whoever abets, or conspires in, the commission of acts mentioned in sub-section (1) shall be deemed to have committed an offence under sub-section (1).
+Explanation.-A person shall be deemed to have dishonestly abstracted, consumed or used energy–
+(a) if he is found to have tampered or interferred with the set order of wiring connections of any meter, measuring apparatus, including kilowatt meter, kilowatt hour meter, kilovolt ampere hour meter, kilovolt ampere reactive hour meter, current transformers, potential tranformers or their respective fuses, installed by the licensee for the supply and registration of energy; or
+(b) if he is found to have prevented by drilling hole in the casing covering or glass, or by jamming the mechanism by mechanical, magnetic or by any other means, any meter, maximum demand indicator or other measuring apparatus from duly registering the amount of energy supplied or the electrical quantity contained in the supply; or
+(c) if he is found, without written consent of the licensee, to have connected his installations, appliances and apparatus for the consumption or use of energy with the licensee’s works directly without passing through a meter, maximum demand indicator or other measuring apparatus.]
+
+[^102]: Subs. by the Electricity (Amdt.) Ordinance. 1979, (LXII of 1979) s. 8, for section 39.
+[^103]: Subs. by Ord. XV of 1999.s.2. 37

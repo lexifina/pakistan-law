@@ -1,0 +1,5 @@
+6. Provisions where license of local authority is revoked.–(1) Where the [^18][Provincial Government] revokes the license of a local authority under section 4, sub-section (1), and any person is willing to purchase the undertaking, the [^18][Provincial Government] may, if it thinks fit, require the local authority to sell, and thereupon the local authority shall sell, the undertaking to such person on such terms as the [^18][Provincial Government] thinks just.
+(2) Where no purchase has been effected under sub-section (1), the licensee shall have the option of disposing of all lands, buildings, works, materials and plant belonging to the under-taking in such manner as he may think fit:
+Provided that, if the licensee does not exercise such option within a period of six months from the date on which the same became exercisable, the [^18][Provincial Government] may forthwith cause the works of the licensee in, under, over, along or across any street to be removed and every such street to be reinstated, and recover the cost of such removal and reinstatement from the licensee.
+
+[^18]: Subs. by A.O. 1937 for “L. G,.” 9

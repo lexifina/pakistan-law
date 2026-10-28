@@ -1,0 +1,1 @@
+41. Penalty for unauthorized supply of energy by non-licensees.–Whoever, in contravention of the provisions of section 28, engages in the business of supplying energy shall be punishable with fine which may extend to three thousand rupees, and, in the case of a continuing contravention, with a daily fine which may by extend to three hundred rupees.
