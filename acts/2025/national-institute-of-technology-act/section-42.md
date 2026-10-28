@@ -1,0 +1,2 @@
+42. Commencement of term of office of members of Authority.__ (1) When a member of a newly constituted Authority is elected, appointed, or nominated, his term of office, as fixed under this Act, shall commence from such date as may be prescribed.
+(2) Where a member who has accepted any other assignment or for any other similar reason remains absent from the Institute for a period of not less than six months, he shall be deemed to have resigned and vacated his seat.

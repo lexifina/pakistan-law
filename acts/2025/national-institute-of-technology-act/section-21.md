@@ -1,0 +1,11 @@
+21. Director, Research, Innovation and Commercialization (ORIC).__ (1) There shall be a Director (ORIC) of the Institute to be appointed by the Board, on the recommendation of the Syndicate for a renewable period of three years on such terms and conditions as may be prescribed.
+(2) The minimum experience as well as the professional and academic qualifications necessary for appointment to the post of Director (ORIC) shall be such as may be prescribed.
+(3) The Director (ORIC) shall__
+(a) manage and enhance research activities of the Institute, develop research policies and priorities, work for fund raising for research, mobilize faculty, business community and industry for research commercialization and serve as an effective advocate for research with the Institute and to its broader community of stakeholders and supporters;
+(b) supervise all aspects of the operation of the office for research including research administration (budgeting, auditing, accounting, human resources; management and maintenance of facilities and equipment, implementation of research contracts and human resources);
+(c) develop programs and activities that will increase funding for research from all public and private sources, establish and maintain excellent relationships with donors oversee proposals for development and submission;
+(d) promote development of public-private partnerships in support of Institute research, link the Institute’s research community with the needs and priorities of the corporate sector, develop opportunities for applied research and explore opportunities for technology transfer and commercialization of Institute research including incubators and research parks;
+(e) be responsible to monetize royalty streams from licenses;
+(f) collaborate with principal liaison for technical marking and licensing on commercialization of the Institute’s intellectual property in coordination with other relevant department and offices; and
+(g) work in close liaison with the office of research and development, planning and development, and Institute’s technology park.
+(4) The Board, may on recommendations and advice of Syndicate, terminate the services of Director (ORIC) on grounds of inefficiency or misconduct in accordance with the prescribed procedure.

@@ -1,0 +1,32 @@
+2. Definitions.__ In this Act, unless there is anything repugnant in the subject or context,__
+(i) “Academic Council” means the Academic Council of the Institute;
+(ii) “Authority” means an Authority of the Institute specified in section 22 or any of the Authority of the Institute established as per provisions of this Act;
+(iii) “Board” means the Board of Governors of the Institute;
+(iv) “Board of Directors” means the Board of Directors of the Shabbir and Sagheer Educational Services (Private) limited;
+(v) “Chancellor” means the Chancellor of the Institute;
+(vi) “Commission” means the Higher Education Commission set up under the Higher Education Commission Ordinance, 2002 (LIII of 2002);
+(vii) “College” or “School” means constituent college or school of the Institute;
+(viii) “Controller of Examinations” means the Controller of Examinations of the Institute;
+(ix) “Dean” means the Dean of a Faculty of the Institute;
+(x) “Department” means a teaching, research or training department maintained and administered or recognized by the Institute in a prescribed manner;
+(xi) “Director” means the Head of a Teaching Division of the Institute;
+(xii) “Faculty means the Faculty of the Institute;
+(xiii) “Government” means the Federal Government;
+(xiv) “Institute” or “NIT” means the National Institute of Technology established under this Act;
+(xv) “Institute teacher” means a whole-time teacher appointed and paid by the Institute or recognized by the Institute;
+(xvi) “prescribed” means prescribed by statutes, regulations and rules made under this Act;
+(xvii) “Principal” means the head of a constituent college or a constituent school of the Institute;
+(xviii) “Professor Emeritus” means retired professor working in a faculty in an honorary capacity;
+(xix) “Registrar” means the Registrar of the Institute;
+(xx) “registered graduate” means a graduate of the Institute whose name stands entered in the registered maintained for the purpose;
+(xxi) “Representation Committees” means the Representation committees constituted under this Act;
+(xxii) “Review Panel” means the Review Panel constituted by the Chanceller in accordance with the provisions of this Act;
+(xxiii) “Schedule” means a schedule to this Act;
+(xxiv) “Search Committer” means the Search Committee constituted by the Board under this Act;
+(xxv) “sponsoring company” means the Shabbir and Sagheer Educational Services (Private) limited registered under section 16 of the Companies Act, 2017 (XIX of 2017);
+(xxvi) “statutes”, “regulations” and “rules” means the statutes, regulations and rules respectively made or deemed to have been made under this Act and for the time being in force;
+(xxvii) “Syndicate” means the Syndicate of the Institute;
+(xxviii) “teachers” include Professors, Associate Professors, Assistant Professors and Lecturers engaged whole-time by the Institute and such other persons as may be declared by regulations;
+(xxix) “Treasurer” means the Treasurer of the University;
+(xxx) “Pro-Vice-Chancellor” means the Pro-Vice-Chancellor of the Institute; and
+(xxxi) “Vice-Chanceller” means the Vice-Chanceller of the Institute;
