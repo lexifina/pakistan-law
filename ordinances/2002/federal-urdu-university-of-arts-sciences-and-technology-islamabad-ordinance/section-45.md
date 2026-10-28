@@ -1,0 +1,5 @@
+45. Power to require officers, teachers or employees to serve under any Government or
+Organization:___ (1) Notwithstanding anything contained in the Ordinance:
+(a) the Senate may, after consultation with the Syndicate and in the public interest, direct that any officer, University Teacher or other employee of the University shall serve in any post under Government or any other university or an educational or research institution and such direction shall be binding on the officer, teacher or other employee concerned; and
+(b) The Senate may, on the advice of the Syndicate, direct any post in the University to be filled by appointing an employee of Government or any other university or an educational or research institution.
+(2) Where any appointment or transfer has been made under this section, the terms and conditions of service of the appointee or transferee shall not be less favourable than those admissible to him immediately before such appointment or transfer and he shall tie entitled to all, benefits of his post of service.

@@ -1,0 +1,15 @@
+## CHAPTER II
+## THE UNIVERSITY
+3. Incorporation:___ (1) There shall be established, in accordance with the provisions of this Ordinance, a University to be called the Federal Urdu University of Arts, Sciences and Technology, Islamabad with its principal seat at Islamabad. It shall consist of Federal Government Urdu Science College, Karachi, Federal Government Urdu Arts College, Karachi and such other colleges and institutes as may be prescribed. The university may establish any number of campuses anywhere in or outside Pakistan as may be prescribed;
+Provided that both the colleges mentioned in sub-section (1) shall not make fresh enrolment for intermediate classes after the promulgation of this Ordinance.
+(2) The University shall consist of the following, namely:-
+(a) the Chancellor, the Pro-Chancellor, the Deputy Chair of the Senate, the members of the Senate and the Vice-Chancellor;
+(b) the members of the Authorities of the University established under section 16;
+(c) all University teachers and persons recognized as students of the University in accordance with terms prescribed from time to time; and
+(d) all other full-time officers and members of the staff of the University.
+(3) The University shall be a body corporate and shall have perpetual succession and a common seal, and may sue and be sued by the said name.
+(4) The University shall be competent to acquire and hold property, both movable and immovable, and to lease, sell of otherwise transfer any movable and immovable property which may have become vested in or been acquired by it.
+(5) Notwithstanding anything contained in any other law for the time being in force, the University shall have academic, financial and administrative autonomy, including the power to employ officers, teachers and other employees on such terms as may be prescribed, subject to the terms of this Ordinance and the Higher Education Commission Ordinance, 2002 (LIII of 2002). In particular, and without prejudice to the authority granted to the Commission by the law, the Government or an authority or auditor appointed by the Government shall have no power to question the policy underlying the allocation of resources approved by the Senate in the annual budget of the University.
+(6) All properties, right and interest of whatever kind, used, enjoyed, possessed, owned or veste, in or held in trust by or for Federal Government Urdu Science College, Karachi, and Federal Government Urdu Arts College, Karachi, and all liabilities legally subsisting against the said Colleges shall pass to the University on the promulgation of this Ordinance.
+(7) All persons serving in these colleges in any capacity immediately before the commencement of this Ordinance shall, notwithstanding anything contained in any law or terms and conditions of their service stand transferred for service to the University on the terms and conditions as may be prescribed.
+Provided that such terms and conditions shall not be less favorable than the terms and conditions applicable to them before the commencement of this ordinance.
