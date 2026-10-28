@@ -1,0 +1,2 @@
+3. Establishment of the Council.—(1) As soon as may be after the commencement of this Act, the Federal Government may, by notification in the official Gazette, establish a Council to be called the Pakistan National Council of the Arts.
+(2) The Council shall be a body corporate having perpetual succession and a common seal, with power to acquire, hold and dispose of property, both movable, and immovable, and shall by the said name sue and be sued.
