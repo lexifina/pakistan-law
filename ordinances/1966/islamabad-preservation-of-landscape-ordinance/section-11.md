@@ -1,0 +1,1 @@
+11. Certain persons deemed public servants.—Any officer of the Authority or other person, while acting or purporting to act under the provisions of this Ordinance, shall be deemed to be a public servant within the meaning of section 21 of the Pakistan Penal Code.
