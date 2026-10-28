@@ -1,0 +1,1 @@
+26. Land acquisition.⎯The acquisition of any land or any interest in land for the Authority or for any project under this Act shall be deemed to be acquisition for a public purpose within the meaning of the Land Acquisition Act, 1894 (I of 1894), and the provisions of the said Act shall apply accordingly.

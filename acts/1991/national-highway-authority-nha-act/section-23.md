@@ -1,0 +1,1 @@
+23. Annual statement of accounts.⎯In the month of January each year, the Authority shall submit to the Federal Government for approval a statement of the estimated receipts and expenditure in respect of the next financial year.

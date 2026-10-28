@@ -1,0 +1,12 @@
+[^5][5. National Highway Council.—(1) There stands established the National Highway Council consisting of—
+S.No. Membership Status (1) (2) (3) (a) One of the independent Members appointed by the Chairman Federal Government.
+(b) Secretary of the Finance Division or his nominee not Member below the rank of Additional Secretary or equivalent ex-officio (c) Secretary of the Planning, Development and Special Member Initiatives Division or his nominee not below the rank of ex-officio Additional Secretary or equivalent (d) Secretary of the Communications Ministry or his Member nominee not below the rank of Additional Secretary or ex-officio equivalent (e) Chief Executive Officer Member (f) Five independent members to be appointed by the Member- Federal Government from private sector, each of whom (Independent) shall have the requisite skills, competence, knowledge, experience and approach so that the Council as a group includes core competencies and diversity to assist the Authority in achieving its primary and other objectives
+(2) Subject to the provisions of the SOE Act in this behalf, the Federal Government may, by notification in the official Gazette, increase or decrease the number of members of the Council subject to having the independent Members in majority and that the quorum rules are adjusted accordingly.
+(3) Subject to the provisions of the SOE Act in this behalf, the general policy direction of the Authority shall vest in the Council.
+(4) Not less than fifty percent of total membership of the Council including not less than three independent and one ex-officio member shall constitute quorum for a meeting of the Council.
+(5) The meeting of the Council shall be presided by the Chairman and in case of his absence the meeting shall be presided by such a member as the Chairman may nominate.
+(6) Decisions of the Council shall be taken in accordance with sub-section (2) of section 22 of the SOE Act.
+(7) The Council may constitute committees with its chairmanship along with their terms of reference from amongst its members and may assign to it the business on which the committee shall make its recommendations for approval by the Council and quorum for meeting of each such committee shall be fifty percent and a fraction shall be rounded as one member.
+(8) The Chairman of the Council shall be responsible for leading the Council and ensuring its effective functioning and continuous development and shall not involve in day-to-day operations of the Authority.]
+
+[^5]: Added and Subs. by Act No. IX of 2024, ss.3-5.

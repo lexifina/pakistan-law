@@ -1,0 +1,2 @@
+12. Powers to eject unauthorized occupants.⎯Subject to rules, the Authority shall have power to summarily eject any unauthorised occupant of National Highway or strategic road or proposed site thereof and demolish and remove any structure thereon, and to use such force, including police force, as may be necessary for the purpose and to recover the cost thereof from the person responsible for such occupation or obstruction.
+______ CHAPTER IV

@@ -1,0 +1,2 @@
+27. Transfer of rights and liabilities.⎯ (1) As from the commencement of this Act all assets and liabilities and all rights and obligations of the National Highways Board and the Directorate General National Highways shall stand transferred to the Authority.
+(2) All contracts made by the National Highway Board the Directorate General National Highway shall be deemed to be contracts made by the Authority.

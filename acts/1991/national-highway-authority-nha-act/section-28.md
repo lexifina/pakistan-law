@@ -1,0 +1,1 @@
+28. Authentication of orders and other instruments of the Authority.⎯All orders, decisions and other instruments of the Authority shall be authenticated by the signature of the Chairman and any other Member or any officer of the Authority authorised by it in this behalf.

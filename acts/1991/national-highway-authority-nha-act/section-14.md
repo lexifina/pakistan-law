@@ -1,0 +1,1 @@
+14. Recruitment and condition of service.⎯The Authority shall, with the approval of the Council, prescribe the procedure for appointment and terms and conditions of service of its officers and servants.
