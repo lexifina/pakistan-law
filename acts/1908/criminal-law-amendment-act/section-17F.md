@@ -1,0 +1,4 @@
+[^36]17F. Jurisdiction barred. Every report of the taking possession of property and every declaration of forfeiture made, or purporting to be made, under this Act, shall, as against all persons, be conclusive proof that the property specified therein has been taken possession of by Government or has been forfeited, as the case may be, and save as provided in sections 17B and 17E no proceeding purporting to be taken under section I7A,
+17B, 17C, I7D, or 17E shall be called in question by any Court, and no civil or criminal proceeding shall be instituted against any person for anything in good faith done or intended to be done under the said sections or against Government or any person acting on behalf of or by authority of Government for any loss or damage caused to or in respect of any property whereof possession has been taken by Government under this Act.]
+
+[^36]: Ss. 17A to 17F ins. by the Criminal Law Amendment Act, 1932, (23 of 1932), s. 13
