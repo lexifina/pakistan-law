@@ -1,0 +1,1 @@
+43. Bar of Jurisdiction:___ No Court shall have jurisdiction to entertain any proceedings, grant any injunction or make any order in relation to anything done in good faith or purported to have been done or intended to be done under the Ordinance.

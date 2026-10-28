@@ -1,0 +1,2 @@
+35. Benefits and Insurance:___ (1) The University shall constitute for the benefit of its officers, teachers and other employees schemes, as may be prescribed, for the provision of post-employment benefits as well as health and life insurance while in service.
+(2) Where any provident fund bras been constituted under this Ordinance, the provisions of the Provident Funds Act, 1925 (XIX of 1925), shall apply to such funds as if it were the Government Provident Fund.
