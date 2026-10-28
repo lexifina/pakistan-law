@@ -1,0 +1,2 @@
+47. Power of Chairman, District Co-operative Federation to exercise powers under
+section 30 in the course of an inquiry or inspection.―Where, in the course of any inquiry under section 45 or an inspection under section 46, it appears to the Chairman of the District Co-operative Federation that there exists any such ground as is specified in section 30, he may of his own motion or on the application of the person authorized by him under section 45 or section 46, exercise the powers specified in section 30.

@@ -1,0 +1,2 @@
+26. Rights of tenants, etc.―(1)The tenants of the land pooled by a member for a co-operative farm shall stand ejected from such land upon its being so pooled.
+(2) The tenants ejected from any land by virtue of sub-section (1) shall be given preference in providing employment on the co-operative farm or in the agro-based industries of the society and, if a member withdraws from the society or the society is wound up, the tenancy rights of such tenants shall stand restored.

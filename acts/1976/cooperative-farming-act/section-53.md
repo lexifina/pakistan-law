@@ -1,0 +1,1 @@
+53. Notice necessary in suits.―No suit shall be instituted against a society or any of the office-bearers in respect of any act relating to the buiness of the society until the expiration of three months next, after notice in writing has been given to the Chairman of the District Co-operative Federation.

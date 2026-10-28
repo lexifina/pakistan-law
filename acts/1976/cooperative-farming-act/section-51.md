@@ -1,0 +1,3 @@
+51. Powers to exempt from stamp duty or registration fee, etc.―The Provincial Government may, by notification in the official Gazette, reduce or remit―
+(a) the stamp-duty with which, under any law for the time being in force, any instruments executed by or on behalf of a society or by an officer or member and relating to the business of the society, or security bonds executed by or on behalf of officers or servants of a society, or awards of the arbitrators under this Act, are chargeable ; and
+(b) any fee payable under the law relating to the registration of documents or to court-fees for the time being in force.

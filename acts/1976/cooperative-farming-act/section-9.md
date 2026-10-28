@@ -1,0 +1,2 @@
+9. Special general meeting.―(1) On a requisition signed by not less than one-fifth of the total number of members of a society, the Chairman shall call a special general meeting of the society within thirty days of the receipt of the requisition.
+(2) If the Chairman does not call the meeting within the time specified in sub-section (1), the Registrar shall direct the Chairman to call the meeting within a period of seven days and, if the Chairman fails to do so, may himself call the meeting.

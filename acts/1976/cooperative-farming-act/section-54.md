@@ -1,0 +1,2 @@
+54. Power of revision.―The Chairman of the Provincial Co-operative Council may, of his own motion or otherwise call for the record of any case or proceedings under this Act for the purpose of satisfying himself as to the correctness, legality or propriety of any decision or order passed by any authority, and may pass such order in relation thereto as he may think fit :
+Provided that no order shall be passed under this section revising or modifying an order affecting any person unless such person has been afforded an opportunity of being heard.

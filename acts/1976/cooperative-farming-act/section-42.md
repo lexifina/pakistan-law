@@ -1,0 +1,2 @@
+42. Functions of the Provincial Co-operative Council.―(1) The Provincial Co-operative Council shall co-ordinate the activities of all the District Co-operative Councils within the Province, ensure uniformity of policy throughout the Province and perform at the Provincial level the functions assigned by section 40 to the District Co-operative Council at the district level.
+(2) The Provincial Government will make available to the Provincial Co-operative Council such funds as the Provincial Government may consider adequate for enabling the Council to perform its functions.
