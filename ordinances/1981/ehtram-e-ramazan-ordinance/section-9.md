@@ -1,0 +1,3 @@
+9. Power to make rules.___ (1) The Federal Government may make rules for carrying out the purposes of this Ordinance.
+(2) In particular, and without prejudice to the generality of the foregoing provisions, such rules may provide that, in a canteen, restaurant or dining-car referred to in clause (a), (b), (c) or (d) of section 5, eatables or articles of smoking shall only be served at a place protected from public view by means of a curtain or otherwise, and specify the classes of persons who may be admitted to any such canteen, restaurant or dining-car during fasting hours in the month of Ramazan.
+(3) A person contravening any rule made under sub-section (1) shall be deemed to be guilty of an offence punishable under section 4 and shall be punishable accordingly.

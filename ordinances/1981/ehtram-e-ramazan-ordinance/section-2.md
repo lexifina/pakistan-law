@@ -1,0 +1,1 @@
+2. Definition.___In this Ordinance, unless there is anything repugnant in the subject or context, “public place” includes any hotel, restaurant, canteen, house room, tent, enclosures, road lane, bridge or other place to wich the public have access.
