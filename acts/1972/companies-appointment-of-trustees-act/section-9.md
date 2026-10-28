@@ -1,0 +1,1 @@
+9. Liabilities of company. When a trustee is appointed in respect of a company, only such liabilities of the company shall be deemed to be liabilities relating to the assets of the company vested in the trustee as may be determined by such authority and in such manner as may be prescribed by rules made under this Act.

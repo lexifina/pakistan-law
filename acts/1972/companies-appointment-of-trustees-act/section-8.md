@@ -1,0 +1,1 @@
+8. Transfer of assets prohibited. No person shall transfer any of the assets of a company in respect of which a trustee has been appointed or create any charge or encumbrance on such assets and any transfer made or charge or encumbrance created in contravention of this section shall be void.

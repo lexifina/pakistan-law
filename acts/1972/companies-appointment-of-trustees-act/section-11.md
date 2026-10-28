@@ -1,0 +1,1 @@
+11. Instructions to trustee prohibited. No person shall, except on the authority of the Federal Government, give any instructions to the trustee, nor shall any person in any manner obstruct him in the discharge of his functions.

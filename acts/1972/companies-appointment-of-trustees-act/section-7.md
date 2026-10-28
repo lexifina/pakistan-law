@@ -1,0 +1,1 @@
+7. Powers of trustee. The trustee appointed in respect of a company shall exercise all the powers and functions of the Board of Directors of the company in so far as they relate to the assets and liabilities of the company in the Provinces referred to in section 4.

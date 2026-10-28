@@ -1,0 +1,3 @@
+12. Bar of jurisdiction, etc.—(1) No court shall call in question, or permit to be called in question, anything done or any action taken or purporting to be done or taken under this Act.
+(2) No court shall grant any injunction or make any order, nor shall any such court entertain any proceedings, in relation to anything done or intended or purported to be done under this Act.
+(3) No suit, prosecution or other legal proceeding shall lie against the Federal Government or the trustee or any person for anything in good faith done under this Act or any rule or order made or notification issued thereunder.
