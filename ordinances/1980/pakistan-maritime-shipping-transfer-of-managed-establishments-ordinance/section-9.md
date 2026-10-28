@@ -1,0 +1,1 @@
+9. Employees to continue in service. All persons employed in, by or for the purpose of business of an establishment in respect of which an order under sub-section (1) of section 6 is issued shall continue in such employment on the same terms and conditions as were applicable to them immediately before the issue of such order.

@@ -1,0 +1,1 @@
+2. Interpretation.Words and expressions used in this Ordinance shall, unless there is anything repugnant in the subject or context, have the same meaning as in the Pakistan Maritime Shipping (Regulation and Control) Act, 1974, hereinafter referred to as the said Act.
