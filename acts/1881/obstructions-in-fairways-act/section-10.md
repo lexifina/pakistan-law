@@ -1,0 +1,6 @@
+10. Compensation payable in certain cases for damage caused under this Act. Whenever the maintenance or creation of an obstruction in any fairway has become lawful by long usage or otherwise, and such obstruction is removed or destroyed under section 2, or its creation is regulated or prohibited under section 8, any person having a right to maintain or create such obstruction shall be entitled to receive from the [^18][Federal Government] reasonable compensation for any damage caused to him by such removal, destruction, regulation or prohibition.
+Every dispute arising concerning the right to such compensation, or the amount thereof, shall be determined according to the law for the time being in force relating to like disputes in the case of land needed for public purposes[^19] and not otherwise ; and for the purposes of such law the fairway from or in which such obstruction was removed or destroyed, or in which its creation was regulated or prohibited, shall be deemed to be a part of the [^20]* * * district in which the port to which such fairway leads is situated.
+
+[^18]: Subs. by F. A. O., 1975, Art. 2 and Table, for “Central Government” which was subs. by A. O., 1937, for “Secretary of State for India in Council”.
+[^19]: See, the Land Acquisition Act, 1894 (1 of 1894).
+[^20]: The words “Presidency-town or” omitted by A. O., 1949, Sch.
