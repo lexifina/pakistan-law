@@ -1,0 +1,1 @@
+14. Delegation of powers to the Director-General, etc.— The Authority may, by general or special order and subject to such conditions as it may deems fit impose, delegate all or any of its administrative powers or functions under this Act, to the Director General, Directors or a member, or an officer of the Authority.
