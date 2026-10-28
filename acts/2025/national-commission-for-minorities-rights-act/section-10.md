@@ -1,0 +1,1 @@
+10. Removal of Chairperson and Members.—The Chairperson and members may be removed from office by the Prime Minister, on the basis of any of the reasons for disqualification, as far as applicable including corruption and misuse of authority, specified in Article 209 of the Constitution of the Islamic Republic of Pakistan.

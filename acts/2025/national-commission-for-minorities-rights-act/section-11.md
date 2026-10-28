@@ -1,0 +1,3 @@
+11. Secretary, officers and other employees of the Commission.—(1) The Prime Minister on the recommendation of the Ministry of Human Rights shall appoint Secretary of the Commission in such manner and on such terms and conditions as may be prescribed by rules.
+(2) The Secretary shall be responsible for proper administration of affairs of the Commission and shall exercise such other powers and perform such other functions as may be prescribed by rules.
+(3) The Commission with the consultation of the Ministry of Human Rights may appoint consultants, researchers, experts, advisers, officers and other staff members in the manner and on such terms and conditions, as may be prescribed by rules.

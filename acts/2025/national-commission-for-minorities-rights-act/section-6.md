@@ -1,0 +1,1 @@
+6. Acting Chairperson.—By reason of a vacancy in the office of Chairperson due to death, illness, resignation or otherwise, the Prime Minister shall appoint acting Chairperson from amongst the members of the Commission to act as Chairperson for a period of not exceeding ninety days or till the appointment of a new Chairperson, whichever is earlier.

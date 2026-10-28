@@ -1,0 +1,1 @@
+22. Statement made to the Commission.—Any statement made by a person while giving evidence before the Commission shall not subject him to, or be used against him, in any civil or criminal proceeding except prosecution for giving false evidence.
