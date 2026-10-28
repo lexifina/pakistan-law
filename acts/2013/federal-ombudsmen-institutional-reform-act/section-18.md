@@ -1,0 +1,1 @@
+18. Bar of jurisdiction.—No Court or authority shall have jurisdiction to entertain a matter which falls within the Jurisdiction of an Ombudsman nor any Court or authority shall assume jurisdiction in respect of any matter pending with or decided by an Ombudsman.

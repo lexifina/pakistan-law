@@ -1,0 +1,1 @@
+5. Removal of Ombudsman.—An Ombudsman may be removed from office through Supreme Judicial Council on the grounds of being incapable of properly performing duties of his office by reason of physical or mental incapacity or found to have been guilty of misconduct.
