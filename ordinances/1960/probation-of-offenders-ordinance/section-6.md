@@ -1,0 +1,5 @@
+6. Order for payment of costs and compensation.__ (1) A court directing the discharge of an offender under section 4 or making a probation order under section 5 may order the offender to pay such compensation or damages for loss or injury caused to any person by the offence and such costs of the proceedings as the court thinks reasonable :
+Provided that the amount of compensation, damages and costs so awarded shall in no case exceed the amount of fine which the court might have imposed in respect of the offence.
+(2) At the time of awarding compensation or damages in any subsequent civil suit or proceeding relating to the same offence, the court hearing such suit or proceeding shall take into account any sum paid or recovered as compensation, damages or costs under sub-section (1).
+(3) The amount ordered to be paid under sub-section (1) may be recovered as fine in accordance with the provisions of section 386 and 387 of the Code.
+________________________________________________________________________
