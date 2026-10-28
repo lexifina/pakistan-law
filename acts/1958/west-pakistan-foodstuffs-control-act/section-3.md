@@ -1,0 +1,11 @@
+3. Powers to control supply, distribution, etc., of foodstuffs. (1) The Government, so far as it appears to it to be necessary or expedient for maintaining supplies of any foodstuffs or for securing its equitable distribution and availability at fair prices, may, by notified order, provide for regulating or prohibiting the keeping, storage, movement, transport, supply distribution, disposal, acquisition, use or consumption thereof and trade and commerce therein.
+(2) Without prejudice to the generality of the powers conferred by sub-section (1) an order made thereunder may provide :__
+(a) for regulating by licences, permits or otherwise the manufacture of any article of food from any foodstuffs;
+(b) for controlling the prices at which any foodstuff may be bought or sold;
+(c) for regulating by licences, permits or otherwise, the storage, transport, distribution, disposal, acquisition, use or consumption of any foodstuff;
+(d) for prohibiting the withholding from sale of any foodstuff ordinarily kept for sale;
+(e) for requiring any person holding stock of any foodstuff to sell the whole or a specified part of the stock to such persons or class of persons or in such circumstances as may be specified in the order;
+(f) for regulating or prohibiting any class of commercial or financial transactions relating to any foodstuff which, in the opinion of the authority making the order is, or is likely to be, detrimental to public interest;
+(g) for collecting any information or statistics with a view to regulating or prohibiting any of the aforesaid matters;
+(h) for requiring persons engaged in the supply or distribution of, or trade or commerce in, any foodstuff, to maintain and produce for inspection such books, accounts and records relating to their business and to furnish such information relating thereto as may be specified in the order; and
+(i) for any incidental and supplementary matters including, in particular, the entering and search of premises, vehicles, vessels and aircraft, the seizure by a person authorised to make such search of any articles in respect of which such person has reason to believe that a contravention of the order has been, is being, or is about to be committed, or any records connected therewith, the grant or issue of licences, permits or other documents, and the charging of fees therefor.
