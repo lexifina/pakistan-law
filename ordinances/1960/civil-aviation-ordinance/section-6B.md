@@ -1,0 +1,1 @@
+6B. Payment of Compensation.__ If in consequence of nay direction contained in any notification, issued under sub-section (1) of section 6A, any person sustains any loss or damage, such person shall be paid compensation the amount of which shall be determined in the manner and in accordance with the principles set out in clauses (a) and (g) of sub-section (3) of section 6.
