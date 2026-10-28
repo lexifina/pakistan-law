@@ -1,0 +1,2 @@
+20. Delegation.—The Federal Government may, by notification in the official Gazette, delegate any of its powers under this Act to the Governing Council, a member thereof including the Chairperson or any other authority or officer subordinate to it to such extent and subject to such limitations and conditions and for such period as specified in the notification:
+Provided that power to make rules of the Federal Government under this Act shall not be delegated.

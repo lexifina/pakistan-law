@@ -1,0 +1,2 @@
+23. Removal of difficulties.—(1) Notwithstanding anything contained in any other law for the time being in force, the Federal Government in respect of rules and the lead agency in consultation with the Governing Council in respect of regulations, may by a notification in the official Gazette suspend any rules, regulations and notifications or provisions thereof for removal of any difficulty in the implementation of this Act or rules or regulations made thereunder.
+(2) The condition of sub-section (3) of section 21 shall apply to any notification issued under sub-section (1).

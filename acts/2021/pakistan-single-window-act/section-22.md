@@ -1,0 +1,1 @@
+22. Power to make regulations.—The lead agency may in consultation with the Governing Council and by notification in the official Gazette, make regulations for carrying out purposes of this Act which shall not be inconsistent with the provisions of this Act and the rules made thereunder.
