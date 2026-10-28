@@ -1,0 +1,2 @@
+9. Bar of Jurisdiction, etc.__(1) No Court shall call in question, or permit to be called in question, any order made or anything done or any action taken or purporting to be made, done or taken under this Ordinance.
+(2) No suit, prosecution or other legal proceedings shall lie against the Federal Government, the Corporation, the Company, a subsidiary, a Managed Company, a project or any other person for anything in good faith done or intended or purporting to be done under this Ordinance.

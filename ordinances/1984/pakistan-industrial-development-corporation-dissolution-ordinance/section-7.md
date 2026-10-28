@@ -1,0 +1,2 @@
+7. Dissolution of the Corporation.__(1) As soon as may be after the order under section 4 is issued, the Federal Government may, by notification in the official Gazette, direct that the Corporation shall be dissolved on such date as may be specified in the notification and thereupon the Corporation shall stand dissolved.
+(2) Upon the dissolution of the Corporation under sub-section (I), the Pakistan industrial Development Corporation Ordinance, 1962 (XXXVIII of 1962), shall stand repealed.
