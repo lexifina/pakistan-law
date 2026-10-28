@@ -1,0 +1,1 @@
+5. Offences to be cognizable.⎯An offence punishable under sub-section (1) of section 3 or under section 4 shall be a cognizable offence for the purposes of the Code of Criminal Procedure, 1898 (Act V of 1898), notwithstanding anything to the contrary contained therein.
