@@ -1,0 +1,3 @@
+14. Cognizance of offences.___ (1) No Court shall take cognizance of any offence under this Act, except on a report in writing by a public servant as defined in section 21 of the Pakistan Penal Code (XLV of 1860)
+(2) Proceedings in respect of an offence under this Act alleged to have been committed by any person may be taken before the appropriate Court having jurisdiction in the place where that person is for the time being or where the offence or any part thereof was committed.
+(3) Notwithstanding anything contained in the Code an offence under this Act shall be triable by a Magistrate of the first Class.

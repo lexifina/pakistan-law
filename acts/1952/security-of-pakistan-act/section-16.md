@@ -1,0 +1,3 @@
+16. Offences to be cognizable and non-bailable.―Notwithstanding anything contained in the Code, all offences punishable under this Act shall be cognizable and non-bailable; and no person accused or convicted of any offence punishable under this Act shall, if in custody, be released on bail or on his own bond, unless___
+(1) the prosecution has had an opportunity of being heard in respect of the application for such release ; and
+(2) where the prosecution opposes the application, the Court is satisfied that there are reasonable grounds for believing that the accused is not guilty of the offence.

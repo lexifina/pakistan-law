@@ -1,0 +1,7 @@
+11B. Removal of control and possession, etc.___ (1) On the completion of sale the [^37][Federal Government] or the authority or persons, as the case may be, arranging the sale shall deliver possession of the property, or in the case of shares, of the certificates relating thereto, to the purchaser, supported by a sale certificate.
+(2) If in consequence of the action taken under sub-section (1) of Section 11A, the Board of Directors of a company has ceased to function, the person appointed thereunder shall, immediately after the delivery of possession under sub-section (1), call, notwithstanding anything to the contrary in the Companies Act, 1913, or the constitution of the company, by public advertisement, a general meeting of the company to be held under his chairmanship, for the purpose of electing directors.
+(3) A meeting called under sub-section (2) shall, as far as practicable, be held and conducted in accordance with the Articles of Association of the company.
+(4) On the conclusion of a meeting held under this section, a record of the proceedings shall be made and certified by the Chairman, and such certificate shall be conclusive proof of the directors named therein having been validly appointed.
+(5) Immediately after the record of proceedings is certified under sub-section (4), the control and management of the company shall be made over to the directors.
+
+[^37]: Subs. by the Preventive Detention Laws (Amendment) Act, 1975 (Act No. XLIV of 1975), s. 2.

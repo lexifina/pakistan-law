@@ -1,0 +1,1 @@
+3B. Execution of detention order.―A detention order may be executed at any place in Pakistan in the manner provided for the execution of warrants of arrest under the Code of Criminal Procedure, 1898 (Act V of 1898).
