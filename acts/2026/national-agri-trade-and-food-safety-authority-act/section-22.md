@@ -1,0 +1,2 @@
+22. Cognizance of offences.—(1) Notwithstanding anything contained in the Code of Criminal Procedure, 1898 (Act V of 1898), the Court of Sessions shall take cognizance of any offence punishable under section 20, on a complaint in writing made by the Director General or an Authorized Officer.
+(2) For the purposes of trial appeal etc. the provisions of Code of Criminal Procedure, 1898 (Act V of 1898) shall mutatis mutandis apply.

@@ -1,0 +1,1 @@
+39. Transition period.—The trade-related functions performed by the Department of Plant Protection and the Animal Quarantine Department shall continue for a period not exceeding six months from the appointed date under section 34, during which the Authority shall make its regulations and appoint employees.

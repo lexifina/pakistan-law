@@ -1,0 +1,1 @@
+36. Access to statistical data and information, etc. — Notwithstanding anything contained in any other law for the time being in force, the Authority shall have the right to obtain and access data, statistic and information relating to imports and exports of goods based thereon from a business operator that may be necessary, as for official use and analysis.

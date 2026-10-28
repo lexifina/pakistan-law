@@ -1,0 +1,2 @@
+43. Removal of difficulties.—If a difficulty arises in giving effect to any provision of this Act, the Federal Government may make such order, not inconsistent with the provisions of this Act, as may appear to it to be necessary or expedient for the purpose of the removal of such difficulty:
+Provided that the power under this section shall not be exercised after two years of the commencement of this Act. RGN Date: 04-02-2026

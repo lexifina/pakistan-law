@@ -1,0 +1,3 @@
+24. Complaint resolution committee.—(1) The Authority shall constitute a complaint resolution committee and establish a mechanism for the redressal of complaints arising from the refusal of registrations or licenses or certificates by the Authority, or any other matters as may be prescribed.
+(2) The Authority shall prescribe the procedure and related matters concerning the complaint resolution committee.
+(3) Any person or business operator feeling aggrieved of any order of the Authority or the Authorized Officer under this Act, may file application within thirty days for redressal of his grievances before the complaint resolution committee in the prescribed manner.

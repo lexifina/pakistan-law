@@ -1,0 +1,3 @@
+32. Audit.—(1) The Auditor General of Pakistan shall annually audit the accounts of the Authority.
+(2) The Government may, in addition to the audit under sub-section (1), cause the accounts of the Authority to be annually audited by a Chartered Accountant or a firm of Chartered Accountants and, at any time, appoint a Chartered Accountant or a firm of Chartered Accountants, to conduct an additional external audit of the accounts of the Authority and submit its report to the Government
+(3) The Authority shall produce all books of accounts and documents and furnish such explanation and information as an auditor may require for purposes of audit.

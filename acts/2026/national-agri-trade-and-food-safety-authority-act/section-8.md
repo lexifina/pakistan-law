@@ -1,0 +1,2 @@
+8. Director General.—(1) The Federal Government shall, by notification in the official Gazette, appoint a person as Director General on such terms and conditions as may be prescribed by rules, for a term of three years. The Director General may be reappointed for another term for three years.
+(2) The Director General shall be the Chief Executive Officer of the Authority and shall be responsible for the day to day administration of the affairs of the Authority and shall exercise such powers and functions as may be prescribed or assigned to him by the Authority.
