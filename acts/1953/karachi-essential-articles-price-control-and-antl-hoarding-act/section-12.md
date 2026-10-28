@@ -1,0 +1,1 @@
+12. Power to exempt. The 2[Commissioner] may, by notification, exempt any person or class of persons from all or any of the provisions of this Act, subject to such conditions, if any, as may be specified in the notification.

@@ -1,0 +1,1 @@
+11. Provisions of the Act not to apply in case of Government purchase, etc. The provisions of this Act shall not apply to the purchase, storage or distribution of any essential article by or on behalf of the 1[Federal Government] or any Provincial Government.

@@ -1,0 +1,1 @@
+6. Power to require licence for trading. The 1[Commissioner] may, by notification, direct that no trader or class of traders shall deal in any essential article except under, and in accordance with the conditions of, a licence issued in this behalf by the 1[Commissioner], on payment of such fees and in such manner and form as may be prescribed.
