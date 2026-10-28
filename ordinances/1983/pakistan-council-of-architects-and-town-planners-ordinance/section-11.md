@@ -1,0 +1,3 @@
+11. Recognition of architectural and town planning qualifications granted by institutions
+abroad.—(1) The architectural and town planning qualifications granted by institutions outside Pakistan which are included in the Second Schedule shall be recognised qualifications for the purposes of this Ordinance.
+(2) Any architectural or town planning qualification granted by an institution outside Pakistan not included in the Second Schedule may be recognised by the Council, and Council may, by notification in the official Gazette, amend the Second Schedule so as to include such qualification therein.

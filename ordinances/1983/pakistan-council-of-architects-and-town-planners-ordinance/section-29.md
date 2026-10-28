@@ -1,0 +1,1 @@
+29. Infringement of Code of Professional Conduct. Any infringement of the Code of Professional Conduct framed under sub-section (3) of section 26 shall make a registered person liable to have his name removed from the Register.
