@@ -1,0 +1,1 @@
+2. Definition. In this Act, “ the notified order ” means the Government of Pakistan, Ministry of Industries, Notification No. P.C. 19 (15)|55, dated the 14th September, 1955, published in the Gazette of Pakistan, Extraordinary, dated the 14th September, 1955.
