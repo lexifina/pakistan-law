@@ -1,0 +1,1 @@
+2. Provisions of the Agreement. Notwithstanding anything contained in any other law for the time being in force, the provisions of the Agreement on Immunities and Privileges of the Organization of the Islamic Conference set out in the Schedule shall, subject to the other provisions of this Act, have the force of law in Pakistan.
