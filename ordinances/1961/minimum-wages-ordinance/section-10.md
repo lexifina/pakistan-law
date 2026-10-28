@@ -1,0 +1,1 @@
+10. Cognizance of offences.—No Court inferior to that of a Magistrate of the first class shall take cognizance of an offence punishable under this Ordinance or the rules made thereunder, and cognizance shall not be so taken except upon a complaint in writing made by the Provincial Government or by any person authorized in this behalf by such Government.
