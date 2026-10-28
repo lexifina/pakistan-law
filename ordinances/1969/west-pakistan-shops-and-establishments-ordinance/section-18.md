@@ -1,0 +1,1 @@
+18. Sections 14, 15, 16 and 17 not to apply to certain establishments.__ The provisions of sections 14, 15, 16 and 17 shall not apply in relation to employees employed in commercial establishments as defined in clause (b) of section 2 of the West Pakistan Industrial and Commercial Employment (Standing Orders) Ordinance, 1968 (West Pakistan Ordinance VI of 1968).

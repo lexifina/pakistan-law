@@ -1,0 +1,1 @@
+16. Festival holidays.__ Every employee shall be allowed ten days festival holidays with full wages in a year. The days and dates for such festival holidays shall be notified to the employees by the employer in the beginning of the calendar year.

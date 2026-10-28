@@ -1,0 +1,2 @@
+15. Casual and sick leave.__ (1) Every employee shall be entitled to casual leave with full wages for ten days in a calendar year. Such leave shall not ordinarily be granted for more than three days at a time and shall not be accumulated.
+(2) Every employee shall be entitled to sick leave with full wages for a total period of eight days in every year. Such leave, if not availed of by any employee during a calendar year, may be carried forward, but the total accumulation of such leave shall not exceed sixteen days at any one time.
