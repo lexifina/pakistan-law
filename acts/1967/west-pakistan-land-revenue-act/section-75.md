@@ -1,0 +1,2 @@
+75. Security for Payment of land-revenue. (1) The land-revenue for the time being assessed and payable in respect of a holding shall be the first charge upon the rents, profits and produce thereof.
+(2) Save with the previous consent of the Collector, the rents, profits and produce of a holding shall not be liable to be taken in execution of a decree or order of any Court until the land-revenue chargeable against the rents, profits or produce or any arrear of land-revenue due in respect of the holding, have been paid.

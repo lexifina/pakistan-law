@@ -1,0 +1,1 @@
+65. Assessment to remain in force till new assessment takes effect. Notwithstanding the expiration of the period fixed for the continuance of an assessment under the last foregoing section, the assessment shall remain in force till a new assessment takes effect.

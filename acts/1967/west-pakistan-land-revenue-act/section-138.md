@@ -1,0 +1,1 @@
+138. Addition of parties to application. On the day fixed under section 137 for the hearing of the application, or on any other day to which the hearing may be adjourned, the Revenue Officer shall ascertain whether any of the other co-sharers desire the partition of their shares also, and if any of them so desires, he shall add him as an applicant for partition.

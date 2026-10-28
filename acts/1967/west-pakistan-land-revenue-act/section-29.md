@@ -1,0 +1,1 @@
+29. Arrest of defaulter to be made upon warrant. Whenever it is provided by this Act that a defaulter may be arrested, such arrest shall be made upon a warrant issued by the Revenue Officer competent to direct such person’s arrest.

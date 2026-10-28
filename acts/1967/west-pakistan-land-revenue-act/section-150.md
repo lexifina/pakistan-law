@@ -1,0 +1,1 @@
+150. Officers who may be empowered to act under this chapter. The Revenue Officer by whom proceedings may be taken under this Chapter shall be a Revenue Officer not below an Assistant Collector of the First Grade.

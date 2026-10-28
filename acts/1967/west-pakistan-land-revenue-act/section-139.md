@@ -1,0 +1,1 @@
+139. Disallowance of partition. After examining such of the co-sharers and other persons may be present on that day, the Revenue Officer may, if he is of opinion that there is good and sufficient cause for partition to be disallowed, reject the application, recording the grounds for such rejection.

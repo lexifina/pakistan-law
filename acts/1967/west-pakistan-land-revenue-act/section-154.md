@@ -1,0 +1,1 @@
+154. Substitution of arbitrators by parties. If an arbitrator nominated by a party dies, desires to be discharged, or refuses or becomes incapable to act, the party may nominate another person in his stead.

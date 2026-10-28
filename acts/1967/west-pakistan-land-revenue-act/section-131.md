@@ -1,0 +1,1 @@
+131. Responsibility for the maintenance of boundary and survey marks. Every land-owner shall be responsible for the maintenance and good repair of the boundary and survey marks of his holding, and for any charges reasonably incurred on account of the same by the Revenue Officers in cases of alteration, removal or disrepair.

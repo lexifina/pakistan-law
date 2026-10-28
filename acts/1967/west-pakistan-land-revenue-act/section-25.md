@@ -1,0 +1,2 @@
+25. Mode of service of notice, order or proclamation, or copy thereof. (1) A notice, order or proclamation, or a copy of any such document, issued by a Revenue Officer for service on any person, shall be served in the manner provided in section 24 for the service of a summons.
+(2) No such notice, order or proclamation or copy thereof, shall be deemed void on account of any error in the name or designation of any person referred to therein, unless such error has occasioned substantial injustice.

@@ -1,0 +1,1 @@
+149. Re-distribution of land according to custom. When by established custom, any land in an estate is subject to periodical re-distribution, a Revenue Officer may, on the application of any of the land-owners, enforce the re-distribution according to the custom, and for this purpose may exercise all or any of the powers of a Revenue Officer in proceedings of partition.

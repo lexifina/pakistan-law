@@ -1,0 +1,11 @@
+86. Annulment of assessment of holding. (1) When an arrear of land-revenue has been due for a longer period than one year, and the foregoing processes are not deemed sufficient for the recovery thereof, the Board of Revenue may, in addition to or instead of all or any of these processes, order the existing assessment of the holding in respect of which the arrear is due to be annulled.
+(2) The provisions of this section shall not be put in force for the recovery of an arrear of land-revenue which has accrued on land—
+(a) while under attachment under section 85, or
+(b) while under the charge of the Court of Wards.
+(3) When the assessment of any land has been annulled under sub-section (1), the Collector may, with the previous sanction of the Board of Revenue, manage the land either himself or through an agent, or let it in farm to any person willing to accept the farm for such term and on such conditions as may be sanctioned by the Board of Revenue:
+Provided that the term for which land may be so managed or farmed shall not be longer than ten years from the commencement of the agricultural year next following the date of the annulment.
+(4) Some time before the expiration of the aforesaid term, the Collector shall determine the assessment in respect of the holding for the remainder of the term of the current assessment of the
+District or Tahsil, and, when that assessment has been sanctioned by the Board of Revenue, shall announce it to the land-owner.
+(5) The land-owner may gave notice to the Collector of refusal to be liable for the assessment within thirty days from the date on which the assessment was announced to him.
+(6) If notice is so given, the Collector may, with the previous sanction of the Board of Revenue, take the holding under direct management or farm it for the remainder of the term of the current assessment of the District or Tahsil, or for any period within that term which the Board of Revenue may fix.
+(7) The Board of Revenue may direct that any contract made by the defaulter, or by any person through whom the defaulter claims with respect to any land comprised in a holding of which the assessment has been annulled, shall not be binding on the Collector or his agent or farmer during the period the holding remains under the management of the Collector or his agent or is let in farm.

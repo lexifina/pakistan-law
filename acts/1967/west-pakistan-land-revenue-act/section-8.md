@@ -1,0 +1,1 @@
+8. Appointment of Commissioners and Collectors. For each Division there shall be a commissioner and in each District there shall be a Collector, who shall be appointed by Government, and who shall exercise throughout the Division or District, as the case may be, all the powers, and discharge all the duties, of the Commissioner or Collector, as the case ay be, under this Act.

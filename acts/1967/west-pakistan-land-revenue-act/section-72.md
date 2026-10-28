@@ -1,0 +1,1 @@
+72. Procedure to be followed in making Rules. Before making any rule under the provisions of section 71, Government shall, in addition to observing the procedure laid down in section 22 of the West Pakistan General Clauses Act, 1956 (W.P. Act VI of 1956), publish by notification a draft of the proposed rule for the information of persons likely to be affected thereby.

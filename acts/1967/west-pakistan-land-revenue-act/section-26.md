@@ -1,0 +1,1 @@
+26. Mode of making proclamation. When a proclamation is issued by a Revenue Officer, it shall, in addition to any other mode of publication which may be prescribed by or under this Act, be made by beat of drum or other customary method and by affixing a copy thereof on a conspicuous place in or near the land to which it relates.

@@ -1,0 +1,3 @@
+156. Process for appearance before arbitrators. (1) The Revenue Officer shall, on the application of the arbitrators, issue the same processes to the parties and witnesses whom the arbitrators desire to examine as he may issue in any proceedings under this Act before himself.
+(2) Any such party or witness shall be bound to appear before the arbitrators in obedience to a process issued under sub-section (1), either in person or by agent, as the arbitrators may require.
+(3) The person attending in obedience to the process shall be bound to state the truth upon any matter respecting which he is examined or makes statements, and to produce such documents and other things relating to any such matter as may be specified in the process.

@@ -1,0 +1,4 @@
+30. Power of Revenue Offices to enter upon any lands or premises for purpose of
+measurements etc. It shall be lawful for any Revenue Officer, and any person acting, under the orders of a Revenue Officer, at any time to enter, when necessary for the purpose of measurement, demarcation, fixation or inspection of boundaries or boundary marks, classification of soil, or assessment, or for any other purpose connected with the lawful exercise of his office under the provisions of this Act, or any other law for the time being in force relating to land-revenue, upon any lands or premises, whether belonging to Government or to private individuals;
+Provided that no premises used as human dwelling shall be entered upon except with the consent of the occupier thereof, or without serving on the occupier a notice of not less than seven days in the prescribed form:
+Provided further that due regard shall always be paid to the social and religious prejudices of the occupiers.

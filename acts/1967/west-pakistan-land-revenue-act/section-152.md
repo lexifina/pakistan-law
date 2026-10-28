@@ -1,0 +1,3 @@
+152. Order of reference and contents thereof. (1) In referring a dispute to arbitration, a Revenue Officer shall make an order of reference and specify therein the precise matter submitted to arbitration, the number of arbitrators which each party to the dispute is to nominate, the period within which arbitrators are to be nominated, and the period within which the award is to be delivered.
+(2) The number of arbitrators which each party may nominate must be the same and must not exceed two.
+(3) If from any cause arbitrators are not nominated or an award is not delivered, within the period fixed for in the order of reference, the Revenue Officer may, from time to time, extend that period, or may cancel the order of reference.

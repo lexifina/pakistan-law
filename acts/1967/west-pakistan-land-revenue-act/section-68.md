@@ -1,0 +1,2 @@
+68. Application for amendment of the distribution of an assessment. (1) Any person affected by a record under sub-section (1) or sub-section (3) of the last foregoing section or by the revision of a record under sub-section (2) of that section, may, within thirty days from the date of the publication of the record, present a petition to the Revenue Officer for a re-consideration of the record so far as it affects him.
+(2) The order passed by the Revenue Officer on the petition shall set forth his reasons for granting or refusing it.

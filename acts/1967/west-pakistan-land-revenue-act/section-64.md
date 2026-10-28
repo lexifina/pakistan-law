@@ -1,0 +1,3 @@
+64. Duration of assessment. (1) The Board of Revenue shall, when confirming an assessment under sub-section (1) of section 63, fix a period of time for which the assessment shall remain in force.
+(2) The period fixed under sub-section (1) shall be twenty-five years:
+Provided that a period not exceeding twenty-five years and not shorter than ten years may be fixed for any area, specified by the Board of Revenue, in which canal irrigation has been introduced after the date of the orders passed under the provisions of sub-section (1) of section 61 at the last previous assessment or in which it has been proposed to introduce such irrigation during the period fixed.

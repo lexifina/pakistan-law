@@ -1,0 +1,1 @@
+17. Functions of Revenue Officers. Except where the class of Revenue Officers by whom any function is to be performed is specified in this Act, the Board of Revenue may, by notification, determine the functions to be performed under this Act by any class of Revenue Officers.

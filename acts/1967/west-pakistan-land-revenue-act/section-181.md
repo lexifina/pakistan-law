@@ -1,0 +1,1 @@
+181. Bar on legal proceedings against Revenue officer. No suit, prosecution or other legal proceeding shall lie against a Revenue Officer for anything done or ordered to be done in good faith by him as such in pursuance of the provisions of this Act, or of any other law for the time being in force.

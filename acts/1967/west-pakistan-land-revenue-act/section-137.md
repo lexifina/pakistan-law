@@ -1,0 +1,3 @@
+137. Notice of application for partition. The Revenue Officer, on receiving the application under section 135 shall, if it is in order, and not against the provisions of the West Pakistan Land Reforms Regulation, 1959 (Martial Law Regulation No. 64), and not open to objection on the face of it, fix a day for the hearing thereof, and—
+(a) cause notice of the application and of the day so fixed to be served on such of the recorded co-sharers as have not joined in the application; and
+(b) if he thinks fit, cause notice to be served on or proclaimed for the information of any other persons whom he may deem to be directly or indirectly interested in the application.
