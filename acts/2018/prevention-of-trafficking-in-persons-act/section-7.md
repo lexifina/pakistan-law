@@ -1,0 +1,1 @@
+7. Presumption in case of child victim. — Where the victim is a child, the prosecution may not prove actual use of force, fraud or coercion and the Court may not consider the consent of the victim, his parent or guardian as a defence.
