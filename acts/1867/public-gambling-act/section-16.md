@@ -1,0 +1,1 @@
+16. Portion of fine may be paid to informer. The Magistrate trying the case may direct any portion of any fine which shall be levied under section 3 and 4 of this Act, or any part of the moneys or proceeds of articles seized and ordered to be forfeited under this Act, to be paid to an informer.

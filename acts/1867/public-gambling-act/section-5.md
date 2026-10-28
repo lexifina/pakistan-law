@@ -1,0 +1,9 @@
+5. Powers to enter and authorise police to enter and search. If the Magistrate of a district[^14] or other officer invested with the full powers of a Magistrate[^15], or the District Superintendent of Police, upon credible information, and after such enquiry as he may think necessary, has reason to believe that any house, walled enclosure, room or place, is used as a common gaming-house, he may either himself enter, or by his warrant authorise any officer of police, not below such rank as the [^16][provincial Government] shall appoint in this behalf to enter with such assistance as may be found necessary, by night or by day, and by force if necessary, any such house, walled enclosure, room or place,
+and may either himself take into custody, or authorise such officer to take into custody, all persons whom he or such officer finds therein, whether or not then actually gaming;
+and may seize or authorise such officer to seize all instruments of gaming, and all moneys and securities for money, and articles of value, reasonably suspected to have been used or intended to be used for the purpose of gaming which are found therein;
+and may search or authorise such officer to search all parts of the house, walled enclosure, room or place which or such officer shall have so entered when he or such officer has reason to believe that any instruments of gaming are concealed therein, and also the persons of those whom he or such officer so takes into custody;
+and may seize or authorise such officer to seize and take possession of all instruments of gaming found upon such search.
+
+[^14]: As to enhanced punishment for a second conviction of an offence under section 3 or section 4, see section 15 of this Act.
+[^15]: Read District Magistrate and Magistrate of the first class, respectively, see Code of Criminal Procedure, 1898 (5 of 1898), s. 3.
+[^16]: Subs. by A.O., 1937, for “Lieutenant-Governor or Chief-Commissioner”.

@@ -1,0 +1,1 @@
+9. Proof of playing for stake unnecessary. It shall not be necessary, in order to convict any person of keeping a common gaming-house, or of being concerned in the management of any common gaming-house, to prove that any person found playing at any game was playing for any money, wager or stake.

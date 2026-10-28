@@ -1,0 +1,2 @@
+15. Penalty for subsequent offence. Whoever, having been convicted of an offence punish-able under section 3 or section 4 of this Act, shall again be guilty of any offence punishable under either of such sections, shall be subject for every such subsequent offence to double the amount of punishment to which he would have been liable for the first commission of an offence of the same description:
+Provided that he shall not be liable in any case to a fine exceeding six hundred rupees, or to imprisonment for a term exceeding one year.
