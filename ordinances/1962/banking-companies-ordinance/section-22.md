@@ -1,0 +1,5 @@
+22. Cash Reserve.— Every banking company, not being a scheduled bank, shall maintain by way of cash reserve in cash with itself, or in current account opened with the State Bank or its agent or partly in cash with itself and partly in such account or accounts a sum equivalent to at least two per cent of its time liabilities in Pakistan and five per cent of its demand liabilities in Pakistan and shall submit to the State Bank before the fifteenth day of every month a return showing the amount so held on [^51][Thursday] of each week of the preceding month with particulars of its time and demand liabilities in Pakistan on each such [^51][Thursday] or if any such [^51][Thursday] is a public holiday under the Negotiable Instruments Act, 1881 (XXVI of 1881), at the close of business on the preceding working day.
+[^52][* * * * * * *]
+
+[^51]: Subs. and shall be deemed to have been so subs. by the Banking Companies (amdt.) Ordinance, 1978 (3 of 1978), s. 3, for “Friday” (w.e.f. 1-7- 1977).
+[^52]: Explanation omitted by the Banking Companies (Amdt) Ordinance, 1984 (34 of 1984), s. 3.

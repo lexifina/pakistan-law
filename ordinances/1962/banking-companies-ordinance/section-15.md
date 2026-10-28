@@ -1,0 +1,3 @@
+15. Election of new directors.—(1) The State Bank may, by order, require any banking company to call a general meeting of the shareholders of the company within such time, not less than two months from the date of the order, as may be specified therein or within such further time as the State Bank may allow in this behalf, to elect in accordance with the voting rights permissible under this Ordinance fresh directors, and the banking company shall be bound to comply with the order.
+(2) Every director elected under sub-section (1) shall hold office until the date up to which his predecessor would have held office, if the election had not been held.
+(3) Any election duly held under this section shall not be called in question in any court.

@@ -1,0 +1,3 @@
+64. Special provisions to make calls on contributories.— Notwithstanding that the list of contributories has not been settled under section 184, of the [^143][Companies Ordinance, 1984 (XLVII of 1984)], the High Court may, if it appears to it necessary or expedient so to do, at any time after making a winding up order, make a call on and order payment thereof by any contributory under sub-section (1) of section 187 of the [^143][Companies Ordinance, 1984 (XLVII of 1984)], if such contributory has been placed on the list of contributories by the official liquidator and has not appeared to dispute his liability.
+
+[^143]: Sub. by Finance Act, 2007 (Act No. IV of 2007), s.4, (w.e.f. 01-07-2007).

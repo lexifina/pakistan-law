@@ -1,0 +1,3 @@
+39K. Other provisions relating to Islamic banking.__ (1) The provisions of this part shall be in addition to the other provisions of the Ordinance relating to Islamic banking and shall be read accordingly.
+(2) Except for the sub-sections (1), (2), (3) and (4) of section 26A, all other provisions of this Ordinance mentioning the term “deposits” of conventional banks shall also be construed to cover “Islamic deposit accounts” and “investment accounts” of Islamic banking institutions.
+(3) All provisions of this Ordinance mentioning the term “depositors” of conventional banks shall, also be construed to cover the “Islamic deposit account holders” and “investment account holders” of Islamic banking institutions.

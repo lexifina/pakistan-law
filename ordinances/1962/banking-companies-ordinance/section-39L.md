@@ -1,0 +1,1 @@
+39L. Savings.__ Any regulations, directives, instructions, notifications, circulars, guidelines or any act or thing done by the State Bank in relation to banking business which is based on Shariah before the coming into force of this part shall be deemed to have been validly issued or done under the Ordinance.]

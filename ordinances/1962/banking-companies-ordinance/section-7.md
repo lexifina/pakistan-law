@@ -1,0 +1,29 @@
+_______
+## PART II
+## BUSINESS OF BANKING COMPANIES
+7. Forms of business in which banking companies may engage.—(1) In addition to the business of banking, a banking company may engage in any one or more of the following forms of business, namely:―
+(a) The borrowing, raising, or taking up of money; the lending or advancing of money either upon or without security; the drawing, making, accepting, discounting, buying, selling, collecting and dealing in bills of exchange, hundies, promissory notes, coupons, drafts, bills of lading, railway receipts, warrants, debentures, certificates, scrips [^22][participation term certificates, term finance certificates, musharika certificates, modaraba certificates and such other instruments as may be approved by the State Bank] and other instruments, and securities whether transferable or negotiable or not; the granting and issuing of letters of credit, traveler’s cheques and circular notes; the buying, selling and dealing in bullion and species; the buying and selling of foreign exchange including foreign bank notes; the acquiring, holding, issuing on commission, underwriting and dealing in stock, funds, shares debentures, debenture stock, bonds, obligations, securities [^22][participation term certificates, term finance certificates, musharika certificates, modaraba certificates and such other instruments as may be approved by the State Bank] and investments of all kinds; the purchasing and selling of bonds, scrips or other forms of securities [^22][participation terms certificates, term finance certificates, musharika certificates, modaraba certificates and such other instruments as may be approved by the State Banks] on behalf of constituents or others, the negotiating of loans and advances; the receiving of all kinds of bonds, scrips or valuables on deposit or for safe custody or otherwise; the providing of safe deposit vaults: the collecting and transmitting of money and securities;
+[^22][(aa) the providing of finance as defined in the Banking Tribunals Ordinance, 1984].
+(b) acting agents for any Government or local authority or any other person or persons; the carrying on of agency business of any description including the clearing and forwarding of goods, giving of receipts and discharges and otherwise acting as an attorney on behalf of customers, but excluding the business of a managing agent or treasurer of a company;
+[^23][(bb) acting as “modaraba company” under the provision of the Modaraba Companies and Modaraba (Floatation and Control) Ordinance, 1980 (XXXI of 1980);]
+(c) contracting for public and private loans and negotiating and issuing the same;
+(d) the effecting, insuring, guaranteeing, underwriting, participating in managing and carrying out of any issue, public or private, Government, municipal or other loans or of shares, stock, debentures, [^24][debenture stock or other securities] of any company, corporation or association and the lending of money for the purpose of any such issue;
+(e) carrying on and transacting every kind of guarantee and indemnity business;
+[^25][(ee) purchase or acquisition in the normal course of its banking business of any property, including commodities, patents, designs, trade-marks and copyrights, with or without buy-back arrangements by the seller, or for sale in the form of hire-purchase or on deferred payment basis with mark-up or for leasing or licensing or for rent-sharing or for any other mode of financing;]
+(f) managing, selling and realising any property which may come into the possession of the company in satisfaction or part satisfaction of any of its claims;
+(g) acquiring and holding and generally dealing with any property or any right, title or interest in any such property which may form security or part of the security for any loans or advances or which may be connected with any such security;
+(h) undertaking and executing trust;
+(i) undertaking the administration of estates as executor, trustee or otherwise;
+(j) establishing and supporting or aiding in the establishment and support of associations, institutions, funds, trusts and conveniences calculated to benefit employees or ex-employees of the company or the dependents or connections of such persons; granting pensions and allowances and making payments towards insurance; subscribing to or guaranteeing moneys for charitable or benevolent objects or for any exhibition or for any public, general or useful object;
+(k) the acquisition, construction, maintenance and alteration of any building or works necessary or convenient for the purpose of the company;
+(l) selling, improving, managing, developing, exchanging, leasing, mortgaging, disposing of or turning into account or otherwise dealing with all or any part of the property and rights of the company;
+(m) acquiring and undertaking the whole or any part of the business of any person or company, when such business is of a nature enumerated or described in this sub-section;
+(n) doing all such other things as are incidental or conducive to the promotion or advancement of the business of the company;
+(o) any other form of business which the [^26][State Bank by circular], specify as a form of business in which it is lawful for a banking company to engage.
+(2) No banking company shall engage in any form of business other than those referred to in sub-section (1).
+
+[^22]: Inserted vide the Banking and Financial services (Amendment of Laws) Ordinance 1984 (Ordinance No. LVII of 1984), s. 2 and sch.,
+[^23]: New Clause (bb) inserted vide the Banking Companies (Third Amendment) Ordinance, 1980 (LVIII of 1980), s. 3
+[^24]: Substituted ibid. for the words “or debenture stock”.
+[^25]: Subs. by the Banking and Financial Services (Amdt. of Law) Ordinance 1984 (57 of 1984),s. 2 and Sch., for cl. (ee), which was previously ins. by Ordinance No. 58 of 1980, s. 3.
+[^26]: Subs. by Finance Act, 2007 (Act No. IV of 2007), s.4, (w.e.f. 01-07-2007).

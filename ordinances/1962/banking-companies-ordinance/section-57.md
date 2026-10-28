@@ -1,0 +1,3 @@
+57. Booked depositors’ credits to be deemed proved.— In any proceeding for the winding-up of a banking company, every depositor of the banking company shall be deemed to have filed his claim for the amount shown in the books of the banking company as standing to his credit and notwithstanding anything to the contrary contained in section 191 of the [^137][Companies Ordinance, 1984 (XLVII of 1984)], the High Court shall presume such claim to have been proved, unless the official liquidator shows that there is reason for doubting its correctness.
+
+[^137]: Sub. by Finance Act, 2007 (Act No. IV of 2007), s.4, (w.e.f. 01-07-2007).

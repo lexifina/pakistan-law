@@ -1,0 +1,9 @@
+[^176][84. Cognizance of offences, etc.—[^177][(1) No court shall take cognizance of any offence punishable under sub-sections (1), (1A), [^171][(1AA), (1B), (1C), (1D) and (2)] of section 83 except on a complaint in writing made by an officer of the State Bank generally or specially authorised in writing in this behalf by the State Bank and no court other than the High Court shall try any such offence.]
+(2) The High Court shall have, in respect of the trial of an offence referred to in sub-section (1), all the powers which it has in relation to a trial before it under the Code of Criminal Procedure, 1898 (Act V of 1898), hereafter in this section referred to as the Code, and shall follow the procedure provided in the Code for such trial except as hereinafter provided, namely:—
+(a) the trial shall be without a jury and the provisions of the Code shall have effect as if all references therein to jury or jurymen and to commitment proceedings and to any statement or documents made or prepared in the course of such proceedings had been omitted;
+(b) section 297 of the Code shall have effect as if it required the High Court, upon the case for the defence and the prosecutor's reply, if any being concluded, to proceed, with all reasonable speed, to pronounce its judgment; and
+(c) section 352 of the Code shall have effect as if it required the High Court, upon an application being submitted to it by the State Bank stating that it is in the interest of the banking companies in general or a banking company in particular that any proceedings are not held in open court, to order that the public generally shall not have access to, or be or remain in, the room or building used by the Court.]
+
+[^171]: Subs., omitted and ins. by Act No. XXIX of 2024, ss.36-37.
+[^176]: Subs by the Banking Companies (Amdt) Act, 1972 (30 of 1972), s.18 (w.e.f 13-10-1972).
+[^177]: Subs by the Finance Act, 1990 (7 of 1990), s.4A, for sub-section(1)

@@ -1,0 +1,7 @@
+92. Power of [^193][Federal Government] to make rules.—(1) The[^193][Federal Government] may, after consultation with the State Bank, make rules to provide for all matters for which provision is necessary or expedient for the purpose of giving effect to the provisions of this Ordinance and all such rules shall be published in the Official Gazette.
+(2) In particular, and without prejudice to the generality of the foregoing power, such rules may provide for the details to be included in the returns required by this Ordinance and the manner in which such returns shall be submitted and the form in which the official liquidator may file lists of debtors to the Court having jurisdiction under Part III or Part IV and the particulars which such lists may contain and any other matter which has to be, or may be prescribed.
+(3) All rules made under this section shall be subject to the condition of previous publication, and the date to be specified under clause (3) of Section 23 of the General Clauses Act, 1897 (X of 1897), shall not be less than six months from the date on which the draft of the proposed rules was published :
+Provided that in respect of first occasion on which rules are made under this section, the provisions of this sub-section shall not apply.
+(4) The [^193][Federal Government] may, by rules made under this section, annul, alter or add to, all or any of the provisions of the Third Schedule.
+
+[^193]: Subs. by the Banking Companies (Amdt.) Act, 1972 (30 of 1972). S. 23 (w.e.f 13-10-1972), for “Central Governement”.

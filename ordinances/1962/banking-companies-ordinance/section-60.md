@@ -1,0 +1,3 @@
+60. Part IV to override other Laws.— The provisions of this Part and the rules made thereunder shall have effect notwithstanding anything inconsistent therewith contained in the [^142][Companies Ordinance, 1984 (XLVII of 1984)], or the code of Civil Procedure, 1908 (Act V of 1908), or the Code of Criminal Procedure, 1898 (Act V of 1898), or any other law for the time being in force or any instrument having effect by virtue of any such law; but the provisions of any such law or instrument in so far as the same are not varied by, or inconsistent with, the provisions of this Part or rules made thereunder shall apply to all proceedings under this Part.
+
+[^142]: Sub. by Finance Act, 2007 (Act No. IV of 2007), s.4, (w.e.f. 01-07-2007).

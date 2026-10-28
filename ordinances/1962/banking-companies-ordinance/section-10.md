@@ -1,0 +1,6 @@
+10. Disposal of non-banking assets.—Notwithstanding anything contained in section 7, no banking company shall [^33][except as may be permitted by the State Bank from time to time, or as is required by it for its own use, hold any immovable property howsoever acquired,] for any period exceeding seven years from the acquisition thereof or from the commencement of this Ordinance, whichever is later or any extension of such period as in this section provided, and such property shall be disposed of within such period or extended period, as the case may be:
+Provided that the banking company may, within the period of seven years as aforesaid, deal or trade in any such property for the purpose of facilitating the disposal thereof:
+Provided further that the State Bank may in any particular case extend the aforesaid period of seven years by such period not exceeding five years where it is satisfied that such extension would be in the interests of the depositors of the banking company.
+Explanation.—For the purpose of this section property, a substantial portion of which is in use by banking company for its own genuine requirements shall be deemed to be property for its own use.
+
+[^33]: Subs. by the Banking and Financial Services (Amendment of Laws) Ordinance, 1984 (57 of 1984), s. 2 and sch., for certain words.
