@@ -1,0 +1,7 @@
+51. Solemnization of marriage after issue of certificate. After the issue of the certificate of the Marriage Registrar,
+or, where notice is required to be given under this Act to the Marriage Registrar for different districts, after the issue of the certificates of the Marriage Registrars for such districts,
+marriage may, if there be no lawful impediment to the marriage of the parties described in such certificate or certificates, be solemnized between them, according to such form and ceremony as they think fit to adopt.
+But every such marriage shall be solemnized in the presence of some Marriage Registrar (to whom shall be delivered such certificate or certificates as aforesaid), and of two or more credible witnesses besides the Marriage Registrar.
+And in some part of the ceremony each of the parties shall declare as follows, or to the like effect:−
+“I do solemnly declare that I know not of any lawful impediment why I, A. B., may not be joined in matrimony to C.D.”
+And each of the parties shall say to the other as follows or to the like effect:- “I call upon these persons here present to witness that I, A. B., do take the, C.D., to be my lawful wedded wife [or husband].”

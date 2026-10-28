@@ -1,0 +1,2 @@
+33. Entries of such marriages to be signed and attested. The entry of such marriage in both the certificate and marriage-register-book shall be signed by the person solemnizing the marriage, and also by the persons married, and shall be attested by two credible witnesses, other than the person solemnizing the marriage, present at its solemnization.
+Every such entry shall be made in order from the beginning to the end of the book, and the number of the certificate shall correspond with that of the entry in the marriage-register-book.

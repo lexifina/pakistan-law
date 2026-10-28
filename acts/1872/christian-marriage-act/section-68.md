@@ -1,0 +1,3 @@
+[^52][68. Solemnizing marriage without due authority. Whoever, not being authorised by section 5 to solemnize marriages, solemnizes or professes to solemnize in the absence of a Marriage Registrar of the district in which the ceremony takes place, a marriage between persons one or both of whom is or are a Christian or Christians, shall be punished with imprisonment which may extend to ten years, and shall also be liable to fine.]
+
+[^52]: Section 68 as amended by the Indian Christian Marriage Act, (1872) Amdt. Act, 1891 (2 of 1891), s.6, A. O.,1961, Art. 2 and Sch. (w.e.f. 23-3-1956), has been subs. by the Federal Laws (Revision and Declaration) Ordinance, 1981 (27 of 1981), s. 3 and 2nd Sch., to read as above.
