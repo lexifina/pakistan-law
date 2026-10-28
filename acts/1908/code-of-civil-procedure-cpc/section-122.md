@@ -1,0 +1,4 @@
+122. Power of certain High Courts to make rules.[^179][ The High Courts] [^180][* * *] may, from time to time after previous publication, make rules regulating their own procedure and the procedure of the Civil Courts subject to their superintendence, and may by such rules annul, alter or add to all or any of the rules in the First Schedule.
+
+[^179]: Subs. by the Central Laws (Statute Reform) ordinance, No. XXI of 1960,s. 3 ad 2nd Sch. (with effect from the 14th October, 1955) and the Government of India Act, 1935’’ as amended by Adaptation Order, 1937, Adaptation Order, 1949 and the Oudh Courts (Supplementary) Act No. XXXII of 1925, s.2 and Sch.
+[^180]: Omitted by the Repealing and Amending Act No. XI of 1923, s. 3 and Second Sch. and subs. by the repealing and Amending Act No. XVIII of 1919, s. 2 and First Sch.

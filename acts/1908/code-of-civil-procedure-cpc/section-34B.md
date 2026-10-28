@@ -1,0 +1,7 @@
+[^48][34B. Interest, etc. on dues of banking company.__ Where and in so far as a decree is for payment of money due to a banking company in repayment of a loan advanced by it, the Court shall, in the decree, provide for interest or return, as the case may be, on the judgment debt from the date of decree till payment__
+(a) in the case of interest-bearing loans, for interest at the contracted rate or at the rate of two per cent above the bank rate, whichever is the higher ;
+(b) in the case of loans given on the basis of mark-up in price, lease, hire-purchase or service charges, for the contracted rate of mark-up, rental, hire or service charges, as the case may be, or at the latest rate of the banking company for similar loans, whichever is the higher ; and
+(c) in the case of loans given on the basis of participation in profit and loss, for return at such rate, not being less than the annual rate of profit for the preceding six months paid by the banking company on term deposits of six months accepted by it on the basis of participation in profit and loss, as the court may consider just and reasonable in the circumstances of the case, keeping in view the profit-sharing agreement entered into between the banking company and the judgement debtor when the loan was contracted.
+Explanation.__ In this section in clause (a), “bank rate” has the same meaning as in section 34A.].
+
+[^48]: Section 34B ins. by the Code of Civil Procedure (Amdt.) Ordinance, No. LXIII of 1980, s. 2.

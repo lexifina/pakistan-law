@@ -1,0 +1,1 @@
+21. Objections to jurisdiction. No objection as to the place of suing shall be allowed by any appellate or revisional Court unless such objection was taken in the Court of first instance at the earliest possible opportunity and in all cases where issues are settled at or before such settlement, and unless there has been a consequent failure of justice.

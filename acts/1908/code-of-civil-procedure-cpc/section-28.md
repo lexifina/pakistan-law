@@ -1,0 +1,2 @@
+28. Service of summons where defendant resides in another Province.__ (1) A Summons may be sent for service in another Province to such Court and in such manner as may be prescribed by rules in force in that Province.
+(2) The Court to which such summons is sent shall, upon receipt thereof, proceed as if it had been issued by such Court and shall then return the summons to the Court of issue together with the record (if any) of its proceedings with regard thereto.

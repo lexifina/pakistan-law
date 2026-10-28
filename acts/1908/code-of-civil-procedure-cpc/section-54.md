@@ -1,0 +1,3 @@
+54. Partition of estate of seperation of share. Where the decree is for the partition of an undivided estate assessed to the payment of revenue to [^70][the Government], or for the separate possession of a share of such an estate, the partition of the estate or the separation of the share shall be made by the Collector or any gazetted subordinate of the Collector deputed by him in this behalf, in accordance with the law (if any) for the time being in force relating to the partition, or the separate possession of shares, of such estates.
+
+[^70]: Amended by Adaptation Order, 1961, Art. 2 (with effect from the 23rd March, 1956), to read as above.

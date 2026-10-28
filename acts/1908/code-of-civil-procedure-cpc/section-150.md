@@ -1,0 +1,1 @@
+150. Transfer of business. Save as otherwise provided, where the business of any Court is transferred to any other Court, the Court to which the business is so transferred shall have the same powers and shall perform the same duties as those respectively conferred and imposed by or under this Code upon the Court from which the business was so transferred.

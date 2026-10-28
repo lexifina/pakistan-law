@@ -1,0 +1,1 @@
+146. Proceedings by or against representatives. Save as otherwise provided by this Code or by any law for the time being in force, where any proceeding may be taken or application made by or against any person, then the proceeding may be taken or the application may be made by or against any person claiming under him.
