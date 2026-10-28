@@ -1,0 +1,2 @@
+12. Entry into premises.___(1) For carrying out the purposes of this Act, Authorised Officer or any person empowered by him in writing in this behalf may, after giving reasonable notice to the occupier of any premises, enter upon such premises at any time.
+(2) The owner of any building shall, on being required to do so by an Authorised Officer or any person empowered by the Authorised Officer in writing in this behalf, produce any permission granted under section 5 and any documents of title relating to the land on which the building is in progress.

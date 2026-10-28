@@ -1,0 +1,1 @@
+7. Power of removal of un authorized building. ___ The Authorised Officer may, by a notice served in the prescribed manner, direct the owner of an unauthorised building erected prior to the date of coming into force of this Act to remove the same within the period mentioned in the notice or within such further period as may be granted by the Authorised Officer.

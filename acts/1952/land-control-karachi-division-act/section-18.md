@@ -1,0 +1,1 @@
+18. Authorised Officer to be deemed a public servant. ___An Authorised Officer or any person empowered to perform any function under this Act shall be deemed to be a public servant within the meaning of section 21 of the Pakistan Penal Code (XLV of 1860).
