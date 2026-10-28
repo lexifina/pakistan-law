@@ -1,0 +1,2 @@
+17. Wages during leave or holiday period.__ (1) For each day of the leave or holidays allowed to an employee under sections 14, 15 and 16, he shall be paid at the rate equivalent to the daily average amount, which, during the three months preceding the leave or holidays, was being earned by the employee.
+(2) An employee, who has been allowed leave under section 14 for any period not less than four days in the case of an adult and five days in the case of a young person, shall before the leave begins, be paid his wages for the period of the leave allowed.

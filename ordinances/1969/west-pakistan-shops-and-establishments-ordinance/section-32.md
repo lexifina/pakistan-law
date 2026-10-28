@@ -1,0 +1,2 @@
+32. Power to make rules.__ (1) Government may, by notification in the official Gazette, make rules for carrying out the purposes of this Ordinance.
+(2) In making rules under this section, Government may direct that any person committing breach thereof shall, on conviction, be punishable with fine which may extend to fifty rupees, and where the breach is a continuing one, with a further fine which may extend to ten rupees for every day, after the first, during which the breach continues.

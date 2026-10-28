@@ -1,0 +1,1 @@
+29. Limitation of prosecutions.__ No Court shall take cognizance of any offence punishable under this Ordinance or any rule made thereunder unless complaint thereof is made within three months from the date on which the alleged commission of the offence comes to the knowledge of an Inspector.

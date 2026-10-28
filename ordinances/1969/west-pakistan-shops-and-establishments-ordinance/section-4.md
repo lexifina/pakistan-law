@@ -1,0 +1,1 @@
+4. Power to grant exemptions.__ Government may, by notification in the official Gazette, exempt from the operation of all or any of the provisions of this Ordinance any establishment or any class thereof or any employer or employee or class of employers or employees on such conditions as it may think fit.

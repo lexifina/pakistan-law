@@ -1,0 +1,5 @@
+14. Annual leave.__ (1) Every employee shall be allowed leave with full wages for a period of fourteen days after continuous employment in an establishment, whether in the same or different capacities, for a period of twelve months.
+(2) If an employee does not in any period of twelve months avail of the whole or any part of the leave allowed to him under sub-section (1)__
+(a) any leave not availed of by him shall be added to the leave to be allowed to him under that sub-section in the succeeding period of twelve months; provided that when the total leave due to an employee under this section amounts to thirty days, no further accumulation of or addition to such leave will be permissible;
+(b) he may, at his request, in lieu of the leave not availed of by him, be paid by the employer full wages for such leave.
+(3) For the purposes of computing the period during which an employee has been in continuous employment within the meaning of sub-section (1), the period during which he was on leave under this section, or sections 15 and 16, shall be included.

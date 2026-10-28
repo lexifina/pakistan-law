@@ -1,0 +1,1 @@
+31. Delegation of powers.__ Government may, by notification in the official Gazette, delegate all or any of its powers under this Ordinance or the rules thereunder to any subordinate authority or agency as may be considered expedient by it.

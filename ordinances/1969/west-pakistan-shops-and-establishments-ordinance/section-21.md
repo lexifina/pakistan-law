@@ -1,0 +1,1 @@
+21. Contracting out.__ Any contract or agreement, whether made before or after the commencement of this Ordinance, whereby an employee relinquished any right conferred by this Ordinance shall be null and void in so far as it purports to deprive him of such right.
