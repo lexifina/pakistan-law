@@ -1,0 +1,1 @@
+[^1]: Subs. and shall be deemed always to have been so subs. by the population Welfare Planning Programme (Appointment and Termination of Service) Ordinance, 1981 (21 of 1981), s. 2, for “cannot be appointed under section 3”.

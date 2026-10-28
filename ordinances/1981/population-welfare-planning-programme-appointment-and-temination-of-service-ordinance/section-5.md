@@ -1,0 +1,2 @@
+5. Only employees to be appointed. For appointment to the posts under the Population Programme, only the employee and persons on deputation with the Council or a Board shall be eligible provided they possess such qualifications and experience as may be prescribed:
+Provided that, if suitable employees and such persons are not available, the posts which remain unfilled after taking action under section 4 may be filled subsequently in accordance with the procedure laid down in or under the Civil Servants Act, 1973 (LXXI of 1973).

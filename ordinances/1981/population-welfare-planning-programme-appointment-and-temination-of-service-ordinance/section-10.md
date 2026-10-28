@@ -1,0 +1,1 @@
+10. Ordinance to over-ride other laws, etc. This Ordinance shall have effect, notwithstanding anything contained in any other law for the time being in force or in any judgment, decree or order of any court.
