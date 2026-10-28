@@ -1,0 +1,2 @@
+40. Penalty of practicing without registration.—(1) No person, other than a registered medical or dental practitioner, shall practice medicine or dentistry.
+(2) Any person who acts in contravention of the provisions of sub-section (l) shall be punishable with imprisonment for a term which may extend to two years, but shall not be less than six months, or with fine which may extend to two hundred thousand rupees, but shall not be less than one hundred thousand rupees, or with both.

@@ -1,0 +1,11 @@
+11. Term of office of board members.— (1) The term of a board’s member shall be four years unless earlier withdrawn by the nominating or appointing authority for reasons to be disclosed to the member prior to such withdrawal. No member of the board shall serve for more than two consecutive terms.
+(2) If a member nominated to the board under clauses (c), (d), (e) and (f) of sub-section (1) of section 10 fails to attend three consecutive meetings of the board without any valid reason or remains out of Pakistan for a continuous period exceeding one year, he shall cease to be the member of the board and the nominating authority shall be required to nominate a new member in accordance with section 10.
+(3) A member shall be removed by the division concerned, if—
+(a) his name has been removed from the register of practitioners as a result of inquiry under this Act; or
+(b) he becomes insane or is declared un-discharged insolvent by a competent court; or
+(c) he is convicted of a criminal offence involving moral turpitude, including unprofessional and un-ethical conduct under this Act; or
+(d) his nomination is withdrawn in accordance with sub-section (1).
+(4) If the membership of a member is called in question, on any of the reasons provided for under sub-section (3), his membership shall be deemed suspended until the issuance of a notification of removal by the division concerned under sub-section (1).
+(5) Where the said term of four years is about to expire in respect of any member, his successor may be nominated at any time within three months before the expiry of said term, but the successor shall not assume office until the expiry of the said term.
+(6) A nominated member may, at any time, resign from his membership by writing under his hand address to the President of the Council and the seat of such member shall be deemed to have fallen vacant from the date of acceptance of his resignation by the President.
+(7) A vacancy in the board shall be filled through the prescribed process of nomination under section 10 and the person nominated to fill the vacancy shall hold office for the remaining term of the vacancy. Any nomination required to fill a vacancy shall be submitted within fifteen days of such vacancy having occurred.

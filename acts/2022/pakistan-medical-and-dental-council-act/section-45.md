@@ -1,0 +1,1 @@
+45. Officers etc. deemed to be public servants.—The members, offices, employees and other staff of the Council shall deem to be public servants within the meanings of section 21 of the Pakistan Penal Code (Act XLV of 1860).
