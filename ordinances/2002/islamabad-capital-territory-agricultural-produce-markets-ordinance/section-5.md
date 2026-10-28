@@ -1,0 +1,1 @@
+5. Market committee to issue and renew license.___ Subject to such rules as the Government may make in this behalf, the market committee concerned shall be the authority to issue licence to a dealer under this Ordinance and to renew such a license.

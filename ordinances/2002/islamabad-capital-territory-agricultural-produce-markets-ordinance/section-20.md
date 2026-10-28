@@ -1,0 +1,2 @@
+20. Execution of contracts. ___ (1) Every contract entered into by a market committee shall be in writing and shall be signed on behalf of the market committee by the chairman and two members or, if for any reason, the chairman is unable to act, by the vice-chairman and two members of the market committee and shall be sealed with the common seal of the market committee.
+(2) No contract other than a contract executed in the manner provided in subsection (1) shall be binding on a market committee.

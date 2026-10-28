@@ -1,0 +1,6 @@
+31. Dissolution of the market committees. ___ (1) Notwithstanding anything contained in the Ordinance, where a general election to the National assembly is announced and the Government is satisfied that it is in the public interest to prevent the Market Committees from using their funds or influence for political purposes, the Government may, by notification, dissolve the market committee.
+(2) On the publication of the notification under sub-section (1),___
+(a) all the members including the Chairmen and Vice-Chairmen of the market committees shall, as from the date of such publication, cease to be members of the market committee;
+(b) all powers and functions of the market committees shall be exercised and performed by such officer as the Government may appoint in this behalf as Administrator; and
+(c) all assets of the market committees shall vest in the Government and the Government shall be liable for all the legal liabilities of the market committees subsisting 6n the date of their dissolution upto the limit of the said assets till such time new market committees are constituted under section 8.
+(3) The market committees dissolved under sub-section (1) shall be reconstituted as soon as possible after the constitution of the Federal Cabinet as a result of the said general election.

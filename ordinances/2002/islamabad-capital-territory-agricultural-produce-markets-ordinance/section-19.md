@@ -1,0 +1,1 @@
+19. Employees to be deemed to be public servants.___ Every person employed by a market committee and every member thereof shall be deemed to be a public servant within the meaning of section 21 of the Pakistan Penal Code (Act XLV of 1860).

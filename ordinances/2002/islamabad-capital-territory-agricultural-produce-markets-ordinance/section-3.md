@@ -1,0 +1,3 @@
+3. Notification of intention of exercising control over purchase and sale of agricultural
+produce in specified area. ___ Government may, by notification, declare its intention of exercising control over the purchase and sale of such agricultural produce and in such area as may be specified in the notification and such, notification shall state that all objections or suggestions, which may be received by the Deputy Commissioner through Extra Assistant Director of Agriculture within a period to be specified in the notification will be considered:___
+Provided that such period shall not be less than thirty days from the date of issue of the notification.

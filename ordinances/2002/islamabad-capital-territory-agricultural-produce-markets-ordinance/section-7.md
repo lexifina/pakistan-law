@@ -1,0 +1,2 @@
+7. Establishment of market committees.___ (1) The Government shall by notification establish a market committee for every notified market area.
+(2) The market committee constituted and established under the Agricultural Produce Market Act, 1939 (V of 1939) and the Islamabad Capital Territory Local Government Ordinance, 1979 (VI of 1979) shall be deemed to have been constituted under this Ordinance.

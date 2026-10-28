@@ -1,0 +1,1 @@
+12. Removal of members.___The Government may, at any time by notification, after providing him an opportunity of being heard remove any member if such member has in their opinion, been wrongly or improperly elected of has lost the qualification on the strength of which he was elected or whose continuance as a member in the opinion of Government is not desirable.

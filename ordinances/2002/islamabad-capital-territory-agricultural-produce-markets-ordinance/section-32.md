@@ -1,0 +1,1 @@
+32. Acquisition of land.___ Where any land is required by a market committee for carrying out any of its functions under this Ordinance, it shall obtain the prior approval of the Government before approaching the collector of the district concerned for acquisition of land under the Land Acquisition Act, 1894 (I of 1894).

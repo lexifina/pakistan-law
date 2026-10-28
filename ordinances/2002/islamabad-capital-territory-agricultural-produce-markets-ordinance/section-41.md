@@ -1,0 +1,2 @@
+41. Authorities and officers.___ Notwithstanding anything contained in this Ordinance, all authorities and all officers who immediately before the commencement of this Ordinance were exercising functions of market committees under any other law shall continue to exercise their, respective functions under this Ordinance till the market committees are re-constituted:___
+Provided that the Government may withdraw all or any of the functions from such authorities or officers as it may deem necessary.
