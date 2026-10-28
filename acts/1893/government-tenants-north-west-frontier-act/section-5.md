@@ -1,0 +1,2 @@
+5. Maintenance of registers of tenancies.___(1) When any such statement has been issued for any tract, the Deputy Commissioner shall, in manner hereinafter provided, open and maintain for such tract a register or registers of tenancies granted on the conditions prescribed in such statement.
+(2) Every such register shall have prefixed thereto a copy of the statement of conditions to which it relates, and shall be in such form and shall contain such particulars as to the tenancies registered therein as the 1l[Provincial Government] may prescribe.
