@@ -1,0 +1,1 @@
+13. Land to be marked out, measured and planned.— Where any land is proposed to be acquired under section 12, the Deputy Commissioner shall cause the land to be marked out and measured, unless it has been already marked out, and if no plan has been made thereof, a plan to be made for the same.

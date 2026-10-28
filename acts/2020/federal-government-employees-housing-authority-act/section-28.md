@@ -1,0 +1,2 @@
+28. Authority to be exempted from taxation.— (1) Notwithstanding anything contained in any other law, for a period of five years starting from the commencement of this Act as per sub-section (1) of section 3 of this Act, the Authority shall be exempted from income tax.
+(2) The Federal Government may, by notification in the official Gazette, extend the exemption mentioned in sub-section (1) to such extent and on such terms and conditions as it may deem appropriate.

@@ -1,0 +1,1 @@
+29. Validation.— All acts done or taken by the Foundation, before the commencement of this Act, shall be deemed to have been validly done or have been taken under this Act to the extent they are consistent with the provisions of this Act.

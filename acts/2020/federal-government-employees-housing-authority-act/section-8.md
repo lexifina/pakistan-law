@@ -1,0 +1,2 @@
+8. Appointment of officers and officials.— (1) The Executive Board may, in such manner and on such terms and conditions as may be prescribed by regulations, appoint such officers, employees, staff, experts, consultants and advisors as may be necessary for purposes of this Act.
+(2) All officers and employees of the Foundation shall become the employees of the Authority upon its winding up, on the terms and conditions as may be prescribed which shall not be less favorable than the terms and conditions being availed by them in the Foundation on commencement of this Act.

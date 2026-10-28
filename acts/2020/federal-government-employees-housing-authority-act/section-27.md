@@ -1,0 +1,1 @@
+27. Recovery as arrears of land revenue.— If a person fails to pay any amount due to the Authority, the Collector shall, on the request in writing of the Authority, recover the amount as arrears of land revenue.

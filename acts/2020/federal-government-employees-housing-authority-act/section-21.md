@@ -1,0 +1,2 @@
+21. Power to cancel allotment.— (1) The Director General may cancel or revoke or rescind any allotment, transfer, licence, lease or agreement on the recommendation of a committee constituted by the Executive Board.
+(2) An appeal from an order under sub-section (1) shall lie before the Executive Board. When the Executive Board is deciding the appeal, the Director General shall not participate in the proceedings.

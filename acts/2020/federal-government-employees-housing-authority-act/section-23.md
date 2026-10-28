@@ -1,0 +1,1 @@
+23. Violation of building regulations.— If a person violates the building regulations in the specified area, the Authority may, in the prescribed manner, direct such person to remove the structure or part of the structure or pay fine to the Authority which may be fixed in the regulations for each category of violation.

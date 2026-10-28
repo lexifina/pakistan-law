@@ -1,0 +1,5 @@
+3. Authority.— (1) The Division, concerned with the subject, through Chairman of the Authority shall, by notification in the official Gazette, establish the Federal Government Employees Housing Authority, within thirty days of the commencement of this Act.
+(2) The Authority shall be a body corporate having perpetual succession and common seal with power to purchase, procure through acquisition or otherwise, land as well movable and immovable properties and assets with the object to hold, possess, sell, lease, transfer, exchange any property including landed property and to regulate the schemes undertaken by it in the specified area.
+(3) The head office of the Authority shall be at Islamabad. The Authority may establish regional offices in other parts of Pakistan with the approval of Executive Board.
+(4) The Authority shall also be the local authority in the specified area and shall be responsible for all public services and facilities.
+(5) While making or arranging, planning, designing and executing a scheme in specified area, adherence to local municipal regulations and master plan of the concerned district shall be ensured.

@@ -1,0 +1,1 @@
+9. Delegation of powers.— Subject to this Act, the Executive Board and the Director General may, by order in writing, delegate to any officer of the Authority any of its or his powers to perform such functions and duties as may be specified in the order.
