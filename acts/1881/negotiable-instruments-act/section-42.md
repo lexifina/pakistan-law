@@ -1,0 +1,1 @@
+42. Acceptance of bill drawn in fictitious name. An acceptor of a bill of exchange drawn in a fictitious name and payable to the drawer’s order is not, by reason that such name is fictitious, relieved from liability to any holder in due course claiming under an indorsement by the same hand as the drawer’s signature, and purporting to be made by the drawer.

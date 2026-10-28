@@ -1,0 +1,3 @@
+[^46][58. Defective title. When a promissory note, bill of exchange or cheque has been lost or has been obtained from any maker, drawer, acceptor or holder thereof by means of an offence or fraud, or for an unlawful consideration, neither the person who finds or so obtains the instrument nor any possessor or indorsee who claims through such person is entitled to receive the amount due thereon from such maker, drawer, acceptor or holder, unless such possessor or indorsee is, or some person through whom he claims was, a holder thereof in due course.]
+
+[^46]: Subs. ibid., s. 31, for the original section 58.

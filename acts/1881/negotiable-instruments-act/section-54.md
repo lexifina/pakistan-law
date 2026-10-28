@@ -1,0 +1,1 @@
+54. Instrument indorsed in blank. Subject to the provisions hereinafter contained as to crossed cheques, a negotiable instrument indorsed in blank is payable to the bearer thereof even although originally payable to order.

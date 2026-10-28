@@ -1,0 +1,1 @@
+103. Protest for non-payment after dishonour by non-acceptance. All bills of exchange drawn payable at some other place than the place mentioned as the residence of the drawee, and which are dishonoured by non-acceptance, may, without further presentment to the drawee, be protested for non-payment in the place specified for payment, unless paid before or at maturity.

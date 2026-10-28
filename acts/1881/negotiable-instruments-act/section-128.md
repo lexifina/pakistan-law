@@ -1,0 +1,3 @@
+128. Payment in due course of crossed cheque. Where the banker on whom a crossed cheque is drawn [^96][in good faith and without negligence pays it, if crossed generally, to a banker, and if crossed specially, to the banker to whom it is crossed or his agent for collection, being a banker], the banker paying the cheque, and (in case such cheque has come to the hands of the payee) the drawer thereof, shall respectively be entitled to the same rights, and be placed in the same position in all respects, as they would respectively be entitled to and placed in if the amount of the cheque had been paid to and received by the true owner thereof.
+
+[^96]: Subs. ibid., s. 46, for “ has paid the same in due course”.

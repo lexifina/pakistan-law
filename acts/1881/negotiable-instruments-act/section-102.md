@@ -1,0 +1,1 @@
+102. Notice of protest. When a promissory note or bill of exchange is required by law to be protested, notice of such protest must be given instead of notice of dishonour, in the same manner and subject to the same conditions; but the notice may be given by the notary public who makes the protest.

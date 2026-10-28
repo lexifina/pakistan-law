@@ -1,0 +1,1 @@
+57B. Rigts of holder. A holder may receive payment in due course under a negotiable instrument and furhter negotiate it in the manner provided by this Act; he may also sue on such instrument in his own name.]

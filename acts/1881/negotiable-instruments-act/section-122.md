@@ -1,0 +1,1 @@
+122. Estoppel against denying signature or capacity of prior party. No indorser of a negotiable instrument shall, in a suit thereon by a subsequent holder, be permitted to deny the signature or capacity to contract of any prior party to the instrument.

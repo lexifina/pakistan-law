@@ -1,0 +1,1 @@
+41. Acceptor bound although indorsement forged. An acceptor of a bill of exchange already indorsed is not relieved from liability by reason that such indorsement is forged, if he knew or had reason to believe the indorsement to be forged when he accepted the bill.

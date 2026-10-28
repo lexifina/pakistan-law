@@ -1,0 +1,1 @@
+60. Instrument negotiable till payment or satisfaction. A negotiable instrument may be negotiated (except by the maker, drawee or acceptor after maturity) until payment or satisfaction thereof by the maker, drawee or acceptor at or after maturtiy, but not after such payment or satisfaction.

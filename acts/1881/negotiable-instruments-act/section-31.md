@@ -1,0 +1,1 @@
+31. Liability of drawee of cheque. The drawee of a cheque having sufficient funds of the drawer in his hands properly applicable to the payment of such cheque must pay the cheque when duly required so to do, and, in default of such payment, must compensate the drawer for any loss or damage caused by such default.

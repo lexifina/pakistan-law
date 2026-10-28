@@ -1,0 +1,1 @@
+127. Payment of cheque crossed specially more than once. Where a cheque is crossed specially to more than one banker, except when crossed to an agent for the purpose of collection, the banker on whom it is drawn shall refuse payment thereof.

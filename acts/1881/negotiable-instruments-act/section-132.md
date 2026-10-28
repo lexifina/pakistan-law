@@ -1,0 +1,2 @@
+132. Set of bills. Bills of exchange may be drawn in parts, each part being numbered and containing a provision that it shall continue payable only so long as the others remain unpaid. All the parts together make a set; but the whole set constitutes only one bill, and is extinguished when one of the parts, if a separate bill, would be extinguished.
+Exception.___ When a person accepts or indorses different parts of the bill in favour of different persons, he and the subsequent indorsers of each part are liable on such part as if it were a separate bill.

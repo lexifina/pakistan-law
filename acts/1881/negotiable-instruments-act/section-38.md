@@ -1,0 +1,3 @@
+38. Prior party a principal in respect of each subsequent party. As between the parties so liable as sureties, each prior party is, in the absence of a contract to the contrary, also liable thereon as a principal debtor in respect of each subsequent party.
+Illustration
+A draws a bill payable to his own order on B who accepts. A afterwards indorses the bill to C, C to D, and D to E. As between E and B, B is the principal debtor, and A, C and D are his sureties. As between E and A, A is the principal debtor, and C and D are his sureties. As between E and C, C is the principal debtor and D is his surety.
