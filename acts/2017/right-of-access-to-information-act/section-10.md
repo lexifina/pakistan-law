@@ -1,0 +1,2 @@
+10. Functions of designated official. —(1) Subject to the provisions of this Act and the rules made thereunder, the designated official shall be responsible for ensuring that requests are dealt with promoting full compliance by the public body of its obligations under this Act.
+(2) A designated official shall, as may be prescribed, assist applicant who is having problems due to any disability in describing the information sought in sufficient detail to enable the public body to locate that information.

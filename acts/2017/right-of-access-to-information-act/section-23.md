@@ -1,0 +1,1 @@
+23. Indemnity. —No suit, prosecution or legal proceedings shall lie against the principal officer, designated official or any other person of a public body in respect of anything which in good faith is done or purported to have been done under this Act and the rules made thereunder.

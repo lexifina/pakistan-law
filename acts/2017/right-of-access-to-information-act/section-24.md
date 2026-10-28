@@ -1,0 +1,1 @@
+24. Recruitment in Information Commission.—Excluding the Chief Information Commissioner and Commissioners, appointment of officers and staff in Information Commission from BS-16 and above shall be made through Federal Public Service Commission in line with the Federal Public Service Commission Ordinance, 1977 (XLV of 1977).

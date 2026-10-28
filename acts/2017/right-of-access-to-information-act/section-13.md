@@ -1,0 +1,10 @@
+13. Procedure for acceptance and refusal of requests. — (1) The designated official shall provide a written acknowledgement in response to a request.
+(2) The designated official shall process the request and by notice in writing inform the applicant that—
+(a) the request has been acknowledged and the applicant is entitled to receive the information or record, subject to the payment of prescribed fee. On payment of the fee the designated official shall provide the requested record; or
+(b) the request has been rejected—
+(i) on the basis that it does not comply with the provisions of this Act and the rules made thereunder but only after requisite assistance has been offered to the applicant as mentioned in sub-section (2) of section 10;
+(ii) on the basis that the information is already available in a generally accessible form in which case the notice shall indicate to the applicant the place from where the information may be found;
+(iii) on the basis that it is incorrect, because it relates to information which is substantially the same information that has already been provided to the same applicant during last six months; or
+(iv) in whole or in part, on the basis that the information is exempt subject to section 7 or section 16, in which case the notice shall specify the exact exception relied upon and specifying details regarding the right of the applicant to appeal against this decision.
+(3) Where information or a record is provided in accordance with clause (a) of sub-section (2), it shall be accompanied by a certificate which may be affixed to the information or record at the foot thereof, or as appropriate, to the effect that the information is correct or, as the case may be, the copy is a true copy of the original record and such certificate shall be dated and signed by the designated official.
+(4) Where the designated official refuses a request, he shall, before informing the applicant of such refusal, obtain written approval of the principal officer of the public body.
