@@ -1,0 +1,4 @@
+## CHAPTER V
+## POWERS, DUTIES AND PROCEDURE OF OFFICERS, ETC.
+22. Issue of search warrants: (1) If any Collector, Prohibition Officer or Magistrate, upon information obtained and after such inquiry as he thinks necessary, has reason to believe that an offence under Article 3, Article 4, Article 8 or Article 11 has been committed, he may issue a warrant for the search for any intoxicant, material, still, utensil, implement or apparatus in respect of which the alleged offence has been committed.
+(2) Any person has been entrusted with the execution of such a warrant may detain and search and, if he thinks proper, but subject to the provision of clause (1) of Article 12, arrest any person found in the place searched, if he has reason to believe such person to be guilty of an offence under Article 3, Article 4, Article 8 or Article 11.

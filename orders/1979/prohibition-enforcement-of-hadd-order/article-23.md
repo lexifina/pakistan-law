@@ -1,0 +1,1 @@
+23. Powers of Prohibition Officer: In addition to the powers conferred on him by the foregoing provisions of this Order, a Prohibition Officer shall have all the powers conferred on the officer in charge of a police station while conducting an investigation into a cognizable offence.

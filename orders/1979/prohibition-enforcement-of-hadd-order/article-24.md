@@ -1,0 +1,1 @@
+24. Enhanced punishment for certain offences after previous conviction: Whoever, having been convicted by a Court of an offence punishable under this order, shall be guilty of that offence shall, in addition to the punishment provided for that offence, be awarded for every such subsequent offence the punishment of imprisonment provided for that offence.

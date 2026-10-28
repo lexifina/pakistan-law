@@ -1,0 +1,2 @@
+26. Application of certain provisions of the Pakistan Penal Code (Act XLV of 1860): (1) Unless otherwise expressly provided in this Order, the provisions of Sections 34 to 38 of Chapter II, Sections 63 to 72 of Chapter III, and Chapters V and V-A of the Pakistan Penal Code (Act XLV of 1860), shall apply, mutatis mutandis, in respect of offences under this Order.
+(2)Whoever is guilty of the abetment of an offence liable to ‘hadd’ under this Order shall be liable to the punishment provided for such offence as ‘Tazir’

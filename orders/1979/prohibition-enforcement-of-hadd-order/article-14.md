@@ -1,0 +1,1 @@
+14. Thinks liable to confiscation: in any case in which an offence has been committed under this Order, the intoxicant, still, utensil, implement or apparatus in respect or by means of which the offence has been committed shall be liable to confiscation along with the receptacles, packages, coverings, animals, vessels, carts or other vehicles used to hold or carry the same.
