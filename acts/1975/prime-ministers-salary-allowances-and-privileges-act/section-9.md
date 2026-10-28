@@ -1,0 +1,1 @@
+9. Payment on account of deferred pay, etc. of officers. Nothing in this Act shall apply to any payment on account of the deferred pay, leave salaries, allowances, cost of passage or increments due to any officer provision for whose pay is made in the Second Schedule, and the amounts of such payment shall be in addition to the maximum amounts specified in that Schedule.

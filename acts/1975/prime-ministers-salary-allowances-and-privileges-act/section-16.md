@@ -1,0 +1,1 @@
+16. Act to have effect subject to instructions etc. This Act shall have effect subject to such instructions, rules, exceptions, further concessions or easements as the Government may from time to time prescribe or grant.

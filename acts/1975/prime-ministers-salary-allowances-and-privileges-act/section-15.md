@@ -1,0 +1,1 @@
+15. Provident Fund. The Prime Minister may, at his option, become a subscriber to the General Provident Fund and, if he so opts, he shall subscribe to the Fund as a compulsory subscriber in accordance with the General Provident Fund (Central Services) Rules.

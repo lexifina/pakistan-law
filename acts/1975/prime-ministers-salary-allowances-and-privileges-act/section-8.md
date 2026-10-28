@@ -1,0 +1,1 @@
+8. Payment of further amounts. There shall be paid from time to time to the Prime Minister such further amounts necessary to enable him to discharge conveniently and with dignity the duties of his office as the Prime Minister may by general or special order authorise, and any such order may be given retrospective effect whenever necessary.
