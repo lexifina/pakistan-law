@@ -1,0 +1,2 @@
+5. Incorporation of the Institute.— (1) The Institute shall be a body corporate, to be called the National Institute of Cardiovascular Diseases, having perpetual succession and a common seal with power, subject to the provisions of this Ordinance, to acquire, hold and dispose of property, both movable and immovable, and shall by the said name sue and be sued.
+(2) The Headquarters of the Institute shall be at Karachi.

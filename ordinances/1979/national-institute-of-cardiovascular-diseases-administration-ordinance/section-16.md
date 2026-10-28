@@ -1,0 +1,1 @@
+16. International cooperation. The Institute may, with the approval of the Federal Government, cooperative with any foreign agency or International Organization for the further development of its technical capabilities and research activities, pursuant to an international agreement or arrangement made before or after the establishment of the Institute.
