@@ -1,0 +1,3 @@
+33. Recovery of fines etc.—(1) The Food Authority shall recover the fine, fee or any other amount, imposed or levied, under this Act or the rules made there under, as an arrears of land revenue and, for the purpose, the officer authorized thereby shall exercise the powers of Collector under the Land Revenue Act, 1967 (Act XVII of 1967).
+(2) The fine imposed or the fee charged under the Act or the rules made there under shall be deposited with the Food Authority and shall form part of the Food Authority Fund.
+(3) The Authority may distribute ten percent of the fine to its officers as will be prescribed in the rules.

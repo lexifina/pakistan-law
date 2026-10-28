@@ -1,0 +1,1 @@
+44. Application of the Code of Criminal Procedure, 1898 (Act V of 1898).—The provisions of the Code of Criminal Procedure, 1898 (Act V of 1898) shall be applicable to the trial of the offences under this Act.

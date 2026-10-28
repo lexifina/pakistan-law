@@ -1,0 +1,1 @@
+14. Unhygienic or un-sanitary place for food.—Any person who manufactures or processes or keeps any article of food for human consumption under un-hygienic or unsanitary conditions, shall be punished with imprisonment for a term which may extend to six months or fine which may extend to half a million rupees or with both.

@@ -1,0 +1,1 @@
+15. Contravention for which no specific penalty is provided.— Whoever, contravenes any provisions of the Act or the rules made there under,for which no specific penalty has been provided, shall be punished with imprisonment for a term which may extend to one year or fine which may extend to half a million rupees or with both.

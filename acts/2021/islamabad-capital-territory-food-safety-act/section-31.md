@@ -1,0 +1,2 @@
+31. Summary trail.—(1) Notwithstanding anything contained in the Code of Criminal Procedure, 1898 (Act V of 1898) but subject to sub-section (2),a Food Tribunal may summarily try an offence punishable under this Act or the rules made thereunder, and impose punishment of imprisonment for a term not exceeding six months, fine or both.
+(2) If a Food Tribunal is of opinion that the nature of the offence does not justify summary trail, it may conduct proceedings in accordance with the provisions of Chapter XX of the Code of Criminal Procedure, 1898 (Act V of 1898).

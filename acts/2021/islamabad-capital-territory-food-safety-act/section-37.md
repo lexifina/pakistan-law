@@ -1,0 +1,1 @@
+37. Powers to make regulations.—The Director Food Authority may subject to the condition of previous publication and by notification in the official Gazette, make regulations not inconsistent with the provisions of this Act or the rules.

@@ -1,0 +1,5 @@
+45. Repeal and savings.—(1) The West Pakistan Pure Food Ordinance1960 (W.P. Ord VII of 1960) is hereby repealed.
+(2) Subject to this Act, any license or order issued under the repealed Ordinance, which is in force on the date of coming into force of the Act, shall be deemed to have been issued under the Act and shall continue to be in force until expired, cancelled or withdrawn.
+(3) The standards, safety requirements and other provisions of the repealed Ordinance or the rules made thereunder, shall, to the extent of consistency with the Act, continue to remain in force till the standards, safety requirements are prescribed under the Act.
+(4) Any license issued or orders passed under any law, which, on the date of commencement of the Act, is in force in the ICT, shall continue to be in force till the date of its expiry or fresh license is issued or any order is passed under this Act.
+(5) The standards, safety requirements and other provisions of the repealed law or any other law for the time being in force, shall continue to be in force till the provisions or this Act and the rules as the case may be come into force in ICT.

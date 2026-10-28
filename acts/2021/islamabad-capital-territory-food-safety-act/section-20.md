@@ -1,0 +1,2 @@
+20. False labelling etc.— (1) Any person who prepares, packages,labels any food which does not comply with the prescribed standards, shall be punished with imprisonment for a term which may extend to three years or fine which may extend to one million rupees or with both.
+(2) Any person who labels any food in a manner that is false, misleading or deceptive with regard to its character, nature, value, substance, quality or composition, shall be punished with imprisonment for a term which may extend to one year or fine which may extend to one million rupees or with both.

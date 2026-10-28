@@ -1,0 +1,1 @@
+24. Forfeiture of food, etc.—In case of conviction under this Act, the Tribunal may direct that any food, apparatus, utensil, equipment, machinery, vehicle or any other thing, be confiscated or destroyed at the cost of the operator.

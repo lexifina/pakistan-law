@@ -1,0 +1,2 @@
+35. Transfer of cases.— (1) A case regarding any matter within the jurisdiction of a Food Tribunal, pending in any court before the establishment of a Food Tribunal under this Act and the rules made there under, shall stand transferred to Food Tribunal which shall have jurisdiction to try the case.
+(2) The District and Sessions Judge may under his jurisdiction transfer a case from one Food Tribunal to another Food Tribunal or direct to constitute a Food Tribunal made there under.

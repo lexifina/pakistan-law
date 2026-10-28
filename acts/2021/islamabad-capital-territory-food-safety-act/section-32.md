@@ -1,0 +1,1 @@
+32. Defence available.—In any proceedings for an offence under this Act, the exercise of due care and caution shall be valid defence if it is proved that the person took all reasonable precautions and exercised due diligence to prevent the commission of the offence.
