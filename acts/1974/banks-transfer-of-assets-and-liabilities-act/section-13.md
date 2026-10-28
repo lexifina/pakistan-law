@@ -1,0 +1,1 @@
+13. Penalties.— Any person who contravenes any of the provisions of this Act or of any rule or order made thereunder or wilfully obstructs any person in carrying out the purposes of this Act shall be punishable with imprisonment for a term which may extend to three years, or with fine, or with both.

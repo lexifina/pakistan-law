@@ -1,0 +1,1 @@
+4. Vesting of specified offices and branches.—On the commencement of this Act, the undertakings of each of the specified offices and branches shall stand transferred to, and vest in, the National Bank of Pakistan.
