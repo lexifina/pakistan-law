@@ -1,0 +1,3 @@
+10. Proof of documents signed by officers of Court. For the purposes of this Act, any document purporting to be signed by a judge or officer of a Court outside [^22][Pakistan] shall, until the contrary is proved, be deemed to have been so signed without proof of the signature of judicial or official character of the person appearing to have signed it, and the officer of a Court by whom a document is signed shall, until the contrary is proved, be deemed to have been the proper officer of the Court to sign the document.
+
+[^22]: Subs by the Central Laws (Statute Reform) Ordinance, 1960 (XXI of 1960), s.3 and 2nd Sch. (with effect from the 14th October, 1955), for “the Provinces and the Capital of the Federation” which had been subs. by A.O. 1949, for “British India”.

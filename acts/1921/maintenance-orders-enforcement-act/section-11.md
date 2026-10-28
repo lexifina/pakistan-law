@@ -1,0 +1,1 @@
+11. Depositions to be evidence. Depositions taken in a Court in any reciprocating territory may, for the purposes of this Act, be received in evidence in proceedings before Courts of summary jurisdiction under this Act.
