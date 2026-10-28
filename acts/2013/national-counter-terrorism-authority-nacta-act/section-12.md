@@ -1,0 +1,1 @@
+12. Appointment of officers, staff etc., in cases of special requirement.____ Subject to the provisions of this Act, the National Coordinator may, in case of urgency, appoint officers staff, experts and consultants on prescribed terms and conditions, provided that every such appointment shall be laid before the Board in the next meeting.
