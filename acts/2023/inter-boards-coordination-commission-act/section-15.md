@@ -1,0 +1,4 @@
+15. Annual audit of accounts.—(1) The accounts of IBCC, shall be audited through the Auditor General of Pakistan in accordance with the applicable prescribed procedure, fir which, all statements of expenditure, relevant registers and records shall he maintained in such form and manners as prescribed or may be prescribed.
+(2) The IBCC shall, at the time of the audit, produce all accounts, registers, documents, and other papers. which may be required by the auditors to assist in the scrutiny of accounts:
+Provided that if the division concerned or BoG certifies that a particular document is secret, the auditor shall accept in lieu of such documents statement in respect thereof, duly certified by the authorized officer of the department:
+Provided further that if such a document is confidential, the auditor shall be responsible for preventing disclosure of its contents.

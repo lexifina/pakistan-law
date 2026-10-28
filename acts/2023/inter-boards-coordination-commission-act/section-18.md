@@ -1,0 +1,1 @@
+18. Power to make regulations.— (1) The IBCC may, by notification in the official Gazette, make regulations not inconsistent with the provisions of this Act and rules made thereunder to carry out purposes in respect of its internal matters under this Act.

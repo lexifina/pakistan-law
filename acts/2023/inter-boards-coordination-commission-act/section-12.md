@@ -1,0 +1,3 @@
+12. Officers and staff of IBCC.— (1) The IBCC shall consist of the executive director, director general, directors, and such other officers and staff as may be needed and prescribed from time to time to run the mandated activities of the MCC.
+(2) The IBCC shall appoint such officers and staff on such terms and conditions and in such manner as may be prescribed.
+(3) The serving officers and staff of Inter Boards Committee of Chairmen, existing as on the day of commencement of this Act, shall stand continued, protected, and regularized under this Act in the Inter-Boards Coordination Commission on their occupying positions.
