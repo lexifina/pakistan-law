@@ -1,0 +1,6 @@
+4. Delegations.—(1) The Federal Government may by order, direct that any power or duty which by or under any of the provisions as continued in force by section 2 is conferred or imposed upon the Federal Government shall, in such circumstances and under such conditions, if any, as may be specified in the direction, be exercised or discharged—
+(a) by any officer or authority subordinate to the Federal Government, or
+(b) by any Provincial Government or by any officer or authority subordinate to such Government, or
+(c) by any other authority.
+(2) A Provincial Government may by order direct that any power or duty which has been directed under sub-section (1) to be exercised or discharged by the Provincial Government shall, in such circumstances and under such conditions, if any, as may be specified in the direction, be exercised or discharged by any officer or authority, not being an officer or authority subordinate to the Federal Government.
+(3) All orders delegating any power or duty conferred or imposed by any of the provisions continued in force by section 2 made by the Federal Government before the commencement of this Ordinance and inforce immediately before such commencement shall continue in force and be deemed to be made by the Federal Government under this section.
