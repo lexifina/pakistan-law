@@ -1,0 +1,1 @@
+14. Establishments to furnish information. Every Establishment shall furnish to such person or authority such information required for the implementation of the provisions of this Ordinance in such form and in such manner as the National Council may, by notification in the official Gazette, specify.

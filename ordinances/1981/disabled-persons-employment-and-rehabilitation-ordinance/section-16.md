@@ -1,0 +1,2 @@
+16. Appeal.— (1) Any person aggrieved by an order under section 15 may prefer an appeal to the National Council within thirty days of the date of the order.
+(2) The National Council may call for the record of the case and may, after giving the parties an opportunity of being heard or after making such further enquiry as it thinks fit, stay or suspend the operation of the order or may pass such order as it thinks fit.

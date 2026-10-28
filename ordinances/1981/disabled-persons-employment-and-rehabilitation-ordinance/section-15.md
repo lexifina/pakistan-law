@@ -1,0 +1,2 @@
+15. Power to debar further employment.— (1) The Provincial Council may debar from further employment or training for such period as may be specified by it any disabled person who, without valid reason, refuses to accept or abandons his employment or training under this Ordinance of otherwise acts in a manner detrimental to the interests of the trade or profession in which he is employed or undergoing training.
+(2) No disabled person shall be debarred under sub-section (1) unless he has been given an opportunity of being heard.

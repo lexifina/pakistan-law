@@ -1,0 +1,1 @@
+13. Establishment of training centers. The Provincial Council shall arrange for the training of disabled persons in such trades or vocations as it thinks fit, and shall establish training centres in such trades or vocations and in such manner as may be prescribed by the Provincial Government.

@@ -1,0 +1,1 @@
+18. Power to exempt. The Federal Government may, by notification in the official Gazette, exempt any establishment or class of establishments from the operation of all or any of the provisions of this Ordinance.
