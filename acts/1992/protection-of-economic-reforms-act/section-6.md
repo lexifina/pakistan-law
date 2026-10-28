@@ -1,0 +1,1 @@
+6. Protection of fiscal incentives for setting-up of industries. The fiscal incentives for investment provided by the Government through the statutory orders listed in the Schedule or otherwise notified shall continue in force for the term specified therein and shall not be altered to the disadvantage of the investors.

@@ -1,0 +1,1 @@
+3. Act to Override other laws. The provisions of this Act shall have effect notwithstanding anything contained in the Foreign Exchange Regulation Act, 1947 (VII of 1947), the Customs Act, 1969 (IV of 1969), the Income Tax Ordinance, 1979 (XXXI of 1979), or any other law for the time being in force.

@@ -1,0 +1,1 @@
+7. Protection of transfer of ownership to private sector. The ownership, management and control of any banking, commercial, manufacturing or other company, establishment or enterprise transferred by the Government to any person under any law shall not again be compulsorily acquired or taken over by the Government for any reason whatsoever.
