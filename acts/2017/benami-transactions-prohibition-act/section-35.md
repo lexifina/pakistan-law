@@ -1,0 +1,2 @@
+35. Resignation and removal.(1) The Chairperson or any Member may. by notice in writing under his hand addressed to the Federal Government, resign his office:
+Provided that the Chairperson or any Member shall, unless he is permitted by the Federal Government to relinquish his office sooner, continue to hold office until the expiry of three months from the date of receipt of the notice or until a person duly appointed as his successor enters upon his office or until the expiry of his term of office, whichever is earlier.

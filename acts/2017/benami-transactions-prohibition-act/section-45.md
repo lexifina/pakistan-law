@@ -1,0 +1,2 @@
+45. Rectification of mistakes. ⸺(1) The Adjudicating Authority or the Tribunal may by order in writing amend any order passed by it to rectify any mistake apparent from record on its own motion or any mistake brought to its notice, within a period of one year from the end of the financial year in which the order was passed.
+(2) No amendment shall be made under sub-section (I), if the amendment is likely to affect any person prejudicially, unless he has been given notice of intention to do so and has been given an opportunity of being heard.

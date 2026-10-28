@@ -1,0 +1,1 @@
+23. Manner of service of notice. ⸺ (1) A notice issued under this Act may be served in the manner” as provided under section 218 of the Income Tax Ordinance, 200 l(XLIX of2001) and all provisions ofthat section shall apply.

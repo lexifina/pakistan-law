@@ -1,0 +1,1 @@
+50. Appeal and revision. The High Court may exercise, so far as may be applicable, all the powers conferred on a High Court, as if a Special Court within the local limits of the jurisdiction of the High Court were a Court of Sessions trying cases within the local limits of the jurisdiction of the High Court.

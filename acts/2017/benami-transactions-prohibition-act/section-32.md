@@ -1,0 +1,1 @@
+32. Terms of office of Chairperson and Members.The Chairperson and Members of the Tribunal shall hold office for a term not exceeding three years from the date on which they enter upon their office, or until they attain the age of sixty-five years, whichever is earlier and shall not be eligible for re-appointment.

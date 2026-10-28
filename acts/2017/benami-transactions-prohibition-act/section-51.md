@@ -1,0 +1,4 @@
+## CHAPTER VIII
+## OFFENCES AND PROSECUTION
+51. Penalty for Benami transaction. ⸺ (1) Where any person enters into a Benami transaction or holds Benami property in order to defeat the provisions any law or to avoid payment of statutory dues or to avoid payment to creditors. the beneficial owner, Benamidar and any other person who abets or induces any person to enter into the Benami transaction, shall be guilty of an offence of Benami transaction.
+(2) Whoever is found guilty of the offence of Benami transaction or holding Benami property referred to in sub-section (1) shall be punishable with rigorous imprisonment for a term which shall not be less than one year, but which may extend to seven years and shall also be liable to fine which may extend to twenty-five percent of the fair market value of the property.
