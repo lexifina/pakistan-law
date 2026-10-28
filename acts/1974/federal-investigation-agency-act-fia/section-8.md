@@ -1,0 +1,1 @@
+8. Indemnity.— No suit, prosecution or other legal proceeding shall lie against the Federal Government, any member of the Agency or any other person exercising any power or performing any function under this Act or the rules for anything which is in good faith done or intended to be done under this Act or the rules.
