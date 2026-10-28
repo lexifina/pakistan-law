@@ -1,0 +1,1 @@
+5. Delegation of powers, etc. The Commission may authorise its Chairman or any of its members or any of the officers of the Commission to exercise and perform all or any of its powers and functions under this Act.

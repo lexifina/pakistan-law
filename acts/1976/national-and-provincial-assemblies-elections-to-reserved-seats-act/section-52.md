@@ -1,0 +1,1 @@
+52. Directions of Commission in certain matters. Anything required to be done for carrying out the purpose of this Act for which no provision or no sufficient provision exists shall be done by such authority and in such manner as the Commission may direct.

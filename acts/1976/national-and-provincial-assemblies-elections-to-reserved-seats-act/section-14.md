@@ -1,0 +1,1 @@
+14. Parties to the petition. The petitioner shall join all the candidates as respondents to his election petition and shall serve personally or by registered post on each such respondent a copy of his petition.

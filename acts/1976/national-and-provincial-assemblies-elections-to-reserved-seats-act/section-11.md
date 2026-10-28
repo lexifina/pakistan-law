@@ -1,0 +1,2 @@
+11. Inspection of returns, etc.—(1) The return and documents submitted under section 10 shall be kept by the Commissioner in his office or at such other convenient place as he may think fit and shall, during one year from the date of their receipt by him, be open to inspection by any person on payment of the prescribed fee.
+(2) The Commissioner shall, on an application made in this behalf and payment of the prescribed fee, give any person copies of any return or document kept under sub­section (1) or of any part thereof.

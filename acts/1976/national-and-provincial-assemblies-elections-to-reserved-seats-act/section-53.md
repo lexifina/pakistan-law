@@ -1,0 +1,1 @@
+53. Jurisdiction of courts barred. No court shall question the legality of any action taken in good faith by or under the authority of the Commission or the Commissioner, or any decision given by the Commission or the Commissioner.

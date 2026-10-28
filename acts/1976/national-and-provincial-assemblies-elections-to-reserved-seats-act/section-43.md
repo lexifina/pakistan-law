@@ -1,0 +1,1 @@
+43. Assistance by Government servant. A person in the service of Pakistan is guilty of an offence punishable with imprisonment for a term which may extend to two years, or with fine which may extend to two thousand rupees, or with both, if he misuses his official position in a manner calculated to influence the result of the election.

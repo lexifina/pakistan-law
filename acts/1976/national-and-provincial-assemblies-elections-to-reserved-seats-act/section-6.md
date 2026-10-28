@@ -1,0 +1,2 @@
+6. Assistance to the Commission.—(1) All executive authorities in the Federation and in the Provinces shall render such assistance to the Commissioner and the Commission in the discharge of his or their functions as may be required of them by the Commissioner or the Commission.
+(2) The Commissioner or the Commission may require any person or authority to perform such functions or render such assistance for the purpose of this Act as he or it may direct.

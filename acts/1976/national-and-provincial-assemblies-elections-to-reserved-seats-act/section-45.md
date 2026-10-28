@@ -1,0 +1,1 @@
+45. Court proceedings relating to election expenses. The Commission shall direct an officer subordinate to it to launch proceedings in the appropriate court against persons who contravene the provisions of section 9 or fail to comply with the provisions of section 10.
