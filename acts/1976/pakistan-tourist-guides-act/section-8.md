@@ -1,0 +1,3 @@
+8. Service charges of tourist guides.—(1) The Federal Government shall, from time to time by notification in the official Gazette, fix the maximum rates of charges to which a tourist guide shall be entitled for the services rendered by him.
+(2) A tourist guide shall not demand from any person to whom he has rendered any service as such any amount in excess of the maximum charges fixed under sub-section (1) for that service.
+(3) The guides employed on a fixed salary on a wholetime basis by any travel agency licensed under a law for the regulation and control of the profession of travel and tourist agencies shall not charge any fee from a tourist.
