@@ -1,0 +1,51 @@
+{
+  "corpus": "pk/national/acts",
+  "name": "Pakistan Code (consolidated federal laws)",
+  "label": "Pakistan",
+  "language": "en",
+  "history": "current-only",
+  "laws": {
+    "constitution": 1,
+    "acts": 649,
+    "ordinances": 284,
+    "orders": 9,
+    "regulations": 0
+  },
+  "history_from": "2026-10-28",
+  "record_to": "2026-10-28",
+  "record_note": "The Pakistan Code publishes only the current consolidated PDF of each federal law, so each law has one version here: the text as retrieved on 2026-10-28. There is no line-by-line history before that day. The amendment footnotes are kept as text and in data/amendments.csv. The site says its laws are under review and for information only; the Gazette of Pakistan is authoritative.",
+  "built": "2026-10-28",
+  "baseline_trailer": "Consolidated",
+  "in_force_trailer": "In-force",
+  "dates": {
+    "commit": "the day the PDFs were retrieved",
+    "baseline_trailer": "Consolidated",
+    "other_trailers": [
+      "Promulgated",
+      "Updated-till"
+    ],
+    "time": "12:00 Pakistan time (UTC+5; UTC+6 in the daylight-saving periods of 2002, 2008 and 2009)"
+  },
+  "author": {
+    "consolidated": "Pakistan Code (Ministry of Law and Justice)",
+    "amendment": "none yet",
+    "unexplained": "Pakistan Code (Ministry of Law and Justice)"
+  },
+  "citation": {
+    "file": "((?:acts|ordinances|orders|regulations|constitution)/[0-9]{4}/[a-z0-9-]+)/(?:section|article)-([0-9]+[A-Z]*)\\.md",
+    "cites": "([Ss]ection|[Aa]rticle|[Ss]\\.|[Aa]rt\\.) ?{n}([^0-9A-Za-z]|$)"
+  },
+  "scope": {
+    "trailer": "Applies",
+    "groups": "any one line",
+    "conditions": "all of a line",
+    "when_absent": "not extracted for Pakistan; savings and transitional rules are in the amending laws",
+    "default_reach": {
+      "rule": "presumption against retroactivity",
+      "meaning": "a repeal does not affect anything done, rights acquired or proceedings pending under the repealed law unless a different intention appears",
+      "authority": "General Clauses Act, 1897, section 6 (effect of repeal)",
+      "decided_here": false
+    }
+  },
+  "tool": "tools/in_force_on.py"
+}
