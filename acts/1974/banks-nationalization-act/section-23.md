@@ -1,0 +1,2 @@
+23. Removal of difficulties. If any difficulty arises in giving effect to any provision of this Act the Federal Government may make such order not inconsistent with the provisions of this Act as may appear to it to be necessary for the purpose of removing the difficulty.
+24. [Repeal of Ordinance I of 1974.] Omitted by the Federal Laws (Revision and Declaration) Ordinance, 1981 (XXVII of 1981), s. 3 and Sch., II.

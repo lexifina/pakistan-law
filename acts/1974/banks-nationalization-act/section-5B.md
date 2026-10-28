@@ -1,0 +1,1 @@
+5B. Section 5A to have effect notwithstanding any other law, etc. The provisions of section 5A shall have effect notwithstanding anything contained in this Act or any other law for the time being in force, any agreement of contract, or any judgment of any Court.]

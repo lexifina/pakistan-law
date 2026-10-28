@@ -1,0 +1,5 @@
+[^12][6A. Registration of certain shares.—(1) Any person who holds any share of a bank the ownership, management and control of which stands transferred to the Federal Government by virtue of section 5 which was bought by him on a recognised Stock Exchange in Pakistan before the first day of January, 1974, but was not registered in his name in the books of the company by that day may make an application for registration to such bank.
+(2) An application under sub-section (1) shall be made within such time and in such manner, and shall be accompanied by such documentary evidence, as may be prescribed.
+(3) The bank to which an application is made may on being satisfied after such scrutiny or verification by such authority as may be prescribed, that the applicant is the holder of the share, register him as such; and a person so registered shall be entitled to receive the compensation provided for in sub-section (1) of section 6.]
+
+[^12]: Ins. by the Banks (Nationalization) (Amdt.) Ordinance, 1978 (17 of 1978), s. 2.

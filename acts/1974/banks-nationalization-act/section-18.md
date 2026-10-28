@@ -1,0 +1,3 @@
+[^26][18. Indemnity. No suit, prosecution, or other legal proceedings shall lie against the Federal Government, the State Bank, the President or directors of the Board, of a bank or any officer of the Federal Government or the State Bank or a bank for anything in good faith done or purporting to be done under this Act or any rule or order made or direction issued thereunder or for any damage caused or likely to be caused by anything done or purporting to be done as aforesaid.]
+
+[^26]: Subs. by the Banks (Nationalization) (Amdt.) Act, 1997 (18 of 1997), s. 11, for section 18, which was previously subs, by Act 15 of 1991 s. 7.
