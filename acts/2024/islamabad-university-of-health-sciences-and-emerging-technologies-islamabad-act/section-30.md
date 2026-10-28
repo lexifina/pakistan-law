@@ -1,0 +1,1 @@
+30. Appointment of committees by certain Authorities.―The Board of Governors, the Academic Council and other Authorities may, from time to time, appoint such standing, special or advisory committees, as they may deem fit, and may nominate such persons on these committees who are not members of the Authorities.

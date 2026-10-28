@@ -1,0 +1,1 @@
+29. Constitution, functions, and powers of other Authorities.―The constitution, functions,, and powers of the Authorities for which no specific provision has been made in this Act shall be such as may be prescribed by the Statutes, Rules and Regulations made thereunder.

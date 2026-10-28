@@ -1,0 +1,1 @@
+5. Jurisdiction.―The principal seat of the University shall be at Islamabad and it may set up any number of campuses, colleges, and institutes at such places in Pakistan and abroad as may determine by the Board of Governors subject to prior approval of the Higher Education Commission (HEC).

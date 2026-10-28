@@ -1,0 +1,3 @@
+39. Removal of difficulties.―(1) If any question arises as to interpretation of provision of this act, it shall be placed before the Chancellor whose decision thereon shall be the final.
+(2) If any difficulty arises in giving effect to the provisions of this Act, the Chancellor shall make such order, not inconsistent with the provisions of this Act, as may appear to him to be necessary for removing this difficulty.
+(3) Where this Act makes any provision for anything to be done but no provision or no sufficient provision has been made as respects the authority of whom, or the time at which, or the manner in which, it shall be done, then it shall be done by such authority, at such time, or in such manner as the Chancellor may direct.

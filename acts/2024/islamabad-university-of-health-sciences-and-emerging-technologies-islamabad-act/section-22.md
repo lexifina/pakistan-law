@@ -1,0 +1,11 @@
+22. Director office of research, innovation and commercialization.―(1) There shall be a Director of the University to be appointed by the Board of Governors on the recommendations of Selection Board on such terms and conditions as may be prescribed.
+(2) The minimum experience as well as the professional and academic qualifications necessary for the appointment to the post of Director shall be as may be prescribed.
+(3) The Director shall―
+(i) manage and enhance the research activities of the University, develop research ‘policies and priorities, work for fund raising for research, mobilize faculty business community and industry for research commercialization and serve as an effective advocate for research with the university and to its broader community of stakeholders and supporters;
+(ii) supervise all aspects of the operation of the Office for Research including research administration budgeting, auditing, accounting, human resources, management and maintenance of facilities and equipment, implementation of research contracts and human resources;
+(iii) develop programs and activities that will increase funding for research from all public and private sources, establish and maintain excellent relationships with donors and private sources, oversee proposals development and submission;
+(iv) promote the development of public-private partnerships in support of Institute research, link the Institute’s research community with the needs and priorities of the corporate sector, develop opportunities for applied research and explore opportunities for technology transfer and commercialization of Institute research including incubators and research parks;
+(v) responsible to monetize royalty streams from licenses;
+(vi) collaborate with the principal liaison for technical marking and licensing on the commercialization of the University’s IP in coordination with other relevant department and offices; and
+(vii) Director shall work in close liaison with the office of research and development, planning and development, and University’s technology park.
+(4) The Board of Governors may on the recommendations or advice of Vice-Chancellor, terminate the services of Director (ORIC) on grounds of inefficiency or misconduct in accordance with the prescribed procedure.
