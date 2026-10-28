@@ -1,0 +1,8 @@
+27. Amendment and repeal of Statues and Regulations. —The procedure for adding to,amending or repealing the Statutes and the Regulations shall be the same as that prescribed respectively for making Statutes and Regulations.
+28. Rules. —(1) The Authorities and the other bodies of the University may make Rules, to be published in official Gazette, consistent with this Act, Statutes or the Regulations, to regulate any matter relating to the affairs of the University which has not been provided for by this Act, or that is not required to be regulated by Statutes or Regulation, including rules to regulate the conduct of business and the time and place of meeting and related matters.
+(2) Rules shall become effective upon approval by the Syndicate.
+CHAPTER_VI
+UNIVERSITY FUND
+29. University fund. —(1) The University shall have a fund to which shall be credited all direct donations, trusts, bequests, endowments, grants, proportionate grant from the Federal Government, Joint Staff Headquarters, Ministry of Defence, Higher Education Commission, Ministry of Education, assistance from international agencies, contributions, shares of fee and income from any other source.
+(2) The present recurring and non-recurring grants being allocated by the Ministry of Defence to the National Defence College immediately in existence before the commencement of this Act, shall continue to be allocated in future to the National Defence University, with suitable upward adjustments from time to time.
+(3) All expenditure of the University shall be met within the sanctioned budget of the University or as approved by the Syndicate.
