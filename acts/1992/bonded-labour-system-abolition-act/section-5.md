@@ -1,0 +1,1 @@
+5. Agreement, custom, etc., to be void. Any custom or tradition or practice or any contract, agreement or other instrument, whether entered into or executed before or after the commencement of this Act, by virtue of which any person, or any member of his family, is required to do any work or render any service as a bonded labourer, shall be void and inoperative.

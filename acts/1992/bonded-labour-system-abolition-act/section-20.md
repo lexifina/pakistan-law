@@ -1,0 +1,1 @@
+20. Jurisdiction of courts barred. Save as otherwise provided in this Act no court shall have jurisdiction in respect of any matter to which any provision of this Act applies and no injunction shall be granted by any court in respect of anything which is done or intended to be done under this Act.
