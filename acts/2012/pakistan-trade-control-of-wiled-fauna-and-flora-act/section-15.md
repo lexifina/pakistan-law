@@ -1,0 +1,1 @@
+15. Management Authority.—For purposes of this Act, the Federal Government shall, by notification in the official Gazette, designate one or more Management Authorities, with which at least one representative each from all the Provincial Government and Government of Gilgit Baltistan, shall be associated.

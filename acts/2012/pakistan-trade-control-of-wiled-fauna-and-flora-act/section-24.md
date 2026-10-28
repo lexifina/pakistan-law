@@ -1,0 +1,1 @@
+24. Power to delegate.—The Federal Government may by notification in the official Gazette delegate, subject to such conditions as may be specified in the notification, any of its or of a Federal agency's powers and functions under this Act and the rules made there under to any Provincial Government.

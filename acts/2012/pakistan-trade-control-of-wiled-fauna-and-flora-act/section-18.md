@@ -1,0 +1,1 @@
+18. Confiscation or return of specimens unlawfully traded.—The specimens included in the Appendices traded in violation of the laws of the State of export and this Act shall be liable to confiscation by the Federal Government and thereafter, if so desired, return to the State of export.

@@ -1,0 +1,1 @@
+17. Entry and release of wild exotic fauna and flora.—The Federal Government may, by notification in the official Gazette, make rules to regulate entry into and release of exotic fauna and flora in Pakistan.

@@ -1,0 +1,1 @@
+16. Scientific authorities.—The Federal Government, on the recommendation of the Management Authority, shall designate one or more scientific authorities, as deemed appropriate from time to time or on case to case basis, to render advice on plants and animals. The final decision on all matters related to the Convention shall rest with the Management Authority.
