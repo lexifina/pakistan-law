@@ -1,0 +1,1 @@
+76. Offences to be non-cognisable.— Notwithstanding anything contained in the Code of Criminal Procedure, 1898 (Act V of 1898) no police officer shall be competent to arrest without warrant an employer or a worker for an offence under this Act.

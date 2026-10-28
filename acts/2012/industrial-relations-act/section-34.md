@@ -1,0 +1,3 @@
+34. Raising of industrial disputes.— (1) No industrial dispute shall be deemed to exist unless it has been raised in the prescribed manner by a collective bargaining agent or an employer;
+(2) Notwithstanding anything contained in this Act, a federation of trade unions or federation may, if it is a collective bargaining agent, raise an industrial dispute affecting all employers or workers of the establishments represented by that federation and a decision of the Commission shall be binding on all such employers and workers.
+(3) No collective bargaining agent shall, at any time when a decision of the Commission in respect of any matter is effective, be entitled to raise a demand relating to that matter.

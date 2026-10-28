@@ -1,0 +1,2 @@
+90. Removal of difficulties.— If any difficulty arises in giving effect to any provisions of this Act, the Government may, by notification in the official Gazette, make such order, not inconsistent with the provisions, of this Act, as may appear to it to be necessary for the purpose of removing the difficulty:
+Provided that no such power shall be exercised after the expiry of six months from the coming into force of this Act.

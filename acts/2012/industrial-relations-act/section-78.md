@@ -1,0 +1,1 @@
+78. Trial of offences.— Save as provided in this Act, no Court other than a Labour Court or that of a Magistrate of the first class, as the case may be, shall try any offence punishable under this Act.

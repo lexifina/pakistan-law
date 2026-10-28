@@ -1,0 +1,10 @@
+58. Appeals.— (1) Notwithstanding anything contained in this Act, or in any other law for the time being in force, any person aggrieved by an award or decision given or a sentence or order determining and certifying a collective bargaining unit passed by any Bench of the Commission, may, within thirty days of such award, decision, sentence or order prefer an appeal to the Commission.
+(2) An appeal preferred to the Commission under sub-section (1) shall be disposed of by the Full Bench of the Commission which shall—
+(a) if the appeal is from an order determining and certifying a collective bargaining unit, have the power to confirm, set aside, vary or modify such an order.
+(b) if the appeal relates to any other matter, the Full Bench may, confirm, set aside, vary or modify the decision or sentence passed and shall exercise all the powers required for the disposal of an appeal.
+(c) The decision of the Full Bench shall be delivered as expeditiously as possible, within a period of sixty days following the filing of the appeal, provided that such decision shall not be rendered invalid by reasons of any delay in its delivery.
+(d) The Full Bench may, on its own motion at any time, call for the record of any case or proceedings under this Act in which a Bench within its jurisdiction has passed an order for the purpose of satisfying itself as to the correctness, legality, or propriety of such order, and may pass such order in relation thereto as it thinks fit:
+Provided that no order under this sub-section shall be passed revising or modifying any order adversely affecting any person without giving such person a reasonable opportunity of being heard.
+(3) In an appeal preferred to it against the order of a Bench directing the re-instatement of a workman, the Full Bench may make an order staying the operation of the order of the Bench.
+(4) The Full Bench shall decide such appeal within twenty days of its being preferred:
+Provided that, if such appeal is not decided within the period aforesaid, the stay order of the Full Bench shall stand vacated on the expiration of that period.

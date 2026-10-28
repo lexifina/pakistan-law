@@ -1,0 +1,3 @@
+89. Former registration offices, officers, etc., to continue.— (1) The offices existing at the commencement of this Act for registration of trade unions shall be continued as if they had been established under this Act.
+(2) Any person appointed to any office under, or by virtue of the provisions of the repealed Act shall be deemed to have been appointed to that office under or by virtue of this Act.
+(3) Any books of accounts, book, paper, register or document kept under the provisions of the repealed Act relating to companies shall be deemed to be part of the books of accounts, book, paper, register or document to be kept under this Act.

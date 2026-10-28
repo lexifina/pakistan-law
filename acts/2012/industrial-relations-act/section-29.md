@@ -1,0 +1,1 @@
+29. Inspector.— The inspectors appointed under Section 10 of the Factories Act, 1934 (XXV of 1934), and such other persons, not being Conciliators appointed under this Act, as the Government may, by notification in the official Gazette appoint, shall be inspectors for ensuring compliance with the provisions of this Act within the local limits assigned to each.

@@ -1,0 +1,1 @@
+46. Prohibition of serving notice of strike or lock-out while proceedings pending.— No notice of strike or lock-out shall be served by any party to an industrial dispute during the pendency of any conciliation proceedings or proceedings before an Arbitrator or Commission in respect of any matter constituting such industrial dispute.

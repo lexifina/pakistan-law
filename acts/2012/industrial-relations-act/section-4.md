@@ -1,0 +1,1 @@
+4. Registrar of trade unions.— For the purpose of this Act, the Government shall, by notification in the official Gazette, appoint the Registrar of Trade Unions who shall be assisted by one or more Joint Registrars.

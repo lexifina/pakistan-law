@@ -1,0 +1,1 @@
+12. Appeal against the order/decisions etc. of Registrar.— A trade union, its members or an officer may prefer an appeal against the order, decision and proceeding conducted by the Registrar within thirty days before the Commission

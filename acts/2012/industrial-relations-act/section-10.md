@@ -1,0 +1,1 @@
+10. Certificate of registration.— The Registrar, on registering a trade union under Section 9, shall issue a certificate of registration in the prescribed form which shall be conclusive evidence that the trade union has been duly registered under this Act.
