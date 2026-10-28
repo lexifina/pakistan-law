@@ -1,0 +1,2 @@
+3. Provision of paramedical staff.___ (1) The Federal Government shall ensure the provision of trained paramedical staff at all educational institutions to provide immediate medical assistance and first aid in every educational institution whenever the need arises.
+(2) All private educational institutions shall also ensure the provision of paramedical staff at their premises so that the students in need of medical aid may be assisted immediately.

@@ -1,0 +1,1 @@
+4. Punishment for non-compliance.___ Whosoever does not comply to the provisions of this Act, shall be given one warning in writing and in case of further non-compliance shall be punished with fine which may extend to one hundred thousand rupees and in case of further noncompliance shall be punished with imprisonment for six months.
