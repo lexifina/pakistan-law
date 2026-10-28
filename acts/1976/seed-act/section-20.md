@@ -1,0 +1,12 @@
+20. Power of Seed Inspectors.―(1) A Seed Inspector may, within the area for which he is appointed, inspect and take samples of any seed in labeled containers purporting to contain seed of a notified variety or species of seed from any person producing, selling, delivering, stocking or distributing seed and send such samples for analysis to the nearest laboratory of the Federal Seed Certification [^17][and Registration Department].
+(2) The Seed Inspector may—
+(a) enter and search at all times, with such assistance [^17][of law enforcement agency or district administration] as he may consider necessary, any place in which he has reason to believe that an offence under this Act has been or is being committed and order in writing the person in possession of any seed in respect of which the offence has been or is being committed not to dispose of any stock of such seed for a specified period not exceeding thirty days or, unless the alleged offence is such that the defect may be removed by the possessors of seed, seize the stock of such seed;
+(b) examine any record, register, document or other material, object found in any place mentioned in clause (a) and seize the same, if he has reason to believe that it may furnish evidence of the commission of any offence punishable under this Act; and
+(c) exercise such powers as may be necessary for carrying out the purposes of this Act or any rule.
+(3) [^17][* * * * * * *]
+(4) The power conferred by this section includes power to break open any labeled container in which any seed of any notified variety or species may be kept and to break upon the door of any premises where any such seed may be kept for sale:
+Provided that the power to break open the door shall be exercised only after the owner or any other person in occupation of the premise, if he is present therein, refuses to open the door on being called upon to do so.
+(5) Where the Seed Inspector takes any action under sub-section (1), he shall, as far as possible, call not less than two persons of the locality to be present at the time when such action is taken and take their signature on a memorandum to be prepared in the prescribed form and manner.
+(6) The provisions of the Code of Criminal Procedure, 1898 (Act V of 1898) shall, so far as may be, apply to any search or seizure made under this section as they apply to any search or seizure madeunder the authority of a warrant issued under section 98 of the said Code.
+
+[^17]: Subs., ins and omitted by Act No. VII of 2015, ss. 8-9.

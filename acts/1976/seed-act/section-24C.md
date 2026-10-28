@@ -1,0 +1,6 @@
+24C. Powers and functions of the Tribunals.—(1) The primary responsibility of the Tribunals shall be to hear and decide the appeals against orders passed by the Authority, in accordance with law.
+(2) The Tribunal shall have all powers of, inter-alia, discovery, inspection, summoning, examination, and re-examination of witnesses, as well as power to issue warrants of arrest and impose such penalties as may be prescribed.
+(3) Any person aggrieved of an order passed by the Authority, under section 24A or otherwise, within thirty days of the communication of the said order, may file an appeal before the Tribunal, in such manner and on payment of such fee, as may be prescribed.
+(4) The Tribunal may, on appeal, after giving a reasonable opportunity of hearing to all parties concerned, confirm, set-aside, vary or modify the order appealed against:
+Provided that the Tribunal shall decide such appeals, as expeditiously as possible, but not later than ninety days from the first date of hearing.
+(5) An appeal to the Supreme Court of Pakistan shall only lie against an order or judgement of the Tribunal, if the Supreme Court grants leave to appeal, after being satisfied that the case involves a substantial question of law of public importance.]

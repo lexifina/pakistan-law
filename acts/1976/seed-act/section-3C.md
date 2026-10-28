@@ -1,0 +1,2 @@
+3C. Constitution of committees, bodies, etc.—The Authority may, from time to time, constitute such committees, facilities and bodies, and coopt such experts and consultants, as may be deemed appropriate, to carry out works and functions envisioned under this Act:
+Provided that all committees, facilities and bodies, constituted by the Authority, or as the case may be, established under this Act, except the Board, shall work under the supervision and control of the Authority, in accordance with this Act.

@@ -1,0 +1,1 @@
+9. Establishment of Provincial Seed Council.―As soon as may be after the commencement of this Act, each Provincial Government shall establish a Provincial Seed Council for the performance of such functions for the purposes of this Act as may be entrusted to it by the Federal Government, in consultation with the Provincial Government.
