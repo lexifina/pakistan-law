@@ -1,0 +1,1 @@
+103. Right of the Government to sell or use forfeited articles. Nothing in this Ordinance shall affect the power of the Government or of any person deriving title directly or indirectly from the Government to sell or use any articles forfeited under any law for the time being in force.

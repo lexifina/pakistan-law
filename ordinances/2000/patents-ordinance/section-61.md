@@ -1,0 +1,18 @@
+61. Reliefs in suits for infringement.—[^54][(1) In any suit for infringement the Court shall have the power,—
+(a) to grant relief by way of damages, injunctions or accounts provided that, where permitted, effective provisional measure may also be ordered by the Court;
+(b) to order, if the subject matter of a patent is a process for obtaining a product, the defendant to prove that the process to obtain an identical product is different from the patented process and that the identical product in question shall, in the absence of proof to the contrary, be deemed to have been obtained by the patented process provided that the product obtained by patented process is new if it has not been put into the market for more than one year before the date of the initiation of the judicial action by the patentee:
+Provided that this provision shall apply subject to the prior proof by the plaintiff that the allegedly infringing product is identical to the product directly produced by the patented process:
+Provided further that in the adduction of proof to the contrary, the legitimate interests of defendants in protecting their manufacturing and business secrets shall be taken into account.]
+(2) In any suit for infringement-
+_________________________________________________________________________________
+(a) the Court shall have the authority to order prompt and effective provisional measures—
+(i) to prevent an infringement, and in particular, to prevent the entry into the channels of commerce of goods, including imported goods after custom clearance, and
+(ii) to preserve relevant evidence in regard to the alleged infringement;
+(b) the Court shall have the authority to order provisional measures, inaudita altera parte where appropriate, in particular, where any delay is likely to cause irreparable harm to the right holder, or where there is a demonstrable risk of evidence being destroyed;
+(c) the Court shall have the authority to require the applicant to provide any reasonably available evidence to satisfy it with a sufficient degree of certainty that the applicant is the right holder and that the applicant’s right is being infringed or that such infringement is imminent, and to order the applicant to provide a security or equivalent assurance sufficient to protect the defendant and to prevent abuse;
+(d) where provisional measures have been adopted inaudita altera parte, the parties affected shall be given notice, without delay after the execution of the measures at the latest, and a review, including a right to be heard, shall take place upon request of the defendant with a view to deciding within a reasonable period after the notice of the measures, whether these measures shall be modified, revoked or confirmed;
+(e) the Court may require the applicant to supply other information necessary for identification of the goods concerned;
+(f) without prejudice to the provisions of clause (d), provisional measures taken on the basis of clauses (a) and (b) shall upon the request of the defendant, be revoked or otherwise cease to have affect if proceedings leading to a decision on the merit of the case are not initiated within a reasonable period not to exceed twenty working days or thirty-one calendar days, and
+(g) where the provisional measures are revoked or where they lapse due to any act or omission by the applicant, or where it is subsequently found that there has been no infringement or threat of infringement, the Court shall have the authority to order the applicant, upon request of the defendant, to provide the defendant appropriate compensation for an injury caused by these measures.
+
+[^54]: Subs. by the Patents (Amdt.) Ordinance, 2002 (95 of 2002), s. 15, for sub section (1).

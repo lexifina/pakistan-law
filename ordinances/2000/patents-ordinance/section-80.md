@@ -1,0 +1,1 @@
+80. Registration as patent agent. The Controller may, on an application made in the prescribed manner, register as a patent agent any person who is a citizen of Pakistan, has completed the age of twenty-one years, possesses the prescribed qualifications and has paid the prescribed fee.

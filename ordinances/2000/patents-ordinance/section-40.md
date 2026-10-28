@@ -1,0 +1,5 @@
+40. Term of patents of addition.—(1) A patent of addition shall be granted for a term equal to that of the patent for the main invention, or so much thereof as is unexpired, and shall remain in force during that term or until the previous cesser of the patent for the main invention and no longer:
+Provided that:
+(a) if the term of the patent for the main invention is extended under the foregoing provisions of this Ordinance, the term of the patent of addition may also be extended accordingly; and
+(b) if the patent for the main invention is revoked under this Ordinance, the court or, as the case may be, Controller may order that the patent of addition shall become an independent patent for the remainder of the term of the patent for the main invention, and thereupon the patent shall continue in force as an independent patent accordingly.
+(2) No renewal fees shall be payable in respect of a patent of addition, but, if any such patent becomes an independent patent by virtue of an order under sub-section (1), the same fees shall thereafter be payable, upon the same dates, as if the patent had been originally granted as an independent patent.

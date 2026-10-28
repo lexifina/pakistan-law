@@ -1,0 +1,4 @@
+83. Removal from register of patent agents and restoration.—(1) The Federal Government may remove the name of any person from the register of patent agents when it is satisfied, after giving that person a reasonable opportunity of being heard and after such further inquiry, if any, as it thinks fit to make—
+(i) that his name has been entered in the register of patent agents by error or on account of misrepresentation or suppression of material facts; or
+(ii) that he has been convicted of any offence and sentenced to a term of imprisonment or has been guilty of misconduct in his professional capacity which in the opinion of the Federal Government renders him unfit to be kept in the register of patent agents.
+(2) The Federal Government may, on application and on sufficient cause being shown restore to the register of patent agents the name of any person removed therefrom.
