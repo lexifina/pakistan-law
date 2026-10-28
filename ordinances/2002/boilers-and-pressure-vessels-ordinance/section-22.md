@@ -1,0 +1,3 @@
+22. Penalties for tempering with registration number, etc.___ (1) Whoever removes alters, defaces, renders invisible or otherwise tampers with the register number marked on a boiler in accordance with this ordinance or any law repealed hereby, shall be punishable with fine which may extend to twenty five thousands rupees.
+(2) Whoever use the boiler without getting it registered under this Ordinance shall be punishable with a fine which may extend to fifty thousands rupees.
+(3) whoever fraudulently marks upon a boiler a register number which has not been allotted to it under this Ordinance or any Act repealed hereby, shall be punishable with imprisonment which may extend to two years, or with a fine which may extend to fifty thousands rupees or with both.

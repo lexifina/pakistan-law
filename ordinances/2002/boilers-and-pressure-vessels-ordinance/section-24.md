@@ -1,0 +1,1 @@
+24. Trial of offence.___ Notwithstanding any thing in the Code of Criminal Procedure, 1898 (Act V of 188) no Court not inferior to that of a Magistrate of the first call shall try an offence under this Ordinance.

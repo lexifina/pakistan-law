@@ -1,0 +1,2 @@
+14. Production of Registration Certificate, etc.___ (1) The owner of any boiler who holds a Registration Certificate or provisional order relating thereto shall, at all reasonable times during the period for which the Registration Certificate or provisional order is in force, be bound to produce the same when called upon to do so by the Chief Inspector or the Inspector.
+(2) Upon the non-compliance of an order, the Chief Inspector may advise the concerned Provincial Government for necessary action such as decertification of the boiler.

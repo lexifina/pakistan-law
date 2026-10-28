@@ -1,0 +1,1 @@
+4. Power to limit extent.___The Provincial Government may, with the concurrence of the Board, by notification in the official Gazette, exclude any specified area from the operation of all or any of the provisions of this Ordinance.

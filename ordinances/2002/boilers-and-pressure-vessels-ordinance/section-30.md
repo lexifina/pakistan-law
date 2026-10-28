@@ -1,0 +1,6 @@
+30. Power to make regulations.___ (1) The Board may, by notification in the official Gazette, make regulations for carrying out the purposes of Ordinance.
+(2) Without prejudice to the generality of the foregoing powers such regulations may provide for all or any of the following matters, namely:____
+(a) adopting code and procedures as laid down in international boiler code for materials, design and construction which shall be required for the purpose of registration and certification of a boiler under this Ordinance;
+(b) for prescribing the circumstances in which the extent to which, and the conditions subject to which variations form the standards laid down under international boiler codes may be permitted;
+(c) for prescribing the method of determining the maximum pressure at which a boiler may be used;
+(d) for regulating, the registration of boilers, prescribing the fees payable thereof, the drawings, specifications, certificates, particulars to be produced by the owner, the method of preparing a boiler for examination b insurance company, the method of marking the register number, the period within number is to be marked on the boiler, selection and regulating the rules for Inspection Authority and nomination of insurance companies for boiler insurance.

@@ -1,0 +1,5 @@
+13. Duty of owner at examination.___ (1) On any date fixed under this Ordinance for the examination of a boiler, the owner thereof shall be bound―
+(a) to intimate the Inspector regarding date of inspection and also to the insurance company selected, to provide all reasonable facilities for the examination and all such information as may reasonably be required of him;
+(b) to have the boiler properly prepared and ready for examination as per written down examination procedures confirming to applicable codes; and
+(c) in the case of an application for the registration of a boiler, to provide such drawings, specifications, certificates and other 'particulars as may' be prescribed.
+(2) If the owner fails, without reasonable cause, to comply, the insurance company at the expense of owner shall refuse to make the examination and shall report the case to the Chief Inspector who shall, unless sufficient cause to the contrary is shown, require the owner to file a fresh application under section 7 or section 8, as the case may be, and may forbid him to use the boiler notwithstanding anything contained in section 10.
