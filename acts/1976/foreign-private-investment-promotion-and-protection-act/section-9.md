@@ -1,0 +1,1 @@
+9. Equal treatment.—Industrial undertakings having foreign private investment shall be accorded the same treatment as is accorded to similar industrial undertakings having no such investment in the application of laws, rules and regulations relating to importation and exportation of goods.
