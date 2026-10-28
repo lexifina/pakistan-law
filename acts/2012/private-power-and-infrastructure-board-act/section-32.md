@@ -1,0 +1,1 @@
+32. Issuance of policy directives.— The Federal Government may as and when it considers necessary issue policy directives, not inconsistent with this Act, to the Board in respect of its activities and compliance of such directives shall be binding on the Board.

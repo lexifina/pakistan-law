@@ -1,0 +1,1 @@
+17. Bank accounts.__ The PPIB may open and maintain its accounts in local and foreign currencies in such scheduled banks and other financial institutions as it may from time to time determine in accordance with the instruction of the Federal Government in this regard.

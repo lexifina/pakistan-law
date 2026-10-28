@@ -1,0 +1,1 @@
+31. Exemption from taxes.— Notwithstanding anything contained in the Income Tax Ordinance, 2001 (XLIX of 2001), or any other law for the time being in f‹ ce relating to income tax, the Board shall not be liable to pay any such tax on its income, investment, capital profit, wealth, gifts or gains.

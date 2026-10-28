@@ -1,0 +1,1 @@
+25. Act to override other laws.__ The provisions of this Act shall have effect notwithstanding anything inconsistent contained in any other law for the time being in force.

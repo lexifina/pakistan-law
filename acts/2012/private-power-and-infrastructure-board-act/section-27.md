@@ -1,0 +1,1 @@
+27. Support of the Federal Government.__ The Federal Government and all its agencies, particularly the concerned enterprises owned and controlled wholly or partially, directly or indirectly by the Federal Government shall render such support to the PPIB as may be necessary to fulfill its objective and functions under this Act.

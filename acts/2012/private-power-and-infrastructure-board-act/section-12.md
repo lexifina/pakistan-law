@@ -1,0 +1,1 @@
+12. Public servants.__ The Chairman, Managing Director, members, staff and other persons employed or authorized to perform or exercise any function or power under this Act or rendering services to PPIB as advisers, agents or consultants shall be deemed to be public servants within the meaning of section 21 of the Pakistan Penal Code, 1860 (Act XLV of 1860).

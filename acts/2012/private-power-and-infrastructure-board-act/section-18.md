@@ -1,0 +1,2 @@
+18. Account.__ (1) The PPIB shall maintain proper accounts and other records relating to its financial affairs and shall, as soon as practicable after the end of each financial year, cause to be prepared for that financial year statements of accounts of the PPIB which shall include a balance sheet and an account of income and expenditure.
+(2) The financial year of PPIB shall be the period of twelve months ending on the 30th June in each year.
