@@ -1,0 +1,3 @@
+15. Bar to action and indemnity.—(1) No action taken under this Act shall be called in question in any court or otherwise except in the manner provided in this Act.
+(2) No civil or criminal proceedings shall be instituted against any person for anything done in good faith or purported to have been done under this Act.
+(3) No suit, prosecution or other legal proceeding shall lie against the Government or any Provincial Government or local authority or any other person exercising any power or performing any function under this Act or for anything which is done in good faith or purporting or intended to be done under this Act or any rules made thereunder.

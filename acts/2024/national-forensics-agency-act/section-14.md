@@ -1,0 +1,1 @@
+14. Re-examination of forensic material.—Aggrieved person or a department may seek the provision of re-examination of conventional, digital forensics material against a report submitted in an investigation through a court or tribunal in a prescribed manner.

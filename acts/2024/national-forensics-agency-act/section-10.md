@@ -1,0 +1,1 @@
+10. Appointment of officers, staff, etc. by the Agency.—The Agency may appoint employees, consultants and such other persons in the manner and on the terms and conditions as may be prescribed by regulations.

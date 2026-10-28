@@ -1,0 +1,1 @@
+19. Power to make regulations.—The Agency may, with approval of the Board and by notification in the official Gazette, make regulations for its internal matters not inconsistent with the provisions of this Act and the rules.

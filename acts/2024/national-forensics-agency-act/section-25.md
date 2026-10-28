@@ -1,0 +1,2 @@
+25. Offence.—(1) If an expert or official of the Agency knowingly or negligently renders false, incorrect or misleading opinion before a court, tribunal or authority, he shall be liable to the punishment of imprisonment which may extend to one year or with fine which may extend to one hundred thousand Rupees or with both.
+(2) No court shall take cognizance of an offence under this Act unless an officer authorize by the Director General makes a complaint in writing in this behalf.
