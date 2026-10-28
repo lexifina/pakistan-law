@@ -1,0 +1,1 @@
+24. Cognizance of offence under this Act.— Notwithstanding anything contained in the Code of Criminal Procedure 1898 (Act V of 1898), all offences under this Act shall be non-cognizable and non-compoundable and the same shall be triable by a Magistrate First Class on a complaint in writing by a marriage registrar.

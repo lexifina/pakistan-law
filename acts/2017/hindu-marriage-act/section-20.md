@@ -1,0 +1,1 @@
+20. Punishment of bigamy.—Any Hindu marriage solemnized after commencement of this Act is void if at the date of such marriage either party had a spouse living and the provisions of section 494 and 495 of the Pakistan Panel Code, 1860 (Act XLV of 1860) shall apply accordingly.

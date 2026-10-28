@@ -1,0 +1,1 @@
+10. Void marriage.—Any Hindu marriage solemnized after commencement of this Act may, on a petition to the Court presented by either party to the marriage or their real parents, be declared null and void on the conditions specified in clauses (c) and (d) of section 4.
