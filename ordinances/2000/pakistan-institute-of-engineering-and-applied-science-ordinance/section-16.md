@@ -1,0 +1,2 @@
+16. Audit and accounts:___ (I) The accounts of the Institute shall be maintained in such form and manner as the Federal Government in consultation with the Auditor General of Pakistan, determine.
+(2) The accounts of the Institute shall be audited by an Auditor who is a Chartered Accountant within the meaning of the Chartered Accountants Ordinance, 1961, (X of 1961) and is appointed by the Federal Government in consultation with Auditor General of Pakistan on such remuneration, to be paid by the Institute, as the Federal Government may fix.
