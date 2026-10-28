@@ -1,0 +1,1 @@
+11. Immunity of the Council, etc. No suit, prosecution and other legal proceedings shall lie against the Council, its members, the Authority and other officers and authorities acting under the directions of the Council or, as the case may be, the Authority in expect of anything done under the provisions of this Act or any rules or orders made thereunder.
