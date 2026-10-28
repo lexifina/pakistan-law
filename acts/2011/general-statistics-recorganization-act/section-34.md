@@ -1,0 +1,5 @@
+34. Power to call upon certain persons to give assistance. ⎯A census officer appointed under sub-section (1) of section 32 may, by order in writing, call upon-
+(a) owners and occupiers of land, farmers, tenure holders and assignees of land revenue or their agents;
+(b) members of local councils and other local authorities and officers;
+(c) school teachers, government servants and literate persons of good repute for the time being residing in the area concerned; and
+(d) to work as enumerators or give such assistance as may be specified in the order towards the taking of census of persons who and of houses which are, at the time of taking census, on the lands of such owners, occupiers of land, farmers, tenure holders and assignees, or within the areas which such members represent or for which local authorities are established, or, as the case may be, in which such teachers, government servants and literate persons are themselves residing, and the persons to whom an order under this section is directed shall be bound to comply the same and shall be deemed to be bound by the provisions of secrecy and confidentiality under section 28.

@@ -1,0 +1,1 @@
+62. Powers to make regulations. —The Bureau may, with the prior approval of the Federal Government, by notification in the official Gazette, make regulations not inconsistent with this Act or the rules made thereunder to carry out the purposes of this Act.

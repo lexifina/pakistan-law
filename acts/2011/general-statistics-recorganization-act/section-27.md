@@ -1,0 +1,1 @@
+27. Act not to authorize collection of certain information or statistics.⎯ Nothing in this Act shall authorize the collection of statistics or of any information relating to any work of defence, arsenal, naval, military or air force establishment or any other defence factory, installation or establishment.

@@ -1,0 +1,5 @@
+25. Right to access record or document. ⎯(l) An authorized person shall, for the purpose of collection of statistics under this Act, have access to any relevant record or document in the possession of any person required to furnish information or return under section 24 and may, at any reasonable time after due notice, enter any premises, house, vessel, lands or other place wherein he believes such record or document to be kept and inspect or take copies of relevant records or documents and ask any question necessary for obtaining any information required to be furnished by such person.
+(2) Every person in possession of or having custody or charge of relevant record or document, that are maintained in any Government department, business or in any office, public or private, from which information is sought, shall⎯
+(a) grant access for the purposes of collection of statistics or census under this Act;
+(b) supply information to the statistical agent relating to any matter under this Act; and
+(c) allow the statistical agent to paint on, affix to or dig in the premises, house, vessel or lands such letters, marks or objects as may be necessary for the said purpose.

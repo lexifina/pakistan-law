@@ -1,0 +1,1 @@
+42. Investments. ⎯The Bureau may insofar as moneys available in the Statistics Fund are not required to be expended under this Act, make such investments as it may determine from time to time, in accordance with policies formulated by the Federal Government.

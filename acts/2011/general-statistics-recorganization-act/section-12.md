@@ -1,0 +1,3 @@
+12. Users Councils. ⎯(1) For the whole of Pakistan, the Governing Council and for a Province the Provincial Statistical Authority may, by notification in the official Gazette, constitute a Users Council to be called the National Users Council and a Provincial Users Council respectively consisting of such members with representation from private sector, including a Chairperson, as it may appoint.
+(2) The Chairperson and members of the Users Council shall hold office during the pleasure of, and on such terms and conditions, as may be determined by the relevant appointing authority specified in subsection (1).
+(3) The Users Council shall regulate its own procedures.

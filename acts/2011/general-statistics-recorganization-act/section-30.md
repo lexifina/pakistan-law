@@ -1,0 +1,2 @@
+30. Joint collections. ⎯(1) The Statistical Authority may undertake a joint collection of statistical information and shall enter in a contract with another Government department or authority or statutory body where the relevant authority is duly authorized to collect such information, and the information collected shall be shared between the agreeing parties.
+(2) Any employee of any Government department or authority or statutory body engaged in a joint collection shall be bound by the provisions of secrecy and confidentiality under section 28.
