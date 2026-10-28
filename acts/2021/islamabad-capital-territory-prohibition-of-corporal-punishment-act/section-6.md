@@ -1,0 +1,4 @@
+6. Enforcement of the provisions of this Act to private institutions.—(1) The Federal Government shall devise a comprehensive system for the enforcement and monitoring of this Act in private institutions whether registered or unregistered.
+(2) All private institutions shall formulate a complaint system to address corporal punishment.
+(3) At the time of registration the private institution will have to submit an undertaking in writing that they will be responsible for the formulation of complaint system in line with the Act and Rules made there under for entertaining complaints of corporal punishment; failing which will make them liable to the cancelation of registration. The form of undertaking will be prescribed.
+(4) In case of a private institution the complaint of corporal punishment may also be filed for invoking the provisions of the Act before an authority which may be prescribed.
