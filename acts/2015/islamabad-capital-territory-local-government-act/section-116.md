@@ -1,0 +1,1 @@
+116. Appeals.―A person aggrieved by any order passed by a local government or its functionaries may prefer an appeal to such authority, in such a manner and within such time as may be prescribed and an order passed in appeal shall be final.

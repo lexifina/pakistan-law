@@ -1,0 +1,1 @@
+109. Compounding of offences.— Subject to this Act, a local government shall constitute a committee consisting of the Mayor or the Chairman as its Convener, an officer of the local government and a member of the local government as its members for compounding the offences in the prescribed manner.

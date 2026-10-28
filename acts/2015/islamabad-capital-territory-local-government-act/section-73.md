@@ -1,0 +1,2 @@
+73. Functions of Metropolitan Corporation.—(1)The Metropolitan Corporation shall, subject to the provisions of Capital Development Authority Ordinance, 1960 and Islamabad Capital Territory Zoning Regulations 1992 perform functions mentioned in Third Schedule subject to issuance of Notification by the Federal Government.
+(2) The Metropolitan Corporation may entrust any of its functions to a person, an authority, agency or company through a contractual arrangement, on such terms and conditions as may be prescribed.

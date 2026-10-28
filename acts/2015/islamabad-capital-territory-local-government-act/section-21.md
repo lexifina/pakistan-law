@@ -1,0 +1,6 @@
+[^9][21. Polling stations.____ (1) The Returning Officer shall, before such time as the Election Commission may fix, send to the District Returning Officer a list of polling stations proposed in a constituency for the purpose of election of a member for that constituency.
+(2) The Election Commission may make such alterations in the list of polling stations sent under sub-section (1) as it may deem necessary and shall, at least fifteen days before the polling day, publish in the official Gazette the final list of polling stations specifying the electoral area, the electors whereof will be entitled to vote at each polling station and shall at least seventy-two hours before the polling day, give wide publicity of the polling stations in such manner as it may deem fit.
+(3) The Returning Officer shall establish in each constituency polling stations according to the final list published under sub-section (2).
+(4) A polling station shall be situated in a Government building for the constituency and, where no Government building is available for the purpose, an improvised polling station shall be set up on public property: Provided that no polling station shall be located in any premises which belong to or are under the direct or indirect control of any candidate.]
+
+[^9]: Added and subs. by Act No. XXXV of 2016, ss. 8-10.

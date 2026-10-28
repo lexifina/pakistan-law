@@ -1,0 +1,3 @@
+94. Entrustment of functions to local government.___(1) When the Government requires a local government to perform any specific task beyond the budgetary provisions of the local government, the Government shall provide necessary resources to the local government.
+(2) A local government may, with the consent of the Government, entrust any of its functions to the Government or to any other government.
+(3) The Government may, with the consent of a local government, decentralize any of its offices other than the offices already decentralized to the local government or entrust any of its functions to the local government and in that case the Government shall provide technical and administrative support and fiscal resources for the performance of such functions.

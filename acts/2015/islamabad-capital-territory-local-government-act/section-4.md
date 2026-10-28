@@ -1,0 +1,6 @@
+## CHAPTER II
+## LOCAL AREAS
+4. Local areas.—(1) For purposes of this Act, the Government shall, by notification, specify the local area within Islamabad Capital Territory as Union Councils and for the Metropolitan Corporation, as the case may be.
+(2) The Government may, by notification, after inviting public objections and suggestions, alter the limits of a local area and declare that any area shall cease to be a Union Council.
+(3) Any two or more adjoining Union Councils within Islamabad Capital Territory may, after inviting public objections through a resolution passed by two-third majority of the total membership of each of the Union Councils, make a proposal to the Government for a change in their respective boundaries subject to the condition that no revenue estate shall be divided and the size of population in the relevant Union Council shall, as far as possible, be close to the average population of similar Union Councils in Islamabad Capital Territory.
+(4) The Government may, with the concurrence of the Election Commission, alter the limits of a local area under this section after the initiation of proceedings of delimitation of constituencies by theElection Commission but the Government shall not alter the limits of a local area after the announcement of election schedule for election in local area.

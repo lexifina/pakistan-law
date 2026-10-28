@@ -1,0 +1,1 @@
+131. Removal of doubts.—Where this Act makes any provision for anything to be done but has not made any provision or any sufficient provision, as to the authority by whom, or the manner in which it shall be done, then it shall be done by such authority and in such manner as may be prescribed.

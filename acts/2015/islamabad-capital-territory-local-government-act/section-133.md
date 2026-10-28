@@ -1,0 +1,2 @@
+133. Removal of difficulty.—(1)The Government may, within two years of the commencement of this Act, by order consistent with this Act, provide for the removal of any difficulty which may arise in giving effect to the provisions of this Act.
+(2) Any question or doubt as to the interpretation of any provision of this Act or of any order made thereunder shall be resolved by a decision of the President and such decision shall be final.

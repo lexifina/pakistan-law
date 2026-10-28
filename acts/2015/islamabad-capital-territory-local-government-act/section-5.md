@@ -1,0 +1,4 @@
+5. Division and reconstitution of a local government.—(1) The Government may, by notification, divide a local government into two or more local governments or alter the limits of a local government and may specify in the notification the consequences which shall ensue upon the publication of such notification.
+(2) When, as a result of such division or reconstitution, any new local government is constituted, in accordance with the provisions of this Act in the manner specified in the notification,—
+(a) the existing members of any local government so divided or reconstituted shall become the members of such local government as the Government may, by notification, specify as if each such member had been elected to that local government; and
+(b) such local government shall, to the extent and in the manner specified in the notification, be the successor of the local government so divided or reconstituted.

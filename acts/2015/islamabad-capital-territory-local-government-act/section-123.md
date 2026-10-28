@@ -1,0 +1,1 @@
+123. Bar against employment.—The Mayor, Chairman, Deputy Mayor, Vice Chairman or a member of a local government shall not be employed under such local government for a period of one year from the date on which he ceases to be the Mayor, Chairman, Deputy Mayor, Vice Chairman or member.

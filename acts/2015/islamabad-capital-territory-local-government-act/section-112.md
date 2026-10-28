@@ -1,0 +1,1 @@
+112. Rights of citizen not affected.—Nothing contained in this Chapter shall restrict or limit the right of the citizens or residents of a local area to bring any suit or other legal proceedings against any local government, its officers or other functionaries violating his rights provided by any law.

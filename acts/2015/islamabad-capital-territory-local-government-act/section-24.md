@@ -1,0 +1,1 @@
+24. Other powers and functions of the Election Commission.―In addition to the powers and functions of the Election Commission under this Act, the Election Commission shall, in relation to local government elections, exercise such other powers and perform such other functions as may be prescribed.

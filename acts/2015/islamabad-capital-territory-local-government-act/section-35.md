@@ -1,0 +1,1 @@
+35. Bar against re-election or re-appointment.―When a Mayor, Deputy Mayor, Chairman or Vice Chairman, of a local government, is removed from office on the ground of misconduct, he shall not, during the unexpired period of the term of that local government be eligible for re-election or re- appointment to any office during the remaining term of the local government.

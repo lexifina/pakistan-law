@@ -1,0 +1,3 @@
+115. Local government servants.—(1) Notwithstanding anything contained in any other law, the Government shall, in the prescribed manner, create a service cadre for a local government or a group of local governments.
+(2) The Government may prescribe the terms and conditions for recruitment, promotion, dismissal, disciplinary, conduct and any other related service matter for the service cadre mentioned in sub-section (1).
+(3) A local government other than a Union Council may, in the prescribed manner, absorb an employee, already working in any other municipal body/local government prior to the commencement of this Act, with the consent of the employee against an equivalent pay scale.

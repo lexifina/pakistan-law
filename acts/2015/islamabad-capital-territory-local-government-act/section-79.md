@@ -1,0 +1,1 @@
+79. Custody of Local Fund and Public Account.—The monies credited to the Local Fund or the Public Account of a local government shall be kept and operated in an account of the local government in such manner as may be prescribed.
