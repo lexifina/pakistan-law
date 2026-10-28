@@ -1,0 +1,1 @@
+2. General amendments, Act X of 2015.—In the Islamabad Capital Territory Local Government Act, 2015 (X of 2015), hereinafter referred to as the said Act. for words “Metropolitan Corporation”, wherever occurring the words “Town Corporation” or “Town Corporations” shall be substituted respectively.
