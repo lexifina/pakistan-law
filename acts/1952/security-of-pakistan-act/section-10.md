@@ -1,0 +1,16 @@
+[^29][10. Control of subversive associations.___(1) Notwithstanding anything contained in the Political Parties Act, 1962 (Act III of 1962), or in any other law for the time being in force, where the [^30][Federal Government] is satisfied with respect to any association that there is danger that the association may act in a manner or be used for purposes prejudicial to the defence or external affairs or the security of Pakistan or of any part thereof, it may, by written or notified order, direct the association to suspend its activities for such period not exceeding three months as may be specified in the order.
+(2) Where an order under sub-section (1) is in force in respect of an association, any officer authorised by the [^30][Federal Government] in this behalf may enter upon and search any premises used for the purposes of the association and take possession of any document belonging to or in the custody of the association which in his opinion may be used for purposes prejudicial to the defence or external affairs or the security of Pakistan.
+(3) Where an order has been made in respect of an association under sub-section (1), the [^30][Federal Government] may, by written or notified order, direct that no funds or other property of the association shall be used, transferred or otherwise disposed of, or in any manner dealt with, so long as the order under sub-section (1) remains in force.
+(4) Where an order under sub-section (3) has been made in respect of an association, all claims of the employees or creditors of the association, or of any other person, on the association or on the funds or property thereof, shall remain suspended, and the commencement or continuance of all actions and proceedings relating to such claim shall be stayed, for so long as the order remains in force.
+(5) For the purposes of any suit, appeal or application by or against an association in respect of which an order under sub-section (3) has been made, the period during which the order remains in force shall, notwithstanding anything contained in the limitation Act, 1908 (IX of 1908), be excluded in computing the period of limitation.
+(6) No person shall so long as an order under sub-section (1) in respect of any association remains in force___
+(a) manage or assist in managing the association ;
+(b) promote or assist in promoting a meeting of any members of the association, or attend any such meeting in any capacity ;
+(c) publish any notice or advertisement relating to any such meeting;
+(d) invite persons to support the association ; or
+(e) otherwise in any way assist the operation of the association.
+(7) A copy of an order under this section shall be served on the president, chairman, secretary or other officer or person concerned with the management of the affairs of the association by whatever name called, or by leaving it or sending it by post to the association at the last known address of its principal office.
+(8) Whoever contravenes an order made under this section shall be punishable with imprisonment for a term which may extend to three years, or with fine, or with both.]
+
+[^29]: Subs. by Act No. XIV of 1965, s. 6.
+[^30]: Subs. by the Preventive Detention Laws (Amendment) Act 1975, (Act No. XLIV of 1975), s. 2.
