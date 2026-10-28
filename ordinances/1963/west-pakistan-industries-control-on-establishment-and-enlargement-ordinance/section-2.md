@@ -1,0 +1,6 @@
+2. Definitions.__ In this Ordinance, unless the context otherwise requires, the following expressions shall have the meanings hereby respectively assigned to them, that is to say__
+(a) “Director” means the Director of Industries West Pakistan, and includes any officer appointed by Government to exercise all any of the powers and perform all or any of the functions and duties of the Director under this Ordinance;
+(b) “Government” means the Government of West Pakistan;
+(c) “industrial undertaking” means an undertaking pertaining to an industry (including any industry ancillary thereto) carried on or to be carried on, in any local area, at a place or premises, including precints thereof, wherein twenty or more workers without the aid of power, or ten or more workers with the aid of power, were working on any day during the twelve months preceding the date of coming into operation of sections 3 to 12 in the local area concerned or are working and shall work for the manufacture or processing of goods or commodities;
+(d) “local area” means any area to which the provisions of sections 3 to 12 have been applied in pursuance of sub-section (3) of section 1;
+(e) “rules” means rules made under this Ordinance.

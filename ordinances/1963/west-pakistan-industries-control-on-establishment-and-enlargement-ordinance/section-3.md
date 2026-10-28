@@ -1,0 +1,1 @@
+3. Restrictions on establishment of industrial undertakings.__ No person shall establish or cause to be established any industrial undertaking or enlarge or cause to be enlarged any existing industrial undertaking except with the previous permission in writing of Government.

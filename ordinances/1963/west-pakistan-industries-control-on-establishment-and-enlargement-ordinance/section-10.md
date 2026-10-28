@@ -1,0 +1,1 @@
+10. Indemnity.__ No suit or other legal proceedings shall lie against Government, the Director or any person in respect of anything which is in good faith done or intended to be done under this Ordinance and the rules.

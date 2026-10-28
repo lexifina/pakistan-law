@@ -1,0 +1,5 @@
+1. Short title, extent and commencement.__ (1) This Ordinance may be called the West Pakistan Industries (Control on Establishment and Enlargement) Ordinance, 1963.
+(2) It extends to the whole of the Province of West Pakistan, except the Tribal Areas.
+(3) This section and section 2 shall come into force at once and the remaining provisions of the Ordinance shall come into force in such local areas and on such dates as the Government may, by notification[^1] in the Official Gazette, specify.
+
+[^1]: Issued by the Government of West Pakistan, Industries, Commerce and Mineral Resources Department vide Notification No. II-1-35-59, dated November 19, 1963, published in the Gazette of West Pakistan (Extraordinary), dated November 19, 1963, pp. 4449-4450, the remaining provisions of the Ordinance came into force w.e.f. November 19, 1963, in the whole of the Province of West Pakistan except - (a) the Tribal Areas; (b) the divisions of Quetta, Kalat and Dera Ismail Khan; and (c) the districts of Lasbela, Sanghar, Tharparkar, Jacobabad, Larkana, Bahawalpur, Bahawalnagar, Muzaffargarh, Dera Ghazi Khan, Jhang, Mianwali, Kohat and Hazara.

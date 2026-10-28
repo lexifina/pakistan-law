@@ -1,0 +1,1 @@
+6. Delegation of powers.__ Government may, by general or special order and subject to such conditions as may be specified in the order, authorize any officer or authority subordinate to it to exercise any of its powers and to perform any of its functions and duties under this Ordinance and the rules.

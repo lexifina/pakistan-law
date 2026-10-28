@@ -1,0 +1,1 @@
+11. Exemption.__ Government may, by notification in the Official Gazette, exempt any industrial undertaking or class of industrial undertakings from all or any of the provisions of this Ordinance or the rules.
