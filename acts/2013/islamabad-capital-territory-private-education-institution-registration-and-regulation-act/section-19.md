@@ -1,0 +1,1 @@
+19. Penalty.⸺Subject to the provisions of section 13, whoever runs an institution in contravention of the provisions of this Act or the rules made there under shall be punished with imprisonment which may extend to one year or with fine which may extend to five thousands rupees for each day during the period the offence continues, or with both.

@@ -1,0 +1,4 @@
+13. Application for registration of an institution.⸺(1) Any person intending to establish or continue any existing institution shall make an application to the Authority in the prescribed form accompanied by such documents and fee as may be prescribed.
+(2) An existing institution may continue to function for a period not exceeding ninety days from the commencement of this Act and where an application is made under subsection (1) until the application is rejected or if any appeal is preferred until the decision of the appeal.
+(3) Every institution or its branches running under the same management or name at different premises shall be registered separately.
+(4) Affiliation of a private educational institution with the Board or any foreign board or any other examining body shall be subject to registration with the Authority.

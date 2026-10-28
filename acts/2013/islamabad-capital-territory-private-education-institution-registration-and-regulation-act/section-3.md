@@ -1,0 +1,2 @@
+3. Establishment of the Authority.⸺(1) There shall be established an Authority to be known as the Islamabad Capital Territory Private Educational Institutions Regulatory Authority (ICT-PEIRA).
+(2) The Authority shall be a body corporate, having perpetual succession and a common seal, with power, subject to the provisions of this Act to enter into contracts, acquire and hold property, both movable and immovable, and shall by the said name sue and be sued.

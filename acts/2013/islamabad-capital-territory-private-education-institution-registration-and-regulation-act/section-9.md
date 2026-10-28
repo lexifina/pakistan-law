@@ -1,0 +1,2 @@
+9. Funds.⸺(1) The Authority shall be a self-financing body. In addition to this, the Government shall allocate annual grant which shall be at the disposal of the Authority, to meet all the expenses including pay and allowances of the staff.
+(2) The Authority shall have a Fund to which shall be credited all income including income from inspection fee, registration fee, security fee, fine, other sources and annual grant from the Government, and account therefore shall be maintained in a scheduled bank.

@@ -1,0 +1,1 @@
+8. Maintenance of accounts and audit.⸺The Authority shall maintain complete accounts of income and expenditure in such manner and form as the Government, in consultation with the Controller General of Accounts, may determine. The accounts shall be audited by the Auditor General of Pakistan annually.
