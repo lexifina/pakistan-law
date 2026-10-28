@@ -1,0 +1,2 @@
+115. Power to remit duties on warehoused goods lost or destroyed.- If any warehoused goods in respect of which a bond has been executed under section 86 and which have not been cleared for home-consumption are lost or destroyed by unavoidable accident or cause, the Collector of Customs may in his discretion remit the duties due thereon:
+Provided that, if any such goods be so lost or destroyed in a 33[****]warehouse, notice thereof be given to the appropriate officer within forty-eight hours 34[****]of such loss or destruction.

@@ -1,0 +1,1 @@
+196U. Communications of orders.- The Commission shall communicate its order to the applicant, the Collector, the adjudicating officer and the officer incharge of the Agency which detected the evasion or seized the goods.”.

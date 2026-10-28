@@ -1,0 +1,7 @@
+212. Regulation of business in gold, etc.- The 8[Federal Government] may, by notification in the official Gazette, regulate business in, or connected with, gold or silver or precious stones or ornaments made of gold or silver or precious stones, within fifteen miles of the frontier or coastline of Pakistan.
+47[212A.- Authorized economic operator programme.- (1) The Federal Government may, by notification in the official Gazette, devise authorized economic operator programme to provide facilitations relating to secure supply chains of imported and exported goods through simplified procedures with regard to regulatory controls applicable thereon.
+(2) The Board may, 51[Omitted], prescribe rules on matters pertaining to authorized economic operator programme.]
+52(3) Notwithstanding anything contained in this Act or any other law for the time being in force, the Board may, subject to such conditions, limitations or restrictions as it thinks fit to impose, grant benefits to the authorized economic operators, in such manner as may be provided under the rules made, including-
+(a) laying down any procedure or mode for collection of customs duties, fee, surcharge, penalty or any other levy under this Act or any other law;
+(b) deferring collection of customs duties, fee, surcharge, penalty or any other levy either in whole or in part;
+(c) condoning or substituting whole or part of the bank guarantee or pay order of a scheduled bank required under this Act with any other financial instrument as deemed appropriate.]

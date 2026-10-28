@@ -1,0 +1,1 @@
+25[3BBB. Directorate General of Communication and Public Relations, Customs.- The Directorate General of Communication and Public Relations shall consist of a Director General and as many Directors, Additional Directors, Deputy Directors, Assistant Directors and such other officers of customs as the Board may, by notification in the official Gazette, appoint.]

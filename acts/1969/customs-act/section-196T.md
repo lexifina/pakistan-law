@@ -1,0 +1,1 @@
+196T. Proceedings before the Commission to be judicial proceeding.- Any proceedings before the Commission shall be deemed to be judicial proceedings within the meaning of sections 193 and 228 of the Pakistan Penal Code (Act XLV of 1860), and for the purpose of section 196 thereof.

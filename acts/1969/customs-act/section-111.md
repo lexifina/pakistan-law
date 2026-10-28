@@ -1,0 +1,5 @@
+111. Duty on goods improperly removed from warehouse or allowed to remain beyond fixed time or lost or destroyed or taken as sample.- In respect of goods specified hereunder the appropriate officer may demand and upon such demand the owner of such goods shall forthwith pay the full amount of duty chargeable on such goods together with all rent, penalties, 28[surcharge] and other charges payable in respect of them, namely:-
+(a) Warehoused goods which are removed in contravention of section 97.
+(b) Goods which have not been removed from the warehouse within the time allowed for such removal under section 98.
+(c) Goods in respect of which a bond has been executed under section 86 and which have not been cleared for home-consumption or export or removed in accordance with the provisions of this Act and are lost or destroyed otherwise than as provided in sections 94 and 95 or as mentioned in section 115, or are not accounted for to the satisfaction of the appropriate officer.
+(d) Goods which have been taken under section 94 as samples without payment of duty.

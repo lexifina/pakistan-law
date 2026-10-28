@@ -1,0 +1,3 @@
+19B. Rounding off of duty, etc.- The amount of duty, interest, penalty, fine or any other sum payable, and the amount of refund, drawback or any other sum due, under the provisions of this Act shall be rounded off to the nearest one hundred rupees and, for this purpose, where such amount is fifty rupees or more, it shall be increased to one hundred rupees and if such part is less than fifty rupees, it shall be ignored.]
+14a,129[19C. Minimal duties not to be demanded.- Where the value of imported goods 137[ through post or courier does not exceed one thousand] rupees, no duties and taxes shall be demanded, subject to conditions and restrictions as may be prescribed by the Board under the rules.]
+15[20. 112 [Omitted]

@@ -1,0 +1,1 @@
+52. No conveyance other than vessel to leave without permission.- No conveyance other than a vessel shall depart from a land customs-station or customs-airport until a written permission to that effect has been granted by the appropriate officer.

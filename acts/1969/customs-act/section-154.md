@@ -1,0 +1,3 @@
+154. Application of certain provisions of this Act to coastal goods.- (1) Sections 64,65 and 66 shall, so far as may be, apply to coastal goods as they apply to imported goods or goods for export.
+(2) Sections 48 and 60 shall, so far as may be, apply to vessels carrying coastal goods as they apply to vessels carrying imported goods or goods for export.
+(3) The 1[Federal Government] may, by notification in the official Gazette, direct that all or any of the other provisions of Chapter VII and the provisions of section 78 shall apply to coastal goods or vessels carrying coastal goods with such exceptions and modifications, if any, as may be specified in the notification.

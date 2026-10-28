@@ -1,0 +1,5 @@
+6[86. Submission of post-dated cheque and indemnity bond.- (1) When any such application has been made in respect of any goods, the owner of the goods to which it relates shall furnish an indemnity bond and post-dated cheque equivalent to the duty assessed under section 80 or section 81 or reassessed under section 109 on such goods,-
+(a) to observe all the provisions of this Act and the rules in respect of such goods;
+(b) to pay on or before a date specified in a notice of demand all duties, taxes, rent and charges payable in respect of such goods together with surcharge on the same from the date so specified at the rate of 35[KIBOR plus three per cent per annum] or such other rate as is for the time being fixed by the Board; and
+(c) to discharge all penalties incurred for violation of the provisions of this Act and the rules in respect of such goods.
+(2) Every such post-dated cheque shall be equivalent to the duties and taxes leviable on the goods or portion of the goods of one conveyance only.]

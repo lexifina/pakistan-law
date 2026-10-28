@@ -1,0 +1,1 @@
+190. Power to publish conviction.- If the 1[Federal Government] is satisfied that it is necessary so to do, the conviction and the particulars relating to the conviction of any person for the offence of smuggling may be published in the official Gazette.

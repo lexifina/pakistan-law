@@ -1,0 +1,2 @@
+155G. Customs to keep records of transmissions.- (1) The Customs shall keep a record of every transmission sent to or received from a registered user using the Customs Computerized System.
+(2) The record described in sub-section (1) of this section shall be kept for a period of five years from the date of the sending of or the receipt of the transmission, or for such other period as may be prescribed by the Board.

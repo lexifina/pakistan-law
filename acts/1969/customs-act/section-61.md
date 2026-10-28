@@ -1,0 +1,1 @@
+61. Officer to be received and accommodation to be provided.- Whenever an officer of customs is so deputed to be on board any conveyance, the person-in-charge shall be bound to receive him on board and provide him with suitable accommodation and adequate quantity of fresh water.

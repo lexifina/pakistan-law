@@ -1,0 +1,3 @@
+52,95[27A. Allowing mutilation or scrapping of goods.- At the request of the owner 130[to be made before the filing of goods declaration] the mutilation or scrapping of goods as are notified by the Board, may be allowed, in the manner as prescribed by the rules and where such goods are so mutilated or scrapped they shall be chargeable to duty at such rates as may be applicable to the goods as if they had been imported in the mutilated form or as scrapped]:
+129[Provided that the goods imported in new condition shall not be allowed scrapping and mutilation and shall be classified and chargeable to leviable duty and taxes as new goods:]
+137[Provided further that scrapping and mutilation shall not be allowed for quantity exceeding ten per cent of the imported goods.]

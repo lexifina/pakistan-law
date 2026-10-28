@@ -1,0 +1,2 @@
+25[3F. Hiring of technology specialists, auditors, accountants and goods evaluators on short term contract.- (1) The Board may hire services of technology specialists, auditors, accountants and goods evaluators on short term contracts not exceeding two years on such terms and conditions as may be prescribed by the Board.
+(2) The re-hiring of persons hired under sub-section (1), shall be subject to the performance review by the Board.]

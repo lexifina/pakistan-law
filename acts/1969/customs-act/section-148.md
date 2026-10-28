@@ -1,0 +1,2 @@
+148. Coastal goods not to be loaded, until bill relating thereto is passed.- No vessel shall take on board any coastal goods until the bill relating to such goods has been passed by the appropriate officer and delivered to the master of the vessel by the consignor:
+Provided that the appropriate officer may, in circumstances of exceptional nature, on a written application by the master of the vessel, permit loading of coastal goods pending the presentation and passing of bills relating to such goods.

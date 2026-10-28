@@ -1,0 +1,2 @@
+75. Imported goods not to be unloaded unless entered in the import manifest.- (1) No imported goods required to be shown in the import manifest shall, except with the permission of the appropriate officer, be unloaded from any conveyance at any customs-station unless they are specified in the import manifest or amended or supplementary import manifest for being unloaded at that customs-station.
+(2) Nothing in this section shall apply to the unloading of baggage accompanying a passenger or a member or a crew or mail bags.

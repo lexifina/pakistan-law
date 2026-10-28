@@ -1,0 +1,1 @@
+3CCC. Directorate Generals of Marine.- The Directorate Generals of Marine shall consist of a Director General as many Directors, Additional Directors, Deputy Directors, Assistant Directors and such other officers as the Board may, by notification in the official Gazette, appoint.]

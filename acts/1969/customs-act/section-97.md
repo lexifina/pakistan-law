@@ -1,0 +1,1 @@
+97. Goods not to be taken out of warehouse except as provided by this Act.- No warehoused goods shall be taken out of any warehouse, except on clearance for home-consumption or export, or for removal to another warehouse, or as otherwise provided in this Act.

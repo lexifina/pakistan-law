@@ -1,0 +1,1 @@
+49. Special pass for breaking bulk.- Notwithstanding anything contained in section 47 and subject to rules, the appropriate officer may grant, prior to receipt of the import manifest and the entry inwards of a vessel, a special pass permitting bulk to be broken.

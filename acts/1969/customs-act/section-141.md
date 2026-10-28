@@ -1,0 +1,1 @@
+141. Bona fide baggage exempt from duty.- The appropriate officer may, subject to the limitations, conditions and restrictions specified in the rules, pass free of duty any article in the baggage of a passenger or a member of the crew in respect of which the said officer is satisfied that it is bona fide meant for the use of such passenger or for making gift.

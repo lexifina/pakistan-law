@@ -1,0 +1,1 @@
+3E. Powers and functioning of the 18[Directorates General and Directorates], etc.- The Board may specify the functions, jurisdiction and powers of the 18[Directorates General and Directorates] specified in the preceding sections and their officers by notification in the official Gazette.]

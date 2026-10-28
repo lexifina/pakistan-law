@@ -1,0 +1,2 @@
+129. Transit of goods across Pakistan to a foreign territory.- Where any goods are entered for transit across Pakistan to a destination outside Pakistan, the appropriate officer may, subject to the provisions of the rules, allow the goods to be so transited without payment of the duties which would otherwise by chargeable on such goods1[:]
+2[Provided that the Federal Government may, by notification in the official Gazette, prohibit the bringing into Pakistan by sea, land or air in transit to a foreign territory any goods or class of goods.]

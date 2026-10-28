@@ -1,0 +1,1 @@
+196R. Order of Settlement to be conclusive.- Every order of the Commission passed under section 196-O shall be conclusive as to the matter stated therein and no matter covered by such order shall, save as otherwise provided in this Chapter, be re-opened in any proceeding under this Act or under any law for the time being in force.

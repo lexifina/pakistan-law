@@ -1,0 +1,2 @@
+137. Landing of goods during repairs.- (1) The appropriate officer may, on application by the person-in-charge of a conveyance which is obliged before completing her journey or voyage to put into any customs-station for repairs, permit him to land the goods or any portion thereof, and to place it in the custody of an officer of customs during such repairs, and to load and export the same free of duty.
+(2) All expenses attending such custody shall be borne by the person-in-charge of the conveyance.

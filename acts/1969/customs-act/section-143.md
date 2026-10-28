@@ -1,0 +1,1 @@
+143. Treatment of baggage of passengers or crew in transit.- Baggage of passengers and members of the crew in transit in respect of which a declaration has been made under section 139, may be permitted by the appropriate officer, subject to such limitations, conditions and restrictions as may be specified in the rules, to be so transited without payment of duty.

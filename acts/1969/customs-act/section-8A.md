@@ -1,0 +1,1 @@
+17[8A. Uniform.- The Board may, with approval of the Federal Minister-in-charge and by notification in the official Gazette, prescribe rules for wearing of uniform by officers and staff of Customs Service of Pakistan.]

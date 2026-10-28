@@ -1,0 +1,5 @@
+88. Receipt of goods at warehouse.- (1) On receipt of the goods, the pass shall be examined by the warehouse-keeper, and shall be returned to the appropriate officer.
+(2) No package, butt, cask or other container shall be admitted into any warehouse unless it bears the marks and numbers specified in, and otherwise corresponds with, the pass for its admission.
+(3) If the goods be found to correspond with the pass, the warehouse-keeper shall certify to that effect on the pass, and the warehousing of such goods shall be deemed to have been completed.
+(4) If the goods do not so correspond, the fact shall be reported by the warehouse-keeper for the orders of the appropriate officer, and the goods shall either be returned to the custom-house in charge of an officer of customs or kept in deposit pending such orders as the warehouse-keeper deems most convenient.
+44[(5) if the quantity or value of any goods has been incorrectly stated in the goods declaration, due to inadvertence or bona fide error, the Collector of Customs may, for reasons to be recorded in writing, direct the correction of the said error.]

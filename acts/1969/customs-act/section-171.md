@@ -1,0 +1,1 @@
+171. When seizure or arrest is made, reason in writing to be given.- When anything is seized, or any person is arrested under this Act, the officer or other person making such seizure or arrest shall, as soon as may be, inform in writing the person so arrested or the person from whose possession the things are seized of the grounds of such seizure or arrest.

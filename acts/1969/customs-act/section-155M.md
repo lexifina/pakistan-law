@@ -1,0 +1,5 @@
+155M. Requisition of documents.- (1) The appropriate officer may, by notice in writing, require a person, as and when specified in the notice,--
+(a) to produce for inspection by a specified Customs Officer, documents or records that the appropriate officer considers necessary or relevant to -- (i) an investigation under this Act; or (ii) an audit under this Act; or (iii) the recovery of dues payable under this Act;
+(b) to allow the specified Customs officer to take extracts from or make copies of, documents or records of the kind referred to in paragraph (a);
+(c) to appear before a specified Customs officer and answer all questions put to the person concerning -- (i) goods, or transactions relating to those goods, that are the subject of the investigation or audit, or that are relevant to the recovery of dues referred to in clause (a); or (ii) documents or records of the kind referred to in clause (a).
+(2) in this section, person includes an officer employed in a government department, corporation, local authority or an officer employed in a bank.

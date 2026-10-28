@@ -1,0 +1,5 @@
+## CHAPTER X
+## CLEARANCE OF GOODS FOR HOME-CONSUMPTION
+1[83. Clearance for home consumption.- (1) When the owner of any goods entered for home-consumption and assessed under section 2[****] 80 2[****] or 81 has paid the import duty and other charges, if any, in respect of the same the appropriate officer, if he is satisfied that the import of the goods is not prohibited or in breach of any restrictions or conditions applying to the import of such goods, may make an order for the clearance of the same:
+Provided that, at customs-stations where the Customs Computerized System is operational the system may clear the goods through system generated clearance documents 9[after payment of duty, taxes and other charges thereon].
+(2) Where the owner fails to pay import duty and other charges within 3[ten] days from the date on which the same has been assessed under sections 80, 5[Omitted] or 81, he shall be liable to pay surcharge at the rate of 5[KIBOR plus three per cent] on import duty and other charges payable on such goods.]

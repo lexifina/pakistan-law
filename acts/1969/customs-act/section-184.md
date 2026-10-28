@@ -1,0 +1,6 @@
+23[184. Power to try summarily.- (1) Notwithstanding anything contained in the Code of Criminal Procedure, 1898 (Act V of 1898), a Special Judge may, if he thinks fit, try in a summary way, any offence under this Act where the value of the goods involved in such offence does not exceed one thousand rupees.
+(2) In the trial of an offence under sub-section (1), the provisions of sub-section (1) of section 262 and sections 263, 264 and 265 of the said Code shall, so far applicable and with the necessary adaptation, apply.
+(3) No proceeding under this section shall be called in question merely on the ground that the value of the goods involved was more than the limit specified in sub-section (1).
+Explanation.- For the purpose of this section, “value”-
+(i) in the case of goods, whether imported or indigenous, which are lawfully sold in open market in Pakistan, means the wholesale price of such goods in open market;
+(ii) in the case of goods, whether imported or indigenous, the price of which has been fixed by the Government, means the price so fixed’ and (iii) in the case of goods the import of which is absolutely prohibited, means the price of similar or comparable indigenous goods sold in open market in Pakistan or, where no such goods are sold in open market in Pakistan, the price fixed by the Federal Government, by general or special order.

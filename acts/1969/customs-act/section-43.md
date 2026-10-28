@@ -1,0 +1,4 @@
+4[43. Delivery of import manifest in respect of a vessel.- (1) The Board may, by notification in the official Gazette, fix a place beyond which no vessel arriving shall pass until an import manifest has been delivered to Customs or other person duly authorized to receive in such form, manner and time as the Board may prescribe.
+(2) On receipt of such import manifest the vessel may proceed to come beyond the fixed place. No pilot shall bring a vessel into customs-port without having been so authorized by Customs.
+(3) If any vessel arrives at any customs-port in which a place has not been so fixed, master of such vessel shall, within twenty-four hours after arrival of such vessel, deliver an import manifest to Customs in such form and manner as the Board may prescribe.
+(4) Notwithstanding anything contained in sub-section (3), an import manifest may be delivered in anticipation of the arrival of a vessel.]

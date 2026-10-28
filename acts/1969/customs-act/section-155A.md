@@ -1,0 +1,2 @@
+## AND AUDIT AND ACCESS TO DOCUMENTS
+155A. Application of the Customs Computerized System.- Notwithstanding anything hereinbefore contained, provisions of this Chapter shall apply to any customs-station equipped with the Customs Computerized System on such date as the 9[Board] may, by notification in official Gazette, specify and different dates may be specified for different provisions and for different areas so as to bring the provisions relating to the Customs Computerized System in force throughout Pakistan progressively.

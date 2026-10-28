@@ -1,0 +1,2 @@
+155P. Obstructing access, altering, concealing, destruction of record.- Any person commits an offence who,- (a) fails to operate any mechanical or electronic device, when requested by a Customs officer, on which any records are, or information is, stored for the purpose of enabling the Customs officer to obtain those records or that information.
+(b) with intent to defeat the purposes of this Act, destroys, alters, or conceals any book, document, or record required to be kept under this Act, or sends or attempts to send out of Pakistan any such book, document, or record.]

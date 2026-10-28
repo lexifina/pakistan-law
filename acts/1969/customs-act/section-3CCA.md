@@ -1,0 +1,1 @@
+19[3CCA. Directorate General of Law and Prosecution.- The Directorate General of Law and Prosecution shall consist of a Director General and as many Directors, Additional Directors, Deputy Directors, Assistant Directors, Special Public Prosecutors, 22[Special Prosecutors] and such other officers as the Board may, by notification in the official Gazette, appoint.

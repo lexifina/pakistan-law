@@ -1,0 +1,1 @@
+52[170A. Procedure in case of seizure of essential commodities.- In case of seizure of essential commodities, as notified by the Board, such seized goods shall be deposited in the nearest custom-house or the nearest place appointed by the Collector of Customs, as the case may be, for deposit of goods so seized.]

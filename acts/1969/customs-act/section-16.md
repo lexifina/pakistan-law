@@ -1,0 +1,1 @@
+16. Power to prohibit or restrict importation and exportation of goods.- The 2[Federal Government] may, from time to time, by notification in the official Gazette, prohibit or restrict the bringing into or taking out of Pakistan of any goods of specified description by air, sea or land.

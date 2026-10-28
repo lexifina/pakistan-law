@@ -1,0 +1,2 @@
+182. Vesting of confiscated property in the Federal Government.- When any goods are confiscated under this Act, they shall forthwith vest in the 1[Federal Government], and the 44[officer or person authorized by the Collector or Director] shall take and hold possession of the confiscated goods 21[:]
+22[Provided that 53[subject to rules,] the Board may authorize the use of confiscated vehicles 53[,conveyance and any other equipment] for operational purposes by the Board or, with approval of the Board, its subordinate offices.].

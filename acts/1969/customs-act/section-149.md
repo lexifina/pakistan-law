@@ -1,0 +1,2 @@
+149. Clearance of coastal goods at destination.- (1) The master of a vessel carrying any coastal goods shall carry on board the vessel all bills delivered to him under section 148 and shall, within twenty-four hours of arrival of the vessel at any customs-port or coastal port, deliver to the appropriate officer all bills relating to the goods which are to be unloaded at that port.
+(2) Where any coastal goods are unloaded at any port, the appropriate officer shall permit their clearance if he is satisfied that they are entered in a bill delivered to him under sub-section (1).

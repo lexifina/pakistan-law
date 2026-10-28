@@ -1,0 +1,11 @@
+11[98. Period for which goods may remain warehoused.-12{(1) Warehoused goods, other than perishable goods notified by the 11a[Board] , may remain in the warehouse for a period of 13[six months] following the date of their admission into the warehouse and perishable goods so notified may remain in the warehouse for a period of 39,46[three months], following the said date:
+Provided that the said period may, in case of non-perishable goods, be extended, on sufficient cause being shown by the owner of the warehoused goods and subject to the condition that he pays in advance surcharge on the duty and taxes involved at 14[one] per cent per month for the extended period-
+15,44,45[(a) by the Additional Collector of Customs, for a period not exceeding one month;
+(aa) by the Collector of Customs, for a period not exceeding six months;]
+41(b) by the Chief Collector of Customs for such period as he may deem fit;]
+(c)] 42[Omitted] .
+subject to the condition that the extension in case of perishable goods shall be granted only if the goods are fit for human consumption.}
+(2)The Federal Government may, subject to such conditions, or restrictions as it may deem fit to impose, by notification in the official gazette, remit the whole or a part of the surcharge in case of any goods or category of goods and the Board, in circumstances of exceptional nature, may, subject to such conditions, limitations or restrictions, if any, as it may think fit to impose, by a special order in each case recording such circumstances remit the whole or a part of the surcharge.
+(3) Notwithstanding anything contained in sub-section (1), the Federal Government 43[or Board] may, by notification in the official Gazette, 37[regulate] the period for which 17[***] goods or class of 17[***] goods may remain in the warehouse:
+Provided that such period shall not be less than one month.
+(4) When the license of any warehouse is cancelled, the owner of any goods warehoused therein shall, within ten days of the date on which notice of such cancellation is given, or within such extended period as the appropriate officer may allow, remove the goods from that warehouse to another warehouse or clear them for home-consumption or exportation.]

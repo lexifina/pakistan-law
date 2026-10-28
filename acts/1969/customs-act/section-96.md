@@ -1,0 +1,4 @@
+96. Payment of rent and warehouse dues.- (1) If goods be lodged in a public warehouse, the owner shall 9[unless exempted by an order of the Collector or an officer not below the rank of 10[Assistant Collector 36[Omitted] authorized by him,] pay monthly rent and warehouse-dues at such rates as the Collector of Customs may fix.
+(2) A table of the rates of rent and warehouse-dues so fixed shall be placed in a conspicuous part of such warehouse.
+(3) If any demand for such rent or dues is not discharged within ten days of its presentation, the appropriate officer may, in the discharge of such demand (any transfer or assignment of the goods notwithstanding) cause to be sold, after due notice in the official Gazette, such sufficient portion of the goods as he may select.
+(4) The proceeds of such sale shall be adjusted in accordance with section 201.

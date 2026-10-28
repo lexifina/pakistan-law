@@ -1,0 +1,1 @@
+106. Clearance of warehoused goods for export as provisions, on a conveyance proceeding to foreign destination.- Any warehoused provisions and stores may be exported within the period of their warehousing under section 98 without payment of import duty for use on board any conveyance proceeding to a foreign territory.

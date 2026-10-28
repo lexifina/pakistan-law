@@ -1,0 +1,1 @@
+3C. 22,23[Directorate General of Customs Academy of Pakistan (CAP).- The 23[Customs Academy of Pakistan] shall consist of a Director General and as many Directors, Additional Directors, Deputy Directors and Assistant Directors and such other officers as the Board may, by notification in the official Gazette, appoint.

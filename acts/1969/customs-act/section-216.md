@@ -1,0 +1,2 @@
+216. No compensation for loss or injury except on proof of neglect or willful act.- No owner of goods shall be entitled to claim from any officer of customs compensation for the loss of such goods or for damage done to them at any time
+while they remain or are lawfully detained in any custom-house, customs area, wharf or landing place under the charge of any officer of custom, unless it be proved that such loss or damage was occasioned by gross negligence or willful act of such officer.

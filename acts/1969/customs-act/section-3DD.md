@@ -1,0 +1,1 @@
+10[3DD. Directorate General of Post Clearance audit 25[and Internal Audit (PCA&IA)].- The Directorate-General of Post Clearance Audit 25[and Internal Audit (PCA&IA)] shall consist of a Directors-General and as many Directors, Additional Directors, Deputy Directors, Assistant Directors and such other officers as the Board may, by notification in the official Gazette, appoint.]

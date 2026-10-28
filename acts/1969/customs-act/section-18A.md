@@ -1,0 +1,4 @@
+3[18A. Special customs duty on imported goods.- The Federal Government may, by notification in the official Gazette, levy a special customs duty on the importation of such of the goods specified in the First Schedule as are of the same kind as goods produced or manufactured in Pakistan, at a rate not exceeding the rate of duty of excise leviable under 106[the Federal Excise Act, 2005], on the goods produced or manufactured in Pakistan:
+Provided that the exemption of any goods from the whole or any part of the duty of excise for the time being in force shall not prevent the Federal Government from levying a special customs duty on the importation of goods of the same kind:
+Provided further that, for the purposes of the Sales Tax 4[***] Act 1990 (VII of 1990), the special customs duty shall not constitute a part of the value of supply.]
+5[18B. OMITTED.]

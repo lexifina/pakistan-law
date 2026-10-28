@@ -1,0 +1,5 @@
+196L. Definitions.- In this Chapter, unless the context otherwise requires:-
+(i) “associate member” means an associate member appointed under proviso to sub-section (3) of section 196-K;
+(ii) “case” means any proceedings initiated under section 193, 194-A or 195-A and pending with any authority, court or tribunal on the date of making the application under sub-section (1) of section 196-N: Provided that the proceedings relating to smuggling of narcotics or narcotic and psychotropic substances shall not be proceedings within the meaning of this clause: Provided further that where an appeal or application for revision has been filed after the period of limitation and which has not been admitted, such appeal or application for revision shall not be deemed to be a proceeding pending within the meaning of this clause;
+(iii) “Chairman” means the Chairman of the Commission;
+(iv) “Commission” means the Indirect Taxes Settlement Commission appointed under section 196-K; and (v) “member” means a member of the Commission and includes the Chairman thereof.
