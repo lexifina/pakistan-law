@@ -1,0 +1,1 @@
+8. Objection to the Letters of Administration and Succession Certificates.—Any person objecting to Letters of Administration or Succession Certificates, as the case may be, after the issuance of the Letters of Administration or Succession Certificates by the Authority, may seek remedies available under any other applicable law.

@@ -1,0 +1,2 @@
+3. Issuance of Letters of Administration or Succession Certificates.—Notwithstanding anything contained in any other law for the time being in force, the Authority may issue Letters of
+Administration or Succession Certificates, as the case may be, to the legal heirs of a deceased in respect of immovable or movable property, in accordance with the Family Registration Certificate maintained by the Authority.

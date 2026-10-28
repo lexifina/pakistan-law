@@ -1,0 +1,1 @@
+10. Bar of jurisdiction.—No court shall exercise jurisdiction till such time the Authority declines to process application for issuance of the Letters of Administration or Succession Certificates by the Legal heirs.

@@ -1,0 +1,3 @@
+4. Establishment of Succession Facilitation Unit.— (1) The Authority shall establish a Succession Facilitation Unit for the purpose of receipt, processing and assessment of applications for grant of Letters of Administration and Succession Certificates.
+(2) For the purpose of sub-section (1), the Authority may notify and of its existing offices as Succession Facilitation Unit, at such place or places as it may deem appropriate.
+(3) The Authority may, from time to time, appoint officers, staff, experts, consultants, advisers and other employees, on such terms and conditions as it may deem fit, for the purpose of carrying functions under this Act.
