@@ -1,0 +1,1 @@
+15. Employees of the Commission to be public servants.—Every employee of the Commission and every person acting or purporting to act under this Act and the rules and regulations made thereunder shall be deemed to be a public servant within the meaning of section 21 of the Pakistan Penal Code, 1860 (Act XLV of 1860).

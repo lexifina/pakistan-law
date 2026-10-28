@@ -1,0 +1,1 @@
+18. Power to make regulations.—The Commission may, with the approval of the Federal Government, make regulations, not inconsistent with this Act and the rules, for carrying out the purposes of this Act.

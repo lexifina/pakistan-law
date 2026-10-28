@@ -1,0 +1,2 @@
+8. Executive Director of the Commission.—(1) There shall be an Executive Director of the Commission appointed by the Federal Government on such terms and conditions as it may determine.
+(2) The Executive Director shall be the head of the Secretariat of the Commission. The Secretariat shall act as the executing wing of the Commission and shall be responsible for implementation of all the orders, decisions, directives and policies of the Commission.
