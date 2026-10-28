@@ -1,0 +1,1 @@
+5. University open to all classes, creeds, etc. The University shall be open to all persons of either sex of whatever religion, race, creed, class or colour and no citizen of Pakistan shall be denied the privileges of the University on the ground only of sex, religion, race, caste, creed, class, colour or domicile.

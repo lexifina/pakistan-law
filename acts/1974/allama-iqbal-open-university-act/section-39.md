@@ -1,0 +1,1 @@
+39. Removal of difficulties. If any difficulty arises as to the first constitution of any Authority or otherwise in giving effect to the provisions of this Act, the Pro-Chancellor may, on the recommendation of the Vice-Chancellor, give appropriate directions to remove such difficulty.

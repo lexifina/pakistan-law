@@ -1,0 +1,2 @@
+32. Pension, group insurance, gratuity, provident fund and benevolent fund. (1) The University may constitute for the benefit of its officers, Teachers and other employees in such manner and subject to such conditions as may be prescribed, such pension, group insurance, gratuity, provident fund and benevolent fund schemes as it may deem fit.
+(2) Where any provident fund is constituted under this Act, the provisions of the Provident Funds Act, 1925 (XIX of 1925), shall apply to such fund as if it were a Government Provident Fund and the University were the Government.
