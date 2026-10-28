@@ -1,0 +1,3 @@
+44. Power to allow appointment of employees a Government, other universities or
+educational or research institutions to the University.___(1) Notwithstanding any thing contained in the Ordinance the Senate may on the of the Syndicate, allow any post in the University to be filled by appointment, on such terms as the Senate may specify, an employee of the Government or any other university or educational or research institution.
+(2) Where any appointment has been made under this section, the terms and conditions of service of the appointee shall not be less favourable than those admissible to him immediately before such appointment and he shall be entitled to all benefits of his post of service.
