@@ -1,0 +1,5 @@
+28. Regulation of mining, quarrying etc.—(1) If the Federal Government is of the opinion that for the purpose of protecting or preserving any immovable antiquity it is necessary so to do, it may, by notification in the official Gazette, prohibit or restrict, within such area as may be specified therein, mining, quarying, excavating. blasting and other operations of a like nature, or the movement of heavy vehicles, except under and in the accordance with the terms of a licence granted by the [^18][Director-General] and rules, if any, made in this behalf.
+(2) Any owner or occupier of land who sustains any loss by reason of any prohibition or restriction by a notification under sub-section (1) shall be paid reasonable compensation for such loss.
+(3) Whoever contravenes the provisions of sub-section (1) shall be punishable with imprisonment for a term which may extend to one year, or with fine, or with both.
+
+[^18]: Subs. by the Antiquities (Amdt.) Act, 1992 (21 of 1992), s. 2, for “Director”.

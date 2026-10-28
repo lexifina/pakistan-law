@@ -1,0 +1,6 @@
+9. Right of pre‑emption in case of a sale of antiquity.— (1) Where the [^8][Director General] receives any information or otherwise has the knowledge that any antiquity or any immovable property containing an antiquity is offered for sale or is about to be sold, he may, with the approval of the Federal Government, exercise the right of pre‑emption with respect to such antiquity or property and, if he intends to exercise the right, shall give to the person competent to sell a notice in writing according.
+(2) If the [^8][Director General] does not exercise with respect to any antiquity or property the right of pre‑emption within a period of three months from the date of notice given under subsection (l), the antiquity or property may be sold to any person after the expiry of the said period and a notice of such sale shall be given to the [^8][Director General].
+(3) Save as provided in sub-section (2), no antiquity or property in respect of which a notice under sub-section (1) has been given shall be sold to any person.
+(4) All sales in contravention of sub-section (3) shall be void and the antiquity or property so sold shall be forfeited to the Federal Government.
+
+[^8]: Subs. by the Antiquities (Amdt.) Act, 1992 (21 of 1992), s. 2, for “Director”.

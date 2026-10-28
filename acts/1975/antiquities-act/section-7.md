@@ -1,0 +1,1 @@
+7. Acquisition of land containing antiquities.—If the Federal Government has reasonable grounds to believe that any land contains any antiquity it may direct the Provincial Government to acquire such land or any part thereof; and the Provincial Government shall thereupon acquire such land or part under the Land Acquisition Act, 1894 (I of 1894), as for a public purpose.

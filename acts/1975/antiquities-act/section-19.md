@@ -1,0 +1,3 @@
+19. Prohibition of destruction, damage, etc., of protected antiquities.—(1)No person shall, except for carrying out the purposes of this Act, destroy, break, damage, alter, injure, deface or mutilate or scribble, write or engrave any inscription or sign on, any antiquity or take manure from any protected antiquity.
+(2) Whoever contravenes the provisions of sub-section (1) shall be punishable with rigorous imprisonment, for a, term which may extend to three years, or with fine, or with both.
+(3) The court trying an offence under sub-section (2) may direct that the whole or any part of the fine recovered shall be applied in defraying the expenses of restoring the antiquity to the condition in which it was before the commission of the offence.

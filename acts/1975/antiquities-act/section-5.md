@@ -1,0 +1,11 @@
+5. Custody, preservation etc., of certain antiquities.—(1) Where the [^5][Director General] receives any information or otherwise has the knowledge of the discovery or existence of an antiquity of which there is no owner, he shall, after satisfying himself as to the correctness of the information or knowledge, take such steps as he may consider necessary for the custody, preservation and protection of the antiquity.
+(2) Where the owner of an antiquity is not traceable, the [^5][Director General] may, with the approval of the Federal Government, take such as he may consider necessary for the custody, preservation and protection of the antiquity.
+[^6][5A Accidental discovery of antiquity to be reported to [^5][Director-General].—(1) Whoever discovers, or finds accidentally any movable antiquity shall inform the [^5][Director General] within seven days of its being discovered or found and preserve it for the period specified in sub-section (2).
+(2) If, within seven days of his being informed under sub-section (1) of the discovery of a movable antiquity or of a movable antiquity having been found, the [^5][Director General] decides to take over the antiquity for purposes of custody, preservation and protection the person discovering or finding it shall hand it over to the [^4][Director General] or a person authorised by him in writing.
+[^7][(3) Where the Director General decides to take over an antiquity he may pay to the person by whom it is handed over to him such cash reward as the Advisory Committee may deem fit.]
+(4) If any person who discovers or finds any movable antiquity contravenes the provisions of sub- section (1) or sub-section (2), he shall be punishable with imprisonment for a term which may extend to three years, or with fine, or with both, and; the court convicting such person shall direct that the antiquity in respect of which such contravention has taken place shall stand forfeited to the Federal Government.]
+
+[^4]: Subs. by the Antiquities (Amdt.) Act, 1992 (21 of 1992), s. 4, for sub-section (1).
+[^5]: Subs. by the Antiquities (Amdt.) Act, 1992 (21 of 1992), s. 2, for “Director”.
+[^6]: Section 5A ins. by the Antiquities (Amdt.) Ordinance, 1978 (42 of 1978), s. 2.
+[^7]: Subs. by Act. 2l of 1992, s. 5, for sub-section (3).
