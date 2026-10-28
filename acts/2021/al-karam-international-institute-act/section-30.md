@@ -1,0 +1,2 @@
+30. Rules.—(1) An Authority or any other body of the Institute may make and propose to the Syndicate the rules, that are consistent with the Act, statutes and the regulations, to regulate any matter relating to the affairs of the Authority or body including rules to regulate the conduct of business and the time and place of meetings and related matters.
+(2) The Syndicate may, with or without modification, approve the rules and the rules shall become effective upon approval by the Syndicate.

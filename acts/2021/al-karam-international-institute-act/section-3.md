@@ -1,0 +1,6 @@
+## CHAPTER-II
+## THE INSTITUTE
+3. Establishment and incorporation of the Institute.—(1) There shall be established an Institute to be called Al-Karam International Institute consisting of the Chancellor, the Vice- Chancellor, members of the Senate, the Deans, the Chairmen, the Principals and members of the Academic Council and such other officers as may be prescribed or any council, committee and any other body as the Authority may establish.
+(2) The Institute shall be a body corporate with its main campus at Bhera, having perpetual succession and common seal, with power, among others,to acquire, hold and dispose of any property or investment vesting in it and shall said name sue and be sued.
+(3) The Institute shall be competent to acquire and hold property, both movable and immovable, and to lease, sell or otherwise transfer any movable andimmovable property which may have become vested in or been acquired by it.
+(4) Notwithstanding anything contained in any other law but subject to this Act and the Higher Education Commission Ordinance, 2002 (LIII of 2002), the Institute shall have academic, financial and administrative autonomy including the power to employ officers, teachers and other employees on such terms as may be prescribed.

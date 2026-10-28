@@ -1,0 +1,1 @@
+41. First statutes.—Notwithstanding anything to the contrarycontained in this Act, the first statutes of the Institute contained in the Schedule shall be deemed to be statutes framed under section 26 and shall continue to remain in force until amended or replaced under the Act.
