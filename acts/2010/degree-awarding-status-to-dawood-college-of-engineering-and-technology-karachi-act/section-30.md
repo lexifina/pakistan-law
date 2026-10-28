@@ -1,0 +1,3 @@
+30. Increase in fee and financial schemes.__ (1) An increase in any fee or charge that is excess of ten per cent per annum on an annualized basis from the last such increase may not be made except in special circumstances and with the approval of the Chancellor.
+(2) The College shall institute financial aid programmes for students in need, to the extent considered feasible by the Senate given the resources available, so as to enable admission and access to the College and the various opportunities provided by it to be based on merit rather than ability to pay:
+Provided that the College may institute self-finance schemes not covering more than ten per cent of the total number of candidates in any on campus taught course or research based programme of study.

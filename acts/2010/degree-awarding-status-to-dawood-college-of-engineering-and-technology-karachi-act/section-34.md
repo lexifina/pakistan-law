@@ -1,0 +1,4 @@
+34. Service of the College.__ (1)All persons employed by the College in accordance with the terms and conditions of service prescribed by statutes shall be persons in the services of Pakistan for the purposes of any court or tribunal set up by law in terms of Article 212 of the Constitution of the Islamic Republic of Pakistan:
+Provided that any provision as regards the terms and conditions of employment of persons in the service of Pakistan in general or in comparable employment notwithstanding the service of persons employed by the College shall be entirely governed by the terms and conditions prescribed by the relevant statutes.
+(2) An officer, teacher or other employees of the College shall retire from service on the attainment of such age or tenure of service as may be prescribed.
+(3) No adverse change shall be made in the terms and conditions of employinent of any College Teacher in the employment of the College on the date of enforcement of this Act.
