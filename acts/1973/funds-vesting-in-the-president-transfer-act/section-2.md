@@ -1,0 +1,2 @@
+2. Vesting of Funds in Federal Government and their utilisation. ⸻(1) Notwithstanding anything contained in any other law or instrument, the Funds specified in the Schedule, together with income and profits accruing thereon, shall vest in the Federal Government.
+(2) The amounts in the aforesaid Funds shall be utilised for the purposes for which they were raised or for purposes as similar thereto as the circumstances may permit.
