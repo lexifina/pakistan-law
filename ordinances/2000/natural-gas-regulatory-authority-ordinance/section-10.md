@@ -1,0 +1,3 @@
+10. Report of the Authority :___ (1) The Authority shall submit to the Federal Government-
+(a) a report at the end of every financial year but before the last day of December of that year, on the conduct of its affairs including anticipated development for the following year; and
+(b) a report, from time to time on the state of natural gas in the country identifying the ownership, operation, management,; control and efficiency of regulated activities. amount of transmission and distribution capacity, present and future demand of natural gas, cost of regulated activities and other matters relating to natural gas.

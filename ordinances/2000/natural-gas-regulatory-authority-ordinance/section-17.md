@@ -1,0 +1,1 @@
+17. Accounting requirements :___All licensees shall maintain books of accounts in a form prescribed by the Authority so as to enable the Authority to obtain all relevant information as it may require in order to determine that licensee’s total revenue requirement for each financial year to establish or vary any tariff or to exercise any other power contained in section 4.

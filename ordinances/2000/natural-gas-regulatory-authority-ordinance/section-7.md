@@ -1,0 +1,1 @@
+7. Recruitment of employees :___To carry out the purposes of this Ordinance the Authority may, from time to time, employ officers, members of its staff, experts, consultants, advisers and other employees on such terms and conditions as it may be deem fit.
