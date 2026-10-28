@@ -1,0 +1,1 @@
+15. Borrowing power.—The Corporation may, with the previous sanction of the Federal Government, and on such terms and conditions as may be approved by the Government, borrow in Pakistan currency or foreign currency.

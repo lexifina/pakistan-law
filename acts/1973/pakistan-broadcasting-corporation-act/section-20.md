@@ -1,0 +1,1 @@
+20. Liquidation of Corporation.—No provision of law relating to the winding up of companies shall apply to the Corporation and the Corporation shall not be wound up save by an order of the Federal Government and in such manner as the Federal Government may direct.
