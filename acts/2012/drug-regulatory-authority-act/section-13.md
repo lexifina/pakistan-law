@@ -1,0 +1,1 @@
+13. Invitation by Board. ___ The Board may invite any person to attend its meeting or deliberations including any meeting of the Appellate Board or its Committees constituted under section 12, for the purpose of advising it on any matter under discussion but such person shall have no right to vote at the meeting or deliberation.

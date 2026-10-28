@@ -1,0 +1,1 @@
+24. Power to make regulations. ___ The Authority may, by notification in the official Gazette, with the approval of the Board, make regulations, for its internal working and terms and condition of employees not inconsistent with the provisions of the Act or the rules, for the carrying out of its functions under this Act.

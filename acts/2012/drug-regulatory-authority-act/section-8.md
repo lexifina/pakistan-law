@@ -1,0 +1,1 @@
+8. Delegation of powers. ___ The Authority may with the approval of the Board, by general or special order in writing subject to such conditions or limitations, delegate any of its powers and functions to any of its officers as it may deem appropriate.

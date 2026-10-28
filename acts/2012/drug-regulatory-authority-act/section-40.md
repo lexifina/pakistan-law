@@ -1,0 +1,5 @@
+40. Repeal and Savings. ____ (1) The Drug Regulatory Agency of Pakistan Ordinance, 2012 (Ordinance I of 2012) is hereby repealed.____
+(2) Notwithstanding the repeal of the Drug Regulatory Agency of Pakistan Ordinance, 2012 (Ordinance I of 2012) by sub-section (1).⸻
+(a) any license to manufacture or any registration or maximum retail price fixed for sale issued thereunder to any person, or for the revalidation of an license or registration issued earlier under the Act, for which an application has been made to the Licensing Board, Registration Board, and Drug Pricing Committee as the case may be within the specified time, shall continue to be valid;
+(b) any license for import or export or sale of drugs issued thereunder to any person, shall, unless it expires earlier under the terms thereof, continue to be valid for such periods as the Federal Government, may by notification in the official Gazette, specify in this behalf.
+(3) All such actions of the Federal Government as mentioned in sub-section (2) since 20th April, 2010 shall be deemed to have validly made under this Act.

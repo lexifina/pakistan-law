@@ -1,0 +1,1 @@
+42. Winding up of Authority. ____ No provision of any law relating to winding up of bodies corporate shall apply to the Authority. The Authority shall only be wound up by the law to be enacted by the Parliament for winding up of the Authority.

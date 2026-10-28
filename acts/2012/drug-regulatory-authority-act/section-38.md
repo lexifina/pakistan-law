@@ -1,0 +1,1 @@
+38. Act X of 2012 not to apply to the Authority. ____ Nothing contained in the Industrial Relation Act (X of 2012), shall apply to or in relation to the Authority or any of the officers and employees of the Institute.

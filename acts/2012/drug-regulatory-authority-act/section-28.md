@@ -1,0 +1,1 @@
+28. Offences by companies etc.___Where the person guilty of an offence under this Act or the Drugs Act, 1976 (XXXI of 1976), is a company, corporation, firm or institution, every director, partner and employee of the company, corporation, firm or institution with whose knowledge or consent the offence was committed shall be guilty of the offence.
