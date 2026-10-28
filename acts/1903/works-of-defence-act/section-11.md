@@ -1,0 +1,1 @@
+11. Application of certain sections of the Pakistan Penal Code. Every person required to make or deliver a statement under section 9 or section 10 shall be deemed to be legally bound to do so within the meaning of sections 175 and 176 of the Pakistan Penal Code (XLV of 1860).

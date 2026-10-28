@@ -1,0 +1,1 @@
+8. Land to be marked out, measured, registered and planned. As soon as may be after the publication of the declaration aforesaid, the Collector shall cause the land to be marked out and measured, and shall also prepared a register and a detailed plan, which shall be on a scale not smaller than six inches to the mile, showing accurately every building, tree and other obstruction.
