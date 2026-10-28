@@ -1,0 +1,1 @@
+3. Transfer of accounting functions.— On the commencement of this Ordinance, the Auditor- General shall, by order published in the official Gazette, transfer accounting functions to the Controller-General of Accounts.

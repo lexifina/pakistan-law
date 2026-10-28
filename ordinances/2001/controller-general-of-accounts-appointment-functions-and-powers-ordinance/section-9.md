@@ -1,0 +1,1 @@
+9. Delegation of Powers.— The Controller General may, by general of special order, direct that all or any of his powers under this Ordinance shall, under such conditions, if any, as may be specified, be exercisable by any officer or officers of his organization.

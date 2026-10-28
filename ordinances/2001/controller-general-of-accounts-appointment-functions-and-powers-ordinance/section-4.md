@@ -1,0 +1,1 @@
+4. Controller General of Accounts.—There shall be a Controller General of Accounts who shall be appointed by the President from amongst the officers of the Accounts Group and shall be a BPS 22 officer.
