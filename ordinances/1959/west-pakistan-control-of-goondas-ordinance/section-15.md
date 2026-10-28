@@ -1,0 +1,1 @@
+15. Publication of declaration. An order under section 13 declaring any person to be a goonda shall be published along with a statement of the order or orders if any made in respect of such person under section 14, in such manner and containing such details as may be prescribed.

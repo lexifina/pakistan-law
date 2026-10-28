@@ -1,0 +1,2 @@
+3. Powers of Tribunal. (1) For the purpose of conducting inquiries under this Ordinance, the Tribunal shall have all the powers of a District Magistrate under the Code of Criminal Procedure, 1898 (X of 1898), for issuing summonses and warrants, for compelling attendance of witnesses and production of documents for the examination of persons complained against and witnesses, and for issuing commissions for the examination of witnesses.
+(2) Proceedings before the Tribunal shall be deemed to be judicial proceedings.

@@ -1,0 +1,1 @@
+17. Discharge of person informed against. If, on an inquiry under section 10, it is proved that action under section 13 is not necessary the Tribunal shall make an entry on the record to that effect, and if such person is in custody only for the purposes of the inquiry, shall release him, or, if such person is not in custody, shall discharge him.
