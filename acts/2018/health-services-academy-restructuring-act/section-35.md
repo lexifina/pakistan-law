@@ -1,0 +1,2 @@
+35. Benefits and insurance.— (1) The HSA shall constitute schemes, as may be prescribed, for benefit of its officers, teachers and other employees providing for post-employment benefits as well as health and life insurance while in service.
+(2) Where any provident fund has been constituted under this Act, the provisions of the Provident Funds Act, 1925 (XIX of 1925) shall apply to such funds as if it were the Government provident fund.

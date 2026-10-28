@@ -1,0 +1,10 @@
+8. Chancellor.— (1) The President of the Islamic Republic of Pakistan shall by virtue of his office be the Chancellor of the HSA as well as the Chairperson of the Senate.
+(2) The members of the Senate as well as the Vice-Chancellor shall be appointed by the Chancellor from amongst the persons recommended by the representation committee set up for this purpose or the search committee established in accordance with this Act and the statutes, as the case may be, along with those elected.
+(3) Every proposal to confer an honorary degree shall be subject to confirmation by the Chancellor.
+(4) If the Chancellor is satisfied that serious irregularity or mismanagement with respect to the affairs of the HSA has occurred, he may.—
+(a) as regards proceedings of the Senate, direct that specified proceedings be re-considered and appropriate action taken within one month of the direction having been issued:
+Pre vided that if' the Chancellor is satisfied that either no re-consideration has been carried out or that the re-consideration has failed to address the concern expressed, he may after calling upon the Senate to show cause in writing, appoint a five-member review anel to examine and report to the Chancellor on the functioning of the Senate. The report of the review panel shall be submitted within such time as may be prescribed by the Chancellor. The review panel shall be drawn from persons of eminence in academics and in the fields of law, accountancy and administration; and
+(b) as regards proceedings of any Authority or with respect to matters within 1he competence of any Authority other than the Senate, direct the Senate to exercise powers under section 20.
+(5) The Chancellor may cause a visitation or inquiry to be made in respect of any matter connected with affairs of the HSA and appoint any person as he may deem fit fer the purpose.
+(6) The Chancellor may, on receipt of a report, issue such directions as he thinks fit and the vice-Chancellor shall comply with such directions.
+(7) The Chancellor may delegate any of his powers to Vice-Chancellor from time to time as deemed appropriate.
