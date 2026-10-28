@@ -1,0 +1,2 @@
+11. Suspension of remittances to a Foreign Advertiser.__ The payment intermediary shall suspend the remittances of proceeds of such foreign vendors if it is reported to them by Commissioner that such vendors are advertising continuously for one hundred and twenty days without the payment of this tax by the foreign vendor:
+Provided that this suspension shall be in addition to the recovery under section 7 for violation of section 6.
