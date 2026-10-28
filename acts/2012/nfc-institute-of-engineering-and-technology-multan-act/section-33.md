@@ -1,0 +1,4 @@
+33. Terms of service and remedy.__ (1) Any person aggrieved by the decision or order of the Institute may seek remedy from the Civil Court of competent jurisdiction:
+Provided that any provision as regards the terms and conditions of employment of persons in the service of Pakistan in general or in comparable employment notwithstanding the service of persons employed by the Institute shall be entirely governed by the terms and conditions prescribed by the relevant statutes.
+(2) An officer, teacher or other employee of the Institute shall retire from service on the attainment of such age or tenure of service as may be prescribed.
+(3) No adverse change shall be made in the terms and conditions of employment of any Institute teacher in the employment of the Institute on the date of commencement of this Act.
