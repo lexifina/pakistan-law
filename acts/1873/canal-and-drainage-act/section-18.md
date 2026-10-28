@@ -1,0 +1,5 @@
+18. Persons using water course to construct works for passing water across roads, etc.
+The Divisional Canal-officer may issue an order to the persons using any water-course to construct suitable bridges, culverts or other works for the passage of the water of such watercourse across any public road, canal or drainage-channel in use before the said water-course was made, or to repair any such works.
+Such order shall specify a reasonable period within which such construction or repairs shall be completed ;
+If they fail, Canal-officer may construct. and if, after the receipt of such order, the persons to whom it is addressed do not, within the said period, construct or repair such works to the satisfaction of the said Canal-officer, he may, with the previous approval of the Superintending Canal-officer, himself construct or repair the same ;
+And recover cost. and if the said persons do not, when so required, pay the cost of such construction or repairs as declared by the Divisional Canal officer, the amount shall, on the demand of the Divisional Canal-officer, be recoverable from them by the Collector as if it were an arrear of land revenue.

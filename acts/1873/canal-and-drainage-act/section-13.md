@@ -1,0 +1,2 @@
+13. Compensation when due.—All sums of money payable for compensation under this Part shall become due three months after the claim for such compensation is made in respect of the stoppage, diminution or damage complained of,
+Interest. and simple interest at the rate of six per cent. per annum shall be allowed on any such sum remaining unpaid after the said three months, except where the non-payment of such sum is caused by the wilful neglect or refusal of the claimant to receive the same.

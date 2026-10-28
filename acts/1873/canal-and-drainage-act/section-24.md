@@ -1,0 +1,3 @@
+24. Objections to construction or transfer applied for. Within thirty days from the publication of a notice under section 22 or section 23, as the case may be, any person interested in the land or water-course to which the notice refers may apply to the Collector by petition, stating his objection to the construction or transfer for which application has been made.
+The Collector may either reject the petition or may proceed to inquire into the validity of the objection, giving previous notice to the Divisional Canal-officer of the place and time at which such inquiry will be held.
+The Collector shall record in writing all orders passed by him under this section and the grounds thereof.

@@ -1,0 +1,1 @@
+72. Compensation to person injured.—Whenever any person is fined for an offence under this Act, the Magistrate may direct that the whole or any part of such fine may be paid by way of compensation to the person injured by such offence.

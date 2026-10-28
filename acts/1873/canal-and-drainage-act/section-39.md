@@ -1,0 +1,1 @@
+39. Owner’s rate, when not chargeable. No owner’s rate shall be chargeable either on the owner or occupier of land temporarily assessed to pay land-revenue at irrigation-rates, during the currency of such assessment.

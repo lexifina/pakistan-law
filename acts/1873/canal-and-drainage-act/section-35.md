@@ -1,0 +1,2 @@
+35. Charges recoverable in addition to penalties. All charges for the unauthorised use or for waste of water may be recovered in addition to any penalties incurred on account of such use or waste.
+Decision of questions under sections 33 and 34. All questions under section 33 or section 34 shall be decided by the Divisional Canal-officer, subject to an appeal to the Head Revenue-officer of the district, or such other appeal as may be provided under section 75.

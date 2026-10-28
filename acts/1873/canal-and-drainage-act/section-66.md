@@ -1,0 +1,1 @@
+66. Liability of labourers under requisition.—When any requisition has been made on any person named in the said list, every labourer ordinarily resident within the village or estate of such person shall be liable to supply, and to continue to supply, his labour, for the purposes aforesaid.

@@ -1,0 +1,1 @@
+30. Procedure applicable to occupation for extensions and alterations.—The procedure hereinbefore provided for the occupation of land for the construction of a water-course shall be applicable to the occupation of land for any extension or alteration of a water-course, and for the deposit of soil from water-course clearances.

@@ -1,0 +1,2 @@
+61. Disposal of claims to compensation. Whenever, in pursuance of a notification made under section 55, any obstruction is removed or modified,
+or whenever any drainage-work is carried out under section 57, all claims for compensation on account of any loss consequent on the removal or modification of the said obstruction or the cons-truction of such work may be made before the Collector, and he shall deal with the same in the manner provided in section 10.

@@ -1,0 +1,3 @@
+73. Power to arrest without warrant.—Any person in charge of or employed upon any canal or drainage-work may remove from the lands or buildings belonging thereto, or may take into custody without a warrant and take forthwith before a Magistrate or to the nearest police-station, to be dealt with according to law, any person who, within his view, commits any of the following offences:—
+(1) wilfully damages or obstructs any canal or drainage-work ;
+(2) without proper authority interferes with the supply or flow of water in or from any canal or drainage-work, or in any river or stream, so as to endanger, damage or render less useful any canal or drainage-work.
