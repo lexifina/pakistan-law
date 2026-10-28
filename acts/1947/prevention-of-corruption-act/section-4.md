@@ -1,0 +1,10 @@
+[^8][* * * * * * *]
+4. Presumption where public servant accepts gratification other than legal
+remuneration.⸺ [^9][(1)] Where in any trial of an offence punishable under section 161 or section 165 of the Pakistan Penal Code (XLV of 1860), it is proved that an accused person has accepted or obtained, or has agreed to accept or attempted to obtain, for himself or for any other person, any gratification (other than legal remuneration) or any valuable thing from any person, it shall be presumed unless the contrary is proved that he accepted or obtained, or agreed to accept or attempted to obtain, that gratification or that valuable thing, as the case may be, as a motive or reward such as it mentioned in the said section 161, or, as the case may be, without consideration or for a consideration which he knows to be inadequate:
+[^10][* * * * * * *]
+[^10][(2) Where in any trial of an offence punishable under section 165A of the Pakistan Penal Code (Act XLV of 1860), it is proved that any gratification (other than legal remuneration) or any valuable thing has been given or offered to be given or attempted to be given by any accused person, it shall be presumed, unless the contrary is proved, that he gave or offered to give or attempted to give that gratification or that valuable thing, as the case may be, as a motive or reward such as is mentioned in section 161 of the said Code, or, as the case may be, without consideration or for a consideration which he knew to be inadequate.
+(3) Notwithstanding anything contained in sub-sections (1) and (2), the court may decline to draw the presumption referred to in either of the said sub-sections if the gratification or thing aforesaid is, in its opinion, so trivial that no inference of corruption may fairly be drawn.]
+
+[^8]: Subs. and omitted by the Criminal Law Amendment Act, 1953 (Act No. XXXVII of 1953), s. 5.
+[^9]: Section 4 re-numbered as sub-section (1) of that section, by the Criminal Law Amendment Act, 1953 (Act No. XXXVII of 1953), s. 5.
+[^10]: Omitted and added ibid., s. 5.
