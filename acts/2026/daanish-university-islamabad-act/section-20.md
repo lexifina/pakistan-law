@@ -1,0 +1,8 @@
+20. Senate.—(1) The general supervision and control of the affairs, and power to lay down polices of the University shall vest in the Senate. The members of the Board of Trustees of Daanish University Trust, a Not-For-Profit Trust registered under the Punjab Trust Act, 2020 shall be the members of the Senate of the University. The Chancellor of the University shall also serve as the chairperson of the Senate.
+(2) The nominated members of the Senate shall hold office for a period of four years and shall be eligible for re-nomination on the expiry of his term unless earlier terminated under the law.
+(3) The office of a nominated member of the Senate shall become vacant if he ceases to be a member of the board of trustees of the Daanish University Trust or resigns or fails to attend three consecutive meetings of the Senate without sufficient cause or leave of absence.
+(4) A casual vacancy in the office of a member of the Senate shall be filled by a person nominated by the nominating authority which had nominated the member whose vacancy is to be filled.
+(5) The quorum for a meeting of the Senate shall be two-thirds of the total number of its members. Every member shall have one vote. In the event of a tie, the Chairman shall have and may exercise a second or casting vote.
+(6) The Senate shall meet at least twice in a calendar year.
+(7) No act or proceedings of the Senate shall be invalid by reason only of the existence of a vacancy in or any defect in the constitution of the Senate.
+(8) Service on the Senate shall be on an honorary basis, however, actual expenses may be reimbursed as prescribed.

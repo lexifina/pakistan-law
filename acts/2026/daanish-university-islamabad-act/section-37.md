@@ -1,0 +1,1 @@
+37. Benefits and insurance.—The University shall constitute for the benefit of its officers, professors and other employees' schemes, as may be prescribed, for the provision of post-employment benefits as well as health and life insurance while in service.

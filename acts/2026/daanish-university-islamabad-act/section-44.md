@@ -1,0 +1,2 @@
+44. First Statutes.—Notwithstanding anything contained in this Act, the Statutes set out in the Schedule shall be deemed to have been respectively framed or made under Section 27 of this Act, and shall remain in force until they are amended or replaced by new Statutes framed or made by the Senate in accordance with this Act and upon such replacement, the Statutes set out in the Schedule shall cease to have effect to the extent of replacement.
+_________

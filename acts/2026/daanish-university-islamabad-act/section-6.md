@@ -1,0 +1,2 @@
+6. Teaching at the University.—(1) All recognized teaching, professional and technical training in various courses shall be conducted by the University in the prescribed manner which may include lectures, tutorials, discussions, seminars, demonstrations, online and blended learning and other methods of instruction as well as practical work in the laboratories, hospitals, workshops and other governmental or private organizations.
+(2) The Authority responsible for organizing recognized teaching shall be such as may be prescribed.
