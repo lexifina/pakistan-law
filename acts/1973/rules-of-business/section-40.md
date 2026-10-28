@@ -1,0 +1,1 @@
+40. Action by Divisions.-- As soon as any communication (whether a notice, intimation, a Bill or any other paper) is received from the appropriate Secretariat or any other authority regarding the business or affairs of the Assembly, the Senate or the joint sitting, the receiving officer shall at once bring it to the notice of the Secretary and the Minister.

@@ -1,0 +1,7 @@
+## PART I -- MISCELLANEOUS PROVISIONS
+55. Protection and communication of official information.--[^37](1) Information acquired from official documents relating to official matters shall only be communicated by a government servant or, as the case may be, designated official to the press, to non-officials, or even to officials belonging to other government offices in accordance with the procedure laid down in section 3 of the Freedom of Information Ordinance, 2002 (XCVI of 2002).
+(2) Detailed instructions shall be issued by the Cabinet Division for the treatment and custody of official documents and information of a classified nature.
+(3) Ordinarily all official news and information shall be conveyed to the press and the public through the Press Information Department or the External Publicity Wing of the Information and Broadcasting Division. The manner in which this may be done shall be prescribed by general or special orders to be issued by the Information and Broadcasting Division.
+(4) Only Ministers and Secretaries, and such officers as may be authorized, shall act as official spokesmen of the Government. No statement involving foreign policy shall normally be made by a person (other than the Minster of State for Foreign Affairs and the Prime Minister) without prior consultation with the Foreign Affairs Division.
+
+[^37]: Substituted vide SRO 709(I)/2003 (F.No. 4-8/2003-Min), dated 15.7.2003

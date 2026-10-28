@@ -1,0 +1,6 @@
+44. Motions.--(1) The Division concerned shall submit an official motion, together with a notice, to the Minister-in-Charge and after he has signed it, shall forward it to the appropriate Secretariat.
+Note:- Official motions may be for the election of members to a Standing Committee or a statutory body, raising discussion on a particular matter, etc.
+(2) On receipt of a non-official motion from the appropriate Secretariat, the Division concerned shall consider whether a discussion of the motion, or any part thereof, would be detrimental to the public interest.
+(3) If the Division is of opinion that discussion of a motion or any part thereof would be detrimental to the public interest or that the motion or any part thereof involves a point of important policy which requires the orders of the Prime Minister or the Cabinet under these rules, it shall, as soon as the motion is admitted, submit the case for the orders of the Prime Minister or, as the case may be, the Cabinet and shall in doing so state the reasons for holding such opinion.
+(4) The Division concerned shall prepare regarding each motion, whether official or non-official, a brief for the use of the Minister.
+(5) After a motion has been adopted, the appropriate Secretariat shall forward it to the Division concerned for appropriate action.

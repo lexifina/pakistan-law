@@ -1,0 +1,1 @@
+47. Committees of Assembly or Senate.--Standing or ad-hoc Committees may be constituted by the Assembly or the Senate to advise the Divisions concerned on general administrative policy or a special problem.

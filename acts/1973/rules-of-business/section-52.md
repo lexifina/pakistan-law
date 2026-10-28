@@ -1,0 +1,3 @@
+52. Failure of constitutional machinery in a Province.--(1)The Proclamation in case of failure of constitutional machinery in a Province shall be issued by the Cabinet Division in terms of rule 15-A.
+(2) The Division concerned shall keep the provisions of clauses (3) to (6) of Article 234 in view for making legislation, if required, while a Proclamation of Emergency is in force and for submission of the Proclamation to the joint sitting or the Senate, as the case may be.
+(3) The provisions of rules 27, 28, 29 and 30 shall apply mutatis mutandis for the purpose of legislation while a Proclamation of Emergency is in force.

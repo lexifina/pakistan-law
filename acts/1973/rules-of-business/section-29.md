@@ -1,0 +1,1 @@
+29. Official and non-official amendments to Bills.-- The procedure regarding official amendments shall be the same as for official bills and that for non-official amendments the same as for non-official Bills.
