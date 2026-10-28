@@ -1,0 +1,1 @@
+46. Bar of jurisdiction. No Court shall have jurisdiction to entertain any proceeding, grant any injunction or make any order in relation to anything done in good faith or purported to have been done or intended to be done under this Ordinance.

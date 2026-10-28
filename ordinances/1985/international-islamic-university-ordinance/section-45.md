@@ -1,0 +1,1 @@
+45. First Statutes. Notwithstanding anything contained in this Ordinance, the Statutes set out in the Schedules shall be deemed to be the Statutes framed under section 28 and shall remain in force until they are amended or replaced by new Statutes framed in accordance with this Ordinance.

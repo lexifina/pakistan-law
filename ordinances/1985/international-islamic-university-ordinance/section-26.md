@@ -1,0 +1,1 @@
+26. The academic and administrative staff. The academic and administrative staff of the University shall be selected with a view to achieve its stated objectives and the basic criteria for their selection shall be the highest standards of intellectual competence, integrity, efficiency and commitment to Islam.

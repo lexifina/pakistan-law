@@ -1,0 +1,1 @@
+47. Indemnity. No suit or legal proceedings shall lie against the Government, the University or any Authority, officer or employee of Government or the University or any person, in respect of anything which is done, or purported to have been done in good faith or is intended to, or has been done under this Ordinance.

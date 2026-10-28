@@ -1,0 +1,1 @@
+30. Rules. The Board of Governors may prescribe rules for implementation of Statutes or Regulations where so required under the Statutes and the Regulations or make rules to regulate any matter relating to the affairs of the University which under this Ordinance are not specifically required to be provided for by the Statutes or the Regulations.

@@ -1,0 +1,1 @@
+24. Constitution, functions and powers of other Authorities. Subject to the provisions of this Ordinance, the constitution, functions and powers of the Authorities for which no specific provision or insufficient provision has been made in this Ordinance shall be such as may be prescribed by the Statutes.

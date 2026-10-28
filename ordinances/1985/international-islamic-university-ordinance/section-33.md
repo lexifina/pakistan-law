@@ -1,0 +1,1 @@
+33. Accounts. The accounts of the University shall be maintained and audited once a year under financial rules to be prescribed by the Board of Governors in consultation with the Finance and Planning Committee.
