@@ -1,0 +1,4 @@
+6. Enforcement of foreign arbitral award.⸻(1) Unless the Court pursuant to section 7, refuses the application seeking recognition and enforcement of a foreign arbitral award, the Court shall recognise and enforce the award in the same manner as a judgment or order of a court in Pakistan.
+(2) A foreign arbitral award which is enforceable under this Act, shall be treated as binding for all purposes on the persons as between whom it was made, and may accordingly be relied on by any of those persons by way of defence, set off or otherwise in any legal proceedings in Pakistan.
+7. Unenforceable foreign arbitral awards.⸻ The recognition and enforcement of a foreign arbitral award shall not be refused except in accordance with Article V of the Convention.
+8. Inconsistency. ⸻ In the event of any inconsistency between this Act and the Convention, the Convention shall prevail to the extent of the inconsistency.
