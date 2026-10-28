@@ -1,0 +1,10 @@
+[^28][9. Disbursement from Zakat Funds.— (1) The Central Zakat Council shall prepare budget for each financial year and may, from the Central Zakat Fund, make disbursements and transfer funds to Provincial Zakat Fund in such form and manner as maybe prescribed and as would help in ensuring satisfaction of the needs of the needy and the poor throughout the country as far as possible, on a uniform basis.
+(2) A Provincial Council may from the Provincial Zakat Fund make disbursements and transfer funds to [^29][the Personal Ledger Account of the] District Zakat Fund on the basis of population in such form and manner as may be prescribed and as would help in ensuring satisfaction of the needs of the needy and the poor throughout its jurisdiction, as for as possible, on a uniform basis :
+Provided that a Provincial Council may, in exceptional circumstances, transfer funds from the Provincial Zakat Fund to the Central Zakat Fund.
+(3) A District Committee may make disbursements and transfer funds [^29][through crossed cheques] from District Zakat Fund to a Local Zakat Fund or to an institution or incur other administrative expenditure subject to such conditions as may be prescribed and may, whenever directed by the Central Council, transfer any funds surplus to its needs to the Provincial Zakat Fund.
+(4) A Local Committee may disburse or incur expenditure from the Local Zakat Fund [^29][through crossed cheques] as may be prescribed :
+Provided that a Local Committee may, if so required by the Provincial Council or the District Committee, transfer any funds surplus to its needs from the Local Zakat Fund to the Provincial Zakat Fund or, as the case may be, District Zakat Fund surplus to its needs :
+Provided further that the Central Council or Provincial Council or a District Committee shall disburse Zakat through a Bank or a Post Office or any other financial institution as may be determined by the Central Zakat Council in such form and manner as may be prescribed.]
+
+[^28]: Subs. by Act No. X of 1997 ss. 6, 7 and 8.
+[^29]: Ins. by Ordinance No. LIX of 2000,s.3.
