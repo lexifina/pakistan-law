@@ -1,0 +1,3 @@
+13. Transfer of pending cases.—(1) On commencement of this Act,—
+(a) all petitions, suits, execution petitions and all other proceedings pending in any other court, in which overseas Pakistani is a party, shall stand transferred to the special court and on transfer of the cases, the special court may proceed with the cases from the stage at which it was pending; and
+(b) all appeals, revisions, in which any or all the parties are overseas Pakistanis, pending before any court after the commencement of this Act, shall stand transferred to special bench or benches of the concerned High Court for adjudication.

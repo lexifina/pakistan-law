@@ -1,0 +1,1 @@
+16. Application of the Limitation Act, 1908 (Act IX of 1908).—Save as otherwise provided in this Act, the provisions of the Limitation Act,1908 (Act IX of 1908) shall apply to all cases instituted or filed in special court after coming into force of this Act.

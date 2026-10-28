@@ -1,0 +1,3 @@
+5. E-filing of petitions, etc.—(1)The Islamabad High Court shall make rules to enable filing of petitions, responses, applications, hearing of parties including recording of evidence under this Act and all matters connected therewith or incidental thereto through electronic means.
+(2) Subject to the Public Finance Management Act, 2019 and to carry out purposes of this Act, there shall be maintained by designated officer or the special court in the prescribed manner, bank account for deposit of court fee and other charges manually or through modern devices including e-filing etc.
+(3) There shall be maintained physical and electronic record of all the cases filed and pending before the special courts along-with the details of the proceedings that have taken place therein.
