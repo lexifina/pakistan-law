@@ -1,0 +1,1 @@
+20. Exemption from taxes.—Notwithstanding anything contained in the Income Tax Ordinance, 2001 (XLIX of 2001) or any other fiscal law for the time being in force, the Institute shall not be liable to pay any tax on its income, capital profit, wealth or gain.

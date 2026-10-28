@@ -1,0 +1,1 @@
+23. Removal of difficulties.—If any difficulty arises in giving effect to any provisions of this Act, the President of the Board may make such order not inconsistent with the provisions of this Act as may appear to him to be necessary or expedient for the purpose of removing the difficulty.

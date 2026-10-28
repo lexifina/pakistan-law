@@ -1,0 +1,1 @@
+17. Submission of Annual report.—The Board shall submit to the Parliament an annual report containing the activities of the Institute during a year. The report shall also highlight the objects of the Act achieved by the Institute and shall also give a picture of the finances and future plans of the Institute.

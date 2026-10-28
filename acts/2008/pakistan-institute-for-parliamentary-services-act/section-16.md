@@ -1,0 +1,1 @@
+16. Delegation of Powers.—The Board may by general or special order in writing delegate any of its powers to any of its members, the Executive Director or any Officer of the Institute subject to such condition as it may deem fit to impose.

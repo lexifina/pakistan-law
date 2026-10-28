@@ -1,0 +1,1 @@
+22. Bar of Jurisdiction.—No court or tribunal shall have jurisdiction to entertain any proceedings, grant any injunction or make any order in relation to anything done in good faith or purported to have been done in good faith or intended to be done under this Act.
