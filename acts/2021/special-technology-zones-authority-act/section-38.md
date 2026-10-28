@@ -1,0 +1,1 @@
+38. Act to override other laws.___(1) The provisions of this Act shall have effect notwithstanding anything to the contrary contained in any other law for the time being in force and any such law shall, to the extent of any in-consistency, cease to have any effect on the commencement of this Act.

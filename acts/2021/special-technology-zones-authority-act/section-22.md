@@ -1,0 +1,3 @@
+22. Alternate dispute resolution mechanism.___(1) The Authority shall prescribe a legally binding and enforceable alternate dispute resolution mechanism consistent with the applicable laws for the settlement of all disputes arising among and between the Authority, zone developers or zone enterprises.
+(2) All agreements between zone developers, its operators and sub-consultants, and zone enterprises shall be governed by the afore-stated alternate dispute resolution mechanism prescribed by the Authority:
+Provided that nothing herein shall preclude the Authority or any of its sub-ordinate entities or companies from entering into international arbitration agreements with foreign zone developers and zone enterprises.

@@ -1,0 +1,1 @@
+30. Delegation of powers.___(1) The Authority may delegate any of its powers and assign its functions subject to such conditions as it may deem fit to impose, to the Chairperson, Approvals Committee or any other committee.

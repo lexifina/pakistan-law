@@ -1,0 +1,2 @@
+19. Protection of incentives.___(1) Incentives, benefits and protections under this Act shall be additional to all incentives, benefits and protections, which may be applicable to zone developers and zone enterprises under generally applicable legislation and international agreements of Pakistan.
+(2) These incentives shall not be withdrawn or modified or altered prematurely and retrospectively and any change therein shall be to the advantage of the zone developer and zone enterprise and not otherwise. .,

@@ -1,0 +1,14 @@
+24. Appeals to Special Technology Zones Appellate Tribunals.___(1) Any zone developer or zone enterprise or a concerned person aggrieved by any order of the Authority may prefer an appeal before the Special Technology Zones Appellate Tribunal, within thirty days of the order, in accordance with the prescribed rules.
+(2) An appeal to the Special Technology Zones Appellate Tribunal shall be in such form, contain such particulars and be accompanied by such documents and fees as may be prescribed under this Act.
+(3) The Special Technology Zones Appellate Tribunal shall consist of a Chairman, who shall be a legal expert, and two members, one being a technical expert and the other being a financial expert, who shall be persons of ability, integrity and have special knowledge and professional experience of not less than ten years in the fields of law, economics, technology or finance.
+(4) The Chairman and Members of the Special Technology Zones Appellate Tribunal shall hold office for a period of three years and shall be eligible for re-appointment for a similar term or terms and shall cease to hold office on attaining the age of sixty eight years or the expiry of the term whichever is earlier.
+(5) The terms, conditions and appointment of the Special Technology Zones Appellate Tribunal Chairman and other members shall be in the manner as may be prescribed this Act, which may be made and shall take effect, notwithstanding anything contained in any other law or rules for the time being in force.
+(6) The Chairman and the members shall be entitled to such salary and other terms and conditions of service as the Authority may prescribe.
+(7) The Special Technology Zones Appellate Tribunal shall decide an appeal expeditiously but not later than three months of its presentation to the Tribunal.
+(8) The Special Technology Zones Appellate Tribunal shall, for the purpose of deciding an appeal, be deemed to be a civil court and shall have the same powers as are vested in such court under the Code of Civil Procedure, I908 (Act V of 1908), including the powers of___
+(a) enforcing the attendance of any person and examining him on oath;
+(b) compelling the production of documents; and
+(c) issuing commissions for the examination of witnesses and documents.
+(9) It shall be sufficient for the Special Technology Zones Appellate Tribunal to establish, or to be satisfied as to any matter on the standard of proof applicable to civil proceedings in summary manner in a court of law.
+(10) The Special Technology Zones Appellate Tribunal’s determinations or decisions under this Act shall be deemed to be the decrees of a civil court under the Code of Civil Procedure, 1908 (Act V of 1908).
+Explanation.___ It is clarified that the timeframe for rendering a decision of thee months is mandatory and not directory.
