@@ -1,0 +1,1 @@
+13. Removal of difficulties.___ If any difficulty arises in giving effect to any provision of this Act within one year of its commencement, the Federal Government, in consultation with the Chief Justice of the Islamabad High Court, may remove such difficulty.

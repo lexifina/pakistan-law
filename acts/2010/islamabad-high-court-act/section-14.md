@@ -1,0 +1,1 @@
+14. Amendment of Code of Criminal Procedure.___ In the Code of Criminal Procedure, 1898 (Act V of 1898), in section 4, in clause (j), after the word "Province" the words "and the Islamabad Capital Territory" shall be added.

@@ -1,0 +1,2 @@
+9. Transfer of proceedings.___ All appeals, petitions and other proceedings pending in the Lahore High Court or in any other High Court in relation to Islamabad Capital Territory immediately before the appointed date shall stand transferred to the Islamabad High Court.
+Explanation.___ For the purposes of this section or any other provision of this Act where subject so requires, the expression "Lahore High Court" includes Rawalpindi Bench of the Lahore High Court.
