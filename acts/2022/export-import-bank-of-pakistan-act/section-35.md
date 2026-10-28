@@ -1,0 +1,2 @@
+35. Exemption from stamp duty.—Notwithstanding anything contained in the Stamp Act, 1899 (II of 1899), the Bank shall not be liable to the payment of any stamp duty in respect of any instrument by, or in favour of, the Bank:
+Provided that this section shall within the jurisdiction of the Islamabad Capital Territory, become applicable immediately on commencement of this Act and each of the Provinces, shall become applicable upon notification or legislation by the respective Provincial Governments.

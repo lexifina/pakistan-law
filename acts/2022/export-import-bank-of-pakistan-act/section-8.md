@@ -1,0 +1,1 @@
+8. Reserves and provisions.—The Bank may, in accordance with the prudential regulations, establish one or more general or special purposes reserves or provisions out of which may be paid any losses sustained by the Bank in the conduct of its business.
