@@ -1,0 +1,1 @@
+11. Procedure when vaccination is successful. When it is ascertained at the time of inspecting a child under section ten that the vaccination has been successful, a certificate shall be delivered by the vaccinator to the parent or guardian of such child to that effect, and such child shall thereafter be deemed to be protected.

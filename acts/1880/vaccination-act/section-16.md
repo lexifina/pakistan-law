@@ -1,0 +1,2 @@
+16. No fee to be charged except by private vaccinator. No fee shall be charged by any vaccinator except a private vaccinator to the parent or guardian of any child for any of the duties imposed on such vaccinator by or under the provisions of this Act:
+Proviso. Provided that it shall be lawful for a vaccinator to accept a fee for vaccinating a child by request of the parent or guardian elsewhere than in the circle for which such vaccinator is appointed.
