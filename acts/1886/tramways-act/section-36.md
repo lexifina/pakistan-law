@@ -1,0 +1,5 @@
+## RECOVERY OF TOLLS
+36. Recovery of moneys due from promoters and in certain cases, from lessees. Any of the following moneys, namely, any rent due to a local authority from a lessee, any penalty recoverable from a promoter or lessee under an order, any sum payable by a promoter or lessee under an award of a referee, the cost of the performance under this Act by the [^43][Government] or by a local authority or road-authority of any work required by this Act or by an order to be done by a promoter, and the cost incurred by a road-authority in removing a tramway and reinstating a road under this Act, may, without prejudice to any other remedy that the authority to which the money is due may have by suit or otherwise, be recovered by that authority, on application made in this behalf to the Collector, as if the sum due were an arrear of land-revenue due by the promoter or lessee or his surety (if any):
+Provided that nothing in this section shall authorize the arrest of the promoter or lessee or his surety in execution of any process issued by the Collector.
+
+[^43]: Subs. by A.O., 1937, for “L.G.”.

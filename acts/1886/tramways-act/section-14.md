@@ -1,0 +1,9 @@
+## TRAFFIC ON TRAMWAYS
+14. Rights of promoter and the public over tramways.—(1) The promoter of a tramway shall, subject to the provisions of sub-section (2) and to the other provisions of this Act and of the order, have the exclusive use of the tramway for carriages with flange-wheels or other wheels suitable to run on the rail described in the order as the rail to be used on the tramway:
+Provided that nothing in this Act or in the order or any rule made under this Act shall affect the right of any person authorized to use a tramway or railway to pass across a tramway constructed under this Act with carriages having wheels suitable to run on the rail thereof.
+(2) The public shall have a right to pass along or across any part of a road along or across, which a tramway is constructed, whether on or off the tramway, with carriages not having flange-wheels or other wheels suitable to run on the rail of the tramway:
+Provided—
+(a) that this sub-section shall not apply where the tramway is constructed on land the right to the exclusive possession of which has been acquired by the promoter; and
+(b) that the [^29][Government] may by an order authorize the construction of a tramway on any part of a road with rails raised above the surface of the road, if it is satisfied that the convenience of the public will not be injuriously affected thereby.
+
+[^29]: Subs. ibid., for “until an engineer appointed in this behalf by the L.G. has inspected it and certified it to be fit for such traffic”.

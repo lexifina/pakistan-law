@@ -1,0 +1,1 @@
+43. Want of funds not a sufficient reason for default. For the purposes of this Act want of funds shall not be deemed to be a sufficient reason for the suspension of the construction, or the discontinuance of the working, of a tramway by a promoter or lessee.

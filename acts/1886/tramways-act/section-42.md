@@ -1,0 +1,2 @@
+## SUPPLEMENTAL PROVISIONS
+42. Promoters, lessees and licencees to be responsible for all injuries. A promoter, lessee or licensee shall be answerable for all injuries happening through his act or default or through the act or default of any person in his employment, by reason or in consequence of any of his carriages or works, and shall save harmless all authorities and persons collectively and individually, and their officers and servants, from all damages and costs in respect of injuries so happening.

@@ -1,0 +1,1 @@
+18. Licensee to give to promoter or lessee an account of traffic. A licensee shall, on demand, give to an officer or servant authorized in that behalf by the promoter or lessee an exact account in writing, signed by the licensee, of the number of passengers, or number or quantity of goods, conveyed by any and every carriage used by him on the tramway.

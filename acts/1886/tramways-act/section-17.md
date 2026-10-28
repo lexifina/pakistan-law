@@ -1,0 +1,11 @@
+## LICENSES TO USE TRAMWAYS
+17. Grant to third parties of licenses to use tramway in certain events. If, at any time after a tramway or part of a tramway has been for three years opened for public traffic in a circle, the local authority of the circle represents in writing to the [^31][Government] that the public is deprived of the full benefit of the tramway or of the part thereof, the [^31][Government] may, if after considering any statement which the promoter or lessee or both may desire to make, and after such further enquiry as it deems necessary, it is satisfied as to the truth of the representation, grant a license to any person to use the tramway conformably to this Act and to the order and the rules made under this Act, subject to the following provisions, namely:—
+(a) the license shall be for a period not less than one year or more than three years from the date of the license, but the [^31][Government] may in its discretion renew it;
+(b) the license shall be to use the whole of the tramway for the time being opened for public traffic, or such part or parts of the tramway as the [^31][Government,] having regard to the cause for granting the license, thinks fit;
+(c) the license shall specify the number of carriages which the licensee shall run upon the tramway, the mode in which, and times at which, the carriages shall be run, the tolls to be paid to the promoter or lessee by the licensee for the use of the tramway, and the tolls, being those for the time being leviable by the promoter or lessee, which the licensee may demand and take for the use of his carriages;
+(d) the licensee and his officers and servants shall permit one person, duly authorized for that purpose by the promoter or lessee, to travel free of toll in or upon each carriage of the licensee run upon the tramway for the whole or any part of a journey;
+(e) any provision of this Act, or of the order or rules made under this act, relating to the functions of a servant of a promoter or lessee shall be construed, so far as may be, as referring to a servant of the licensee; and
+(f) the [^32][Government] may revoke, alter or modify the license for any cause sufficient in its opinion to warrant the revocation, alteration or modification thereof.
+
+[^31]: Subs. by A. O., 1937, for “L.G.”.
+[^32]: Subs. by A. O., 1937, for “L.G.”.
