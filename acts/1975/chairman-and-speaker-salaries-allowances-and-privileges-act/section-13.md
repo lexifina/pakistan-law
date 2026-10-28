@@ -1,0 +1,1 @@
+13. Medical facilities. The Chairman and the Speaker and his family shall be entitled to medical facilities admissible under the Special Medical Attendance Rules, except that he and his family shall be entitled to receive medical treatment at his official residence.

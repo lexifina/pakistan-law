@@ -1,0 +1,3 @@
+14. Provident Fund.―(1) The Chairman and the Speaker may, at his option, become a subscriber to the General Provident Fund; and if he so opts, he shall subscribe to the Fund as a compulsory subscriber in accordance with the General Provident Fund (Central Services) Ru1es.
+(2) A temporary advance may be granted to a Chairman or a Speaker from the amount standing to his credit in the General Provident Fund at the discretion of the Government for the purpose for which such advance may be granted to a subscriber under the said Rules.
+(3) The grant of temporary advance under sub-section (2) shall, unless the Government otherwise directs, be subject to the conditions to which an advance granted to a subscriber under the aforesaid Rules is subject.

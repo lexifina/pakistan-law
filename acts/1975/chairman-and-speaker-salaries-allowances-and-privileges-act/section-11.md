@@ -1,0 +1,1 @@
+11. Halt on tour. A halt on tour shall be treated as continuous halt unless terminated by an absence at a distance from the halting place exceeding five miles for a period which includes not less than seven successive nights.
