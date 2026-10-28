@@ -1,0 +1,1 @@
+8. Certain guarantees to remain in force.Notwithstanding the repeal of the said Industrial Development Bank of Pakistan Ordinance, 1961 (XXXI of 1961) all guarantees given by the Government of Pakistan in favour of foreign and local institutions which extended loans to IDBP shall remain in force as though these guarantees were given on behalf of IDBP.
