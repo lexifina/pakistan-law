@@ -1,0 +1,1 @@
+13. Execution of an order or a decree.—Where an order or a decree is passed by a Court following ADR, it shall be executed in the manner as prescribed and if no such manner is prescribed under this Act, it shall be executable in accordance with the procedure provided for in the relevant law.

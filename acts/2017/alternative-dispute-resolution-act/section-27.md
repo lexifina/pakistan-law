@@ -1,0 +1,1 @@
+27. Repeal.— Subject to the provisions of sub-section (3) of section 20, Section 89A of the Code of Civil Procedure, 1908 (Act V of 1908), to the extent of area or areas to which this Act is extended, shall stand repealed.

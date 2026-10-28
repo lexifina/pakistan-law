@@ -1,0 +1,1 @@
+17. Penal costs.—Any person who willfully violates any provision of this Act, rules or any order of the Court with which he is required to comply shall be liable to penal costs which may extend to one hundred thousand rupees, in addition to any other costs or penalty to which he may be liable under the relevant law.
