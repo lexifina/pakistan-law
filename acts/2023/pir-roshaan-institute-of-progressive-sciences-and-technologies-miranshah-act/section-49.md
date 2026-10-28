@@ -1,0 +1,3 @@
+49. Power to allow appointment of employees of the Government, other universities or
+educational or research institutions to the Institute. Notwithstanding anything contained in the Act, the Board may, on the recommendation of the Rector, allow any post in the Institute to be filled by appointment, transfer, and deputation, on such terms and conditions as the Board may specify, an employee of the Government or any other Institute or educational or research institution.
+(2) Where any appointment has been made under this section, the terms, and conditions of service of the appointee shall not be less favorable than those admissible to him immediately before such appointment, transfer and deputation and he shall be entitled to all benefits of his post of service.

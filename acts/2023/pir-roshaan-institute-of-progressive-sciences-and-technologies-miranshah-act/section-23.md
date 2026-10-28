@@ -1,0 +1,1 @@
+23. Other Officers. Subject to the provisions of this Act, the eligibility criteria, terms and conditions of the services and the powers and duties of other officers of the Institute shall be such as may be prescribed at the time of recruitment and hiring.

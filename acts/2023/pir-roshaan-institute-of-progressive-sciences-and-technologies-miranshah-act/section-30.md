@@ -1,0 +1,4 @@
+30. Academic Council.―(1) The Academic Council shall consist of―
+(a) Rector Chairman (b) Deans of Faculties & Head of Department as may be Member prescribed (c) Five members representing the departments, institutes & Member the constituent colleges to be elected in the manner prescribed by the Board of Governors (BoG) (d) Director (Student Affairs) Member (e) Director (QEC) Member (f) Director (ORIC) Member (g) Director (P&D) Member (h) two Principals of Affiliated Colleges Member (i) the Controller of Examination Member (j) the Librarian Member (k) nominee of the Commission Member (l) the Registrar, Secretary
+(2) A member of the Academic Council appointed by nomination shall hold office for three years.
+(3) The quorum for a meeting of the Academic Council shall be one third of the total number of members, a fraction being counted as one.

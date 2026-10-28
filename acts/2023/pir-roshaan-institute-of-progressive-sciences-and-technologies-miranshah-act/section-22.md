@@ -1,0 +1,4 @@
+22. Internal Auditor.― (1) The Internal Auditor of the Institute shall be appointed on regular basis by the Board of Governors (BoG) on the recommendation of the Selection Board or by deputation from officers of attached or sub-ordinate departments of Auditor General of Pakistan or Controller General of Accounts as the Board of Governors (BoG) may deem appropriate who fulfil the eligibility criteria to be appointed as Internal Auditor.
+(2) The minimum experience as well as the professional and academic qualifications necessary for the appointment to the post of Internal Auditor shall be as may be prescribed.
+(3) The Internal Auditor shall be responsible for pre-auditing of all bills and documents for all payments to be made by the Institute.
+(4) The Board of Governors (BoG) may on the advice Rector, terminate the services of the Internal Auditor appointed on regular basis on grounds of in-efficiency or misconduct, in accordance with the prescribed procedure.
