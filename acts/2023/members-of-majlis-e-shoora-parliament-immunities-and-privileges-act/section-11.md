@@ -1,0 +1,2 @@
+11. Act not to prejudice, restrict or limit any other immunities and privileges.— The provisions of this Act shall be in addition to, and not in derogation of, any powers, immunities and privileges of the members which may from time to time be defined by law or which are enjoyed by the members, or any law relating to immunities and privileges, and nothing contained herein shall prejudice, restrict or limit, all or any of the immunities and privileges enjoyed by the members or available to the members under any law or otherwise.
+________________ RGN-Dated. 28-08-2025

@@ -1,0 +1,1 @@
+9. Arrest within the precincts of Majlis-e-Shoora (Parliament).— No member shall be arrested within the precincts of Majlise-Shoora (Parliament) without the permission of the Chairman or Speaker, as the case may be.
