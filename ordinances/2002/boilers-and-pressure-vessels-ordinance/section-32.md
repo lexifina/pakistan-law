@@ -1,0 +1,2 @@
+32. Previous publication of rules or regulations.___ (1) The Power to make rules and regulations conferred by sections 29 and 30 respectively shall be subject to the condition of the rules and regulations being made after previous publication.
+(2) the rules and regulations so made shall be published in the official Gazette and on such publication, shall have effect as in enacted in this Ordinance.

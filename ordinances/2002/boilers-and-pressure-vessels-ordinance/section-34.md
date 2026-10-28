@@ -1,0 +1,1 @@
+34. Application of the Ordinance to the Governments.___ Save as otherwise expressly provided, this Ordinance shall be applicable to boilers and pressure vessels belonging to the Federal Government and Provincial Governments.

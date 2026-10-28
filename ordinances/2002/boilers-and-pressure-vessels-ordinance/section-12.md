@@ -1,0 +1,1 @@
+12. Alterations and renewals to boilers.___No structural alteration, addition or renewal shall be made by the repairer in any boiler registered under this. Ordinance unless such alteration, addition or renewal has been sanctioned in writing by the Chief Inspector. The execution of any modification as per the approved drawings shall be verified by the insurance company.
