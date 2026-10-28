@@ -1,0 +1,2 @@
+12. Appointment of officers, etc.—(1) The Council may, subject to the provisions of sub-section (2) and such general or special orders as the Federal Government may give from time to time, appoint such officer advisers and employee as it considers necessary for the efficient performance of its functions on such terms and conditions as it may deem fit.
+(2) The Federal Government may direct the Council to terminate the services of any officer, adviser, or employee and the Council shall be bound to comply with any such direction.
