@@ -1,0 +1,1 @@
+7. Fixation of commission. The Federal Government may prescribe the maximum rate of commission or remuneration which a real estate agent or a motor vehicles dealer may charge on any transaction arranged or negotiated by him.
