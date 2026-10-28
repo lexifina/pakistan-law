@@ -1,0 +1,2 @@
+SECOND SCHEDULE.__[(a)__ Madras Regulations and (b)__ Acts of the Supreme Council relating to the Madras Presidency.] Omitted by A.O., 1949, Schedule.
+THIRD SCHEDULE.__[(a)__ Bombay Regulations and (b)__Acts of the Supreme Council relating to the Bombay Presidency.] Omitted by A.O., 1949, Schedule. ____ FOURTH SCHEDULE.__[(a)__Bengal Regulations Lower Provinces and (b).-Acts of the SupremeCouncil relating to the Lower Provinces.] Omitted by the Federal Laws (Revision and Declaration) Ordinance. 1981 (XXVII of 1981), s. 3 and IInd Sch.
