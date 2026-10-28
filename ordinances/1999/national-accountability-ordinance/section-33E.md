@@ -1,0 +1,1 @@
+33E. Recovery of amount of fines, etc., as arrears of land revenue.— Any fine or other sum due under this Ordinance, or as determined to be due by a Court, shall be recoverable as arrears of land revenue.]
