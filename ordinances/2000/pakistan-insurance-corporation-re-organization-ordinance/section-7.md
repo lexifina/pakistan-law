@@ -1,0 +1,1 @@
+7. Repeal.___ Immediately after incorporation and registration of Pakistan Reinsurance Company as public limited company, the Pakistan Insurance Corporation Act, 1952, (XXXVIII of 1952) shall stand repealed.
