@@ -1,0 +1,1 @@
+6. Appeals. Any parson aggrieved by an order of the Registering Authority made under section 4 or section 5 may, within thirty days of the order, appeal to such officer or authority as Government may, by notification, appoint in this behalf.

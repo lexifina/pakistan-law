@@ -1,0 +1,2 @@
+8. Penalties. (1) Whoever runs an unrecognized private educational institution in contravention of the provisions of this Ordinance or the rules made thereunder shall be punished with imprisonment which may extend to one year or with fine which may extend to one thousand rupees or with both.
+(2) Whoever, having been convicted of an offence under sub-section (1), continues to run the institution without registration shall be punished with fine which may extend to fifty rupees for each day during which the offence continues.
