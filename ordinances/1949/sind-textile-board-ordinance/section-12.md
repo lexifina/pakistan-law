@@ -1,0 +1,3 @@
+12. Accounts and Finance. (1) The accounts of the Board shall be maintained and audited in such manner and in accordance with such provisions as may be prescribed and the funds of the Board shall be deposited in such scheduled banks as may be approved by the Committee.
+(2) Subject to such conditions as may be prescribed, the Committee may, on behalf of the Board, take such loan from or enter into such other arrangements with any scheduled bank as are, in the opinion of the Committee, necessary in the interest of the members of the Board or for forwarding the purposes of the Board.
+(3) The Committee may secure loans from any scheduled bank or banks either against cash security or against hypothecation of stocks.

@@ -1,0 +1,1 @@
+11. General Control by Government. The activities of the Board shall be subject to the general control of the Government and the Board shall comply with any directions of a general or special nature which the Government or the Director or any other officer authorised by either in this behalf may give to it.

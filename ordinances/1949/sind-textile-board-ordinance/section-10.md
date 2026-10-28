@@ -1,0 +1,2 @@
+10. Conduct of Business of the Board. Subject to the provisions of the next succeeding section all matters involving in the opinion of the Committee substantial questions of policy and all such other matters as may be specified in the regulations shall be decided by the Board, and all other affairs of the Board, save as may be prescribed, shall be administered by the Committee:
+Provided that the decision of the Committee in any such matter as may be specified in the regulations shall be submitted for the approval of the Board.
