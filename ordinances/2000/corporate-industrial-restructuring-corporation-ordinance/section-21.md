@@ -1,0 +1,1 @@
+21. Consideration for transfer of non-performing assets. — The Corporation shall pay to the concerned financial institution the outstanding amount as consideration for the transfer of non-performing assets by mutual agreement upon such terms and conditions and in such manner as may be prescribed by rules to be notified in the official Gazette.

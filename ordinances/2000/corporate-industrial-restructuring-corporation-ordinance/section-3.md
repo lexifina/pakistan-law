@@ -1,0 +1,1 @@
+3. Ordinance not to derogate from other laws.—The provisions of this Ordinance shall be in addition to and save as hereinafter provided, not in derogation of any other law for the time being in force.

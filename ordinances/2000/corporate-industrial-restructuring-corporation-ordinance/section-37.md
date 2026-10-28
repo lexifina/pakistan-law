@@ -1,0 +1,1 @@
+37. Right of recovery as arrears of land revenue. — The Corporation shall be entitled to recover all outstanding amounts, subject to law, on the basis of and under any non-performing assets held by the Corporation as if they are arrears of land revenue under the Land Revenue Act, 1967. (West Pakistan Act XVII of 1967).

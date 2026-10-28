@@ -1,0 +1,1 @@
+19. Corporation not to be a banking company. — Without prejudice to the provisions of section 32, the Corporation shall be deemed not to be engaged in the business of banking for purposes of the Banking Companies Ordinance, 1962 (LVII of 1962), or, as the case may be, the State Bank of Pakistan Act, 1956 (Act XXXII of 1956).

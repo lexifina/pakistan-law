@@ -1,0 +1,1 @@
+16. Employees of the Corporation to be public servants. — Every person in the service of the Corporation shall, when acting or purporting to act in pursuance of any of the provisions of this Ordinance, be deemed to be a public servant within the meaning of section 21 of the Pakistan Penal Code. 1860 (Act XLV of 1860).
