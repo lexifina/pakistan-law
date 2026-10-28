@@ -1,0 +1,3 @@
+11. Appeal against refusal to prosecute or grant sanction thereto.—Where on an application by an employer or a woman [^12][or a person nominated by her or any of her legal representative] the Inspector of Factories refuses either to institute a prosecution under this Ordinance, or to grant sanction thereto, he shall without delay communicate to the applicant his order of refusal, and an [^12][applicant] aggrieved by such order may, within thirty days of the date thereof appeal to the Director of Labour Welfare against such order; and the decision of the Director of Labour Welfare on such appeal [^12][which shall be taken after affording to the applicant an opportunity of being heard ] shall be final.
+
+[^12]: Ins & Sub by Act VIII of 1985.s.3.

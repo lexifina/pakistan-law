@@ -1,0 +1,1 @@
+12. Limitation.—No Court shall take cognizance of any offence against this Ordinance or any rule made thereunder unless complaint thereof has been made to the Inspector of Factories within six months of the date on which the offence is alleged to have been committed.
