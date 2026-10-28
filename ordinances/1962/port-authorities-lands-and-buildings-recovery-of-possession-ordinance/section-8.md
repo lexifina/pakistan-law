@@ -1,0 +1,1 @@
+8. Recovery of arrears of rent. If any rent payable in respect of any land or building has been in arrears on the day of recovery of possession of such land or building, the amount due on account of such arrears, with interest, if any, accrued thereon, shall be recoverable as arrears of land revenue.
