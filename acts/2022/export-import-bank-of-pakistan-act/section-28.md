@@ -1,0 +1,2 @@
+28. Bank to furnish performance report.—(1) The Bank shall, at the end of each financial year, furnish, through the Ministry of Finance, to the Federal Government, a performance report with respect to the implementation by the Bank of the national trade policies and programs of the Federal Government it is pursuing or proposes to pursue in the conduct of its business under this Act.
+(2) The performance report under sub-section (1) shall be approved by the Board and shall be signed by the Chairman and the President.

@@ -1,0 +1,1 @@
+4. Bank deemed a financial institution.—Immediately on the commencement of this Act, the Federal Government shall, by notification in the official Gazette, declare the Bank as a financial institution under section 3A of the Banking Companies Ordinance, 1962 (LVII of 1962).
