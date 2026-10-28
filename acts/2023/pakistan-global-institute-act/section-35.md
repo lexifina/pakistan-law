@@ -1,0 +1,2 @@
+35. Appeal to the Syndicate and the Senate.—Where an order is passed punishing any officer (other than the Chancellor and Vice-Chancellor), teacher or other employee of the Institute or altering or interpreting to his dis-advantage the prescribed terms or conditions of his service, he shall, where the order is passed by any officer or teacher of the Institute other than the Chancellor and
+Vice- Chancellor, have the right to appeal to the Syndicate against the order and where the order is passed by the Chancellor or Vice-Chancellor, have the right to appeal to the Senate.
