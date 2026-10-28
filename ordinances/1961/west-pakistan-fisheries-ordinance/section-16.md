@@ -1,0 +1,1 @@
+16. Power of seizure. An Inspector of Fisheries, or any person authorized in this behalf by the Director of Fisheries, may take possession of any net, trap, cage or other contrivance for taking fish, or fixed engine used or suspected to have been used in the commission of an offence under this Ordinance.

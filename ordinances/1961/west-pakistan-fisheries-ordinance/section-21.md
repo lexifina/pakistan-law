@@ -1,0 +1,1 @@
+21. Jurisdiction as respects offences within one marine league of sea coast. If an offence in respect of this Ordinance is committed within a distance of one marine league of the sea coast then such offence may be tried, punished and in all respects dealt with as if it had been committed on the land abutting such coast.

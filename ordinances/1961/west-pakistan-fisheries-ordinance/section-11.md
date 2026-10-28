@@ -1,0 +1,2 @@
+11. Power to declare any water to be a sanctuary for fish. (1) Notwithstanding anything contained in this Ordinance, Government may, by notification, declare any water to be sanctuary for fish mentioned in the First Schedule for a period which may be specified, and during such period no person shall kill, capture or possess such fish without a special permit issued under this Ordinance by the Director of Fisheries.
+(2) The water in respect of which a notification under this section is made shall be demarcated in such manner as may be prescribed.

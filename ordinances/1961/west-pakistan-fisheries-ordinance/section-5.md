@@ -1,0 +1,2 @@
+5. Power of the lessee to issue. (1) The person in whose favour a lease under section 4 is granted, may issue permits in such form, subject to such conditions and on payment of such fees, as may be prescribed, for the taking of fish in the water the right of fish wherein has been leased to him.
+(2) A permit issued under sub-section (I) shall cease to be valid upon the termination or cancellation of the lease in favour of the person issuing the permit.

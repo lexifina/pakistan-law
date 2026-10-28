@@ -1,0 +1,1 @@
+14. Power to search without warrant. An Inspector of Fisheries may, without a warrant from Magistrate, search any person, vessel, rack, vehicle, ship, boat, raft package, receptacle or covering so as to satisfy himself as to whether or not an offence under this Ordinance has been committed.

@@ -1,0 +1,1 @@
+13. Power of Magistrate to issue search warrant. If a Magistrate has reasons to believe that an offence under this Ordinance has been, is being, or is likely to be committed, he may issue a warrant for the search of any place in which any fish, net, trap, cage or other contrivance for taking fish, or fixed engine is kept or concealed.
