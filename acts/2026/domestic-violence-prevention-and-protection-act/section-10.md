@@ -1,0 +1,3 @@
+10. Custody orders.―Notwithstanding anything in any law for the time being in force, the court may, at any stage of the petition for protection order or for any other relief under this Act, grant temporary custody of an aggrieved person to an appropriate person or authority:
+Provided that if the aggrieved person is a child then an appropriate person or service provider shall be determined by the Court as per the Guardians and Wards Act 1890 (VIII of 1890):
+Provided further that if the aggrieved person is an adult then the custody shall be granted to a service provider or some other person to any person or service provider in accordance with the will of the aggrieved person.

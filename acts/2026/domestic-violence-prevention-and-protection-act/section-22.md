@@ -1,0 +1,1 @@
+22. Protection of actions taken in good faith.―No suit, prosecution or other legal proceedings shall lie against any Protection Committee, Protection Officer or service provider for anything which is done in good faith or purported to be done under this Act.

@@ -1,0 +1,3 @@
+17. Powers, privileges and immunities of Protection Committee.―(1) The members of the Protection Committee shall be deemed to the public servant within the meaning of Section 21 of the Pakistan Penal Code (Act XLV of 1860).
+(2) The Protection Committee shall be housed in the Family Protection and Rehabilitation centre for Women or any other such centre as notified by the under the Division concerned.
+(3) The Division concerned shall provide a Secretariat, under the Shaheed Benazir Bhutto Centre for Women, as well as necessary staff supported by a budget required for the establishment and functioning of the Secretariat.
