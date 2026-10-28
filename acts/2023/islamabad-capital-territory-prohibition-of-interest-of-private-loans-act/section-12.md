@@ -1,0 +1,1 @@
+12. Appeal.— Save as provided, any person aggrieved by any decision given, sentence passed or order made by the trial court under this Act, may within thirty days of such decision, sentence or order prefer an appeal under the provisions contained in chapter XXXI of the Code.

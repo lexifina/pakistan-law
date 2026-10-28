@@ -1,0 +1,1 @@
+4. Punishment for Abetment.— Whoever intentionally and willfully abets, engages, assists or aids the money lender in lending money or in recovery of interest or in interest based transaction in contravention of sub-section (1) of section 3 shall also be liable to the same punishment as provided in sub-section (2) of section 3 of this Act.

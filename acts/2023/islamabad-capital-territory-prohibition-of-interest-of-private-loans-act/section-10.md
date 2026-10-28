@@ -1,0 +1,2 @@
+10. Adjustment of principal amount.— The trial court, if it is proved that the money lender committed an offence under this Act, shall order that the interest already paid to the money lender is considered as payment towards the principal amount:
+Provided that where the amount of interest paid by a borrower exceeds the principal amount, the court shall order the money lender to return such excess amount to the borrower.
