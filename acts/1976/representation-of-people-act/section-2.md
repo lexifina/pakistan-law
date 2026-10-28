@@ -1,0 +1,1 @@
+2. Definition. In this Act, unless there is anything repugnant in the subject or context, "Sardar "means a person who is recognized as a Sardar, Tumandar or Chief of the tribe or who, under any custom or usage or otherwise, exercises any of the powers, or enjoys any of the privileges, mentioned in section 3.
