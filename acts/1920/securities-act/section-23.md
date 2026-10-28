@@ -1,0 +1,3 @@
+## PENALTY
+23. Penalty.___(1) If any person, for the purpose of obtaining for himself or for any other person payment of interest or of the capital sum due in respect of any Government security, or the issue of a duplicate security, or the renewal, conversion, consolidation or sub-division of a Government security or securities, makes to any authority under this Act a statement which is false and which he either knows to be false or does not believe to be true, he shall be punishable with imprisonment for a term which may extend to six months, or with fine, or with both.
+(2) No Court shall take cognizance of any offence under subsection (1) save on the complaint of the authority to whom the false statement was made.

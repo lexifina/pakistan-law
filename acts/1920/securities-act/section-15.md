@@ -1,0 +1,4 @@
+15. Issue of converted, etc., securities.___(1) The prescribed [^25][authority] may, subject to such conditions as may be prescribed, on the application of a person claiming to be entitled to a Government security or securities, on being satisfied of the justice of the claim and on delivery of the security or securities receipted in the prescribed manner and on payment of the prescribed fee, if any, convert, consolidate or subdivide the security or securities, and issue to the applicant a new security or securities accordingly.
+(2) The conversion, consolidation or sub-division referred to in sub-section (1) may be into a security or securities of the same or different classes or of the same or different loans.
+
+[^25]: Subs. by the Indian Securities (Amdt.) Act, 1937 (28 of 1937), ss. 3, 4 and 5, for “officer”.

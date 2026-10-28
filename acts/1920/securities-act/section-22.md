@@ -1,0 +1,2 @@
+## INSPECTION OF REGISTERS, BOOKS AND DOCUMENTS
+22. Inspection of documents. No person shall be entitled to inspect, or to receive information derived from, any Government security in the possession of the Government or from any book, register or other document kept or maintained by or on behalf of Government in relation to Government securities or any Government security, save in such circumstances and manner and subject to such conditions as may be prescribed.
