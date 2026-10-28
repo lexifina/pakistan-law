@@ -1,0 +1,6 @@
+9. Power of Magistrate to decide disputes regarding fares. If any dispute arises between the hirer of any hackney-carriage and the owner or driver of such carriage as to the amount of the fare payable by such hirer under any rule made under this Act, such dispute shall, upon application made in that behalf by either of the disputing parties, be heard and determined by any Magistrate or Bench of Magistrates within the local limits of whose jurisdiction such dispute has arisen; and such Magistrate or Bench may, besides determining the amount so in dispute, direct that either party shall pay to the other such sum as compensation for loss of time as such Magistrate or Bench thinks fit.
+Any sum determined to be due or directed to be paid under this section shall be recoverable as if it were a fine[^14].
+The decision of any Magistrate or Bench in any case under this section shall be final.
+When any such case is heard by a Bench, any difference of opinion arising between the members of such Bench shall be settled in the same manner as differences of opinion arising between such members in the trial of criminal cases.
+
+[^14]: As to recovery of fines, see the General Clauses Act, 1891 (10 of 1897), section 25.

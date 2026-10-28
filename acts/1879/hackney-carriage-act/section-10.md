@@ -1,0 +1,3 @@
+10. In case of dispute, hirer may require driver to take him to Court. If, at the time any dispute mentioned in section 9 arises, any Magistrate or Bench of Magistrates having jurisdiction in respect of such dispute is sitting within the local limits to which the rules apply, the hirer of the carriage may require the driver thereof to take him in the same to the Court of such Magistrate or Bench for the purpose of making an application under that section.
+Any driver neglecting or refusing to comply with such requisition shall be punished with imprisonment for a term which may extend to one month, or with fine not exceeding fifty rupees, or with both.
+Date; 16-09-2024
