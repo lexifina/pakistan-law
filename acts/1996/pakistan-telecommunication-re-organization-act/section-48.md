@@ -1,0 +1,1 @@
+48. Delegation of Powers. The Board of Trustees may, by a resolution, delegate to any officer of the Trust any of its powers of functions under this Act, subject to such conditions as it may deem fit to impose.

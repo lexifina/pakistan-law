@@ -1,0 +1,2 @@
+53. Winding-up of the Trust.−(1) The Trust shall be wound up by the Federal Government on the recommendation of the Board of Trustees and the certification by the Actuary that no pension payment is required to be made from the Pension Fund.
+(2) The balance of the Pension Fund shall, on the winding up of the Trust, be paid to the Federal Government and the Company pro-rata of the assets of the Pakistan Telecommunication Corporation Employees Fund and contributions made from time to time by the Company.

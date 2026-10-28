@@ -1,0 +1,16 @@
+## CHAPTER II
+## PAKISTAN TELECOMMUNICATION AUTHORITY
+3. Establishment of Pakistan Telecommunication Authority.−(1) As soon as may be, after the commencement of this Act, the Federal Government shall, by notification in the official Gazette, establish an authority to be known as the Pakistan Telecommunication Authority which shall be a body corporate, having perpetual succession and a common seal with powers, subject to the provisions of this Act, to acquire and hold property, both movable and immovable, and to sue and be sued by its name.
+(2) The Authority shall consist of three members one of whom shall be a professional telecommunication engineer and other shall be a financial expert, to be appointed by the Federal Government for a term of four years and shall be eligible for appointment for a similar term or terms [^6][:].
+[^6][Provided that the Federal Government may increase the number of members of the Authority and prescribe their qualifications and mode of appointment.]
+(3) The Federal Government shall, from amongst the members appointed under sub-section (2), appoint a member to be the Chairman of the Authority.
+(4) A member of the Authority shall not have any direct or indirect financial interest in, or have business connection with any person, any establishment or firm which renders telecommunication services in Pakistan or abroad or supplies telecommunication equipment to any telecommunication sector in Pakistan or abroad.
+Explanation.⎯For the purpose of this sub-section, any involvement of the spouse or any blood relation of any member of the Authority with any telecommunication establishment or firm shall be considered as a direct financial interest or connection of the member with such establishment or firm.
+(5) A member of the Authority may resign from his office by writing in his hand addressed to the Federal Government, or may be removed from his office if, on an inquiry by the Federal Public Service Commission, he is found unable to perform the functions of his office because of mental or physical disability or misconduct, including corruption and dishonesty.
+(6) In case of death, resignation or removal of a member of the authority, another person may be appointed as such member for the term specified at sub-section (2).
+[^6][(7) The member of the Authority shall be paid the salary and shall be entitled to the privileges of an officer in MP-II and the Chairman shall be paid the salary and be entitled to the privileges of an officer in MP-I.]
+[^6][(8) The powers of the Authority in the matters relating to its administration and the staff of the Authority shall be exercised by the Chairman, including those mentioned in section 10, in accordance with regulations made by the Authority pursuant to sub-section (3) of section 10 and other relevant regulations made by the Authority from time to time.]
+(9) The decision of the Authority shall, subject to sub-section (8), be taken with the concurrence of the majority of its members.
+[^6][(10) Notwithstanding anything contained in sub-section (8), no act, proceeding or any decision of the Authority shall be invalid by reason only of the existence of a vacancy in, or a defect in the constitution of, the Authority.]
+
+[^6]: Subs. and added by Act No. II of 2006, s. 3.

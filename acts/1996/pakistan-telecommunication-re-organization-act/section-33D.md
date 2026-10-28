@@ -1,0 +1,3 @@
+33D. Administration and utilization of Research and Development Fund.⎯ (1) The Federal Government shall have the power to administer the Research and Development Fund in such manner as may be prescribed.
+(2) The Fund shall be utilized exclusively for prescribed research and development activities in the field related to Information and Communication Technology and other expenditure incurred by the Federal Government in managing Research and Development Fund.
+(3) The Federal Government may co-ordinate with relevant entities to ensure timely utilization and release of sums in accordance with the criteria as may be prescribed.

@@ -1,0 +1,1 @@
+40. Special Communication Organization. Notwithstanding anything contained in section 39, the telecommunication services within the Northern Areas and Azad Jammu and Kashmir shall be operated by the Special Communication Organization and the Authority shall issue a licence to the Organization accordingly.

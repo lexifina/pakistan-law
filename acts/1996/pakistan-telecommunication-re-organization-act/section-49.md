@@ -1,0 +1,2 @@
+49. Budget.⎯(1) The Board of Trustees shall, in respect of each financial year, prepare its own budget specifying the estimated receipts and the sums which are likely to be required by the trust for the payments to be made in the relevant financial year.
+(2) Any surplus of receipts over the amount specified in the budget in a financial year shall be credited to the Pension Fund and any deficit from the estimated amount specified in the annual budget shall be made up from the Pension Fund.

@@ -1,0 +1,1 @@
+16. Authority to be deemed to be a local authority. For the purpose of borrowing money, the Authority shall be a local authority within the meaning of the Local Authorities Loans Act, 1914 (IX of 1914), and any work undertaken in exercise of its powers under this Act shall be deemed to be a 'work' under that Act.

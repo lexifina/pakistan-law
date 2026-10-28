@@ -1,0 +1,1 @@
+58. Ordinance to override other laws. The provisions of this Act shall have effect notwithstanding anything contained in the Telegraph Act, 1885 (XIII of 1885), the Wireless Telegraphy Act, 1933 (XVII of 1933), or any other law containing any provision inconsistent to this Act.
