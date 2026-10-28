@@ -1,0 +1,3 @@
+5. Removal of the president and members.—(1) The president or any other member may, prior to expiry of their respective term, resign from office by writing under his hand addressed to the Prime Minister.
+(2) The Prime Minister upon recommendations of the Authority, may remove the president or any member from office on grounds of inefficiency, incapacity or misconduct. For the purposes of such recommendations the Authority shall conduct an inquiry in such manner as may be prescribed by rules.
+(3) In case of vacancy occurring due to death, resignation, retirement or removal of the president or any member, the appointment another qualified person to the said post shall be made within a period not exceeding ninety days from the date of such vacancy.

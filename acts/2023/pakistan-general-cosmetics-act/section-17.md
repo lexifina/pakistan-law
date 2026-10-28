@@ -1,0 +1,2 @@
+17. Annual Report.—(1) The Authority shall, within three months of the end of a financial year, submit to the Prime Minister, its annual report, which shall consist of the accounts and audit reports of the Authority, a comprehensive statement of the work and activities carried out by the Authority during the preceding financial year, and its proposed activities as well as such other matters as may be deemed necessary by the Authority.
+(2) The Prime Minister, at any time, may seek any details or clarification from the Authority about its financial affairs,
