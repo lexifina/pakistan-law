@@ -1,0 +1,1 @@
+301. Causing death of person other than the person whose death was intended. Where a person, by doing anything which he intends or knows to be likely to cause death, causes death of any person whose death he neither intends nor knows himself to be likely to cause such an act committed by the offender shall be liable for qatl-e-amd.

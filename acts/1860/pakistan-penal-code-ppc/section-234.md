@@ -1,0 +1,3 @@
+234. Making or selling instrument for counterfeiting Pakistan coin. Whoever makes or mends, or performs any part of the process of making or mending or buys, sells or disposes of, any die or instrument, for the purpose of being used, or knowing or having reason to believe that it is intended to be used, for the purpose of counterfeiting [^201][Pakistan coin], shall be punished with imprisonment of either description for a term which may extend to seven years, and shall also be liable to fine.
+
+[^201]: Subs. by A. O., 1961, Art. 2 and Sch., for "the Queen's coin" (w.e.f. 23rd March, 1956).

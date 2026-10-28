@@ -1,0 +1,9 @@
+[^103][124A. Sedition. Whoever by words, either spoken or written, or by signs, or by visible representation, or otherwise, brings or attempts to bring into hatred or contempt, or excites or attempts to excite disaffection towards, [^104][the [^105][Federal] or Provincial Government established by law] shall be punished with [^106][imprisonment for life], to which fine may be added, or with imprisonment which may extend to three years, to which fine may be added, or with fine.
+Explanation 1.__ The expression “disaffection” includes disloyalty and all feelings of enmity.
+Explanation 2.__ Comments expressing disapprobation of the measures of the Government with a view to obtain their alteration by lawful means, without exciting or attempting to excite hatred, contempt or disaffection, do not constitute an offence under this section.
+Explanation 3.__ Comments expressing disapprobation of the administrative or other action of the Government without exciting or attempting to excite hatred, contempt or disaffection, do not constitute an offence under this section.]
+
+[^103]: Subs. by the Indian Penal Code Amdt. Act, 1898 (4 of 1898), s. 4, for the original section 124A, which was ins. by the Indian Penal Code Amdt. Act, 1870 (27 of 1870), s. 5.
+[^104]: The original words “Her Majesty or the Government established by law in British India, shall” have successively been amended by A. O., 1937 A. O., 1949, Sch., the Central Laws (Statute Reform) Ordinance, 1960 (21 of 1960), s. 3 and 2nd Sch. (w.e.f. the 14th October, 1955) and A. O., 1961, Art. 2 and Sch., (w.e.f 23rd March, 1956), to read as above.
+[^105]: Subs. by the Federal Adaptation of Laws Order, 1975 (P.O. No.4 of 1975), Art. 2 and Table for “Central”.
+[^106]: Subs. by the Law Reforms Ordinance, 1972 (12 of 1972), s. 2 and Sch., for “transportation for life”.

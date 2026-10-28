@@ -1,0 +1,2 @@
+430. Mischief by injury to works of irrigation or by wrongfully diverting water.
+Whoever commits mischief by doing any act which causes, or which he knows to be likely to cause, a diminution of the supply of water for agricultural purposes, or for food or drink for human beings or for animals which are property, or for cleanliness or for carrying on any manufacture, shall be punished with imprisonment of either description for a term which may extend to five years, or with fine, or with both.

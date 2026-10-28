@@ -1,0 +1,2 @@
+462O. Cognizance.__ (1) The Court shall try an offence punishable under this Chapter.
+(2) Notwithstanding anything contained in the Code of Criminal Procedure, 1898 or any other law for the time being in force, the Court shall not take cognizance of an offence under this Chapter except on a complaint made, with reasons to be recorded in writing along with full particulars of the offences committed under this Chapter, by duly authorized officer (not below Grade 17) of the Government or the distribution company, as the case may be.

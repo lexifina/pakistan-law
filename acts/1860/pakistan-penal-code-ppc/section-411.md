@@ -1,0 +1,1 @@
+411. Dishonestly receiving stolen property. Whoever dishonestly receives or retains any stolen property, knowing or having reason to believe the same to be stolen property, shall be punished with imprisonment of either description for a term which may extend to three years, or with fine, or with both.

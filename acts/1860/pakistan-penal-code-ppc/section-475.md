@@ -1,0 +1,4 @@
+475. Counterfeiting device or mark used for authenticating documents described in
+section 467, or possessing counterfeit marked material. Whoever counterfeits upon, or in the substance of, any material, any device or mark used for the purpose of a authenticating any document described in section 467 of this Code, intending that such device or mark shall be used for the purpose of giving the appearance of authenticity to any document then forged or thereafter to be forged on such material, or who, with such intent, has in his possession any material upon or in the substance of which any such device or mark has been counterfeited, shall be punished with [^326][imprisonment for life], or with imprisonment of either description for a term which may extend to seven years, and shall also be liable to fine.
+
+[^326]: Subs. by the Law Reforms Ordinance, 1972 (12 of 1972), s. 2 and Sch., for “transportation for life”.

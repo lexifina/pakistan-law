@@ -1,0 +1,2 @@
+432. Mischief by causing inundation or obstruction to public drainage attended with
+damage. Whoever commits mischief by doing any act which causes or which he knows to be likely to cause an inundation or an obstruction to any public drainage attended with injury or damage, shall be punished with imprisonment of either description for a term which may extend to five years, or with fine, or with both.

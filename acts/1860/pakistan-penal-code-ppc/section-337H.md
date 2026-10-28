@@ -1,0 +1,2 @@
+337H. Punishment for hurt by rash or negligent act.__(1) Whoever causes hurt by rash or negligent act, other than rash or negligent driving, shall be liable to arsh or daman specified for the kind of hurt caused and may also be punished with imprisonment of either description for a term which may extend to three years as ta'zir.
+(2) Whoever does any act so rashly or negligently as to endanger human life or the personal safety of others, shall be punished with imprisonment of either description for a term which may extend to three months, or with fine, or with both.

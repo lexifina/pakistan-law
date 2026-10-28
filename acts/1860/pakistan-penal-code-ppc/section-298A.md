@@ -1,0 +1,3 @@
+[^237][298A. Use of derogatory remarks, etc., in respect of holy personages. Whoever by words, either spoken or written, or by visible representation, or by any imputation, innuendo or insinuation, directly or indirectly, defiles the sacred name of any wife (Ummul-Mumineen), or members of the family (Ahle-bait), of the Holy Prophet (peace be upon him), or any of the righteous Caliphs (Khulafa-e-Raashideen) or companions (Sahaaba) of the Holy Prophet (peace be upon him) shall be punished with imprisonment of either description for a term which may extend to three years, or with fine, or with both.]
+
+[^237]: Added by the Pakistan Penal Code (Second Amendment) Ordinance, 1980 (44 of 1980), s.2.

@@ -1,0 +1,1 @@
+488. Punishment for making use of any such false mark. Whoever makes use of any such false mark in any manner prohibited by the last foregoing section shall, unless he proves that he acted without intent to defraud, be punished as if he had committed an offence against that section.

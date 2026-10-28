@@ -1,0 +1,1 @@
+443. Lurking house-trespass. Whoever commits house-trespass having taken precautions to conceal such house-trespass from some person who has a right to exclude or eject the trespasser from the building, tent or vessel which is the subject of the trespass, is said to commit “lurking house­ trespass”.

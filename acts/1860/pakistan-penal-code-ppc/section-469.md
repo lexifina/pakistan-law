@@ -1,0 +1,1 @@
+469. Forgery for purpose of harming reputation. Whoever commits forgery, intending that the document forged shall harm the reputation of any party, or knowing that it is likely to be used for that purpose, shall be punished with imprisonment of either description for a term which may extend to three years, and shall also be liable to fine.

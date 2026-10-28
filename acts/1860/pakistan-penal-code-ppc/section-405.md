@@ -1,0 +1,12 @@
+## Of Criminal Breach of Trust
+405. Criminal breach of trust. Whoever, being in any manner entrusted with property or with any dominion over property, dishonestly misappropriates or converts to his own use that property, or dishonestly uses or disposes of that property in violation of any direction of law prescribing the mode in which such trust is to be discharged, or of any legal contract, express or implied, which he has made touching the discharge of such trust, or wilfully suffers any other person so to do, commits “criminal breach of trust”.
+Illustrations
+(a) A, being executor to the will of a deceased person, dishonestly disobeys the law which directs him to divide the effects according to the will, and appropriates them to his own use. A has committed criminal breach of trust.
+(b) A is a warehouse-keeper. Z, going on a journey, entrusts his furniture to A, under a contract that it shall be returned on payment of a stipulated sum for warehouse-room. A dishonestly sells the goods. A has committed criminal breach of trust.
+(c) A, residing in [^305][Dacca], is agent for Z, residing at [^306][Lahore]. There is an express or implied contract between A and Z, that all sums remitted by Z to A shall be invested by A, according to Z’s direction. Z, remits a lakh of rupees to A, with directions to A to invest the same in Company’s paper. A dishonestly disobeys the directions and employs the money in his own business. A has committed criminal breach of trust.
+(d) But if A, in the last illustration, not dishonestly but in good faith, believing that it will be more for Z’s advantage to hold shares in the Bank of Bengal, disobeys Z’s directions, and buys shares in the Bank of Bengal, for Z, instead of buying Company’s paper, here, though Z should suffer loss, and should be entitled to bring a civil action against A, on account of that loss, yet A, not having acted dishonestly, has not committed criminal breach of trust.
+(e) A, a revenue-officer, is entrusted with public money and is either directed by law, or bound by a contract, express or implied, with the Government, to pay into a certain treasury all the public money which he holds. A dishonestly appropriates the money. A has committed criminal breach of trust.
+(f) A, a carrier, is entrused by Z with property to be carried by land or by water. A dishonestly misappropriates the property. A has committed criminal breach of trust.
+
+[^305]: Subs. by the Federal Laws Revision and Declaration Act, 1951 (26 of 1951), s. 4 and III Sch., for “Calcutta”.
+[^306]: Subs. ibid., for “Delhi”.

@@ -1,0 +1,5 @@
+203. Giving false information respecting an offence committed. Whoever, knowing or having reason to believe that an offence has been committed, gives any information respecting that offence which he knows or believes to be false, shall be punished with imprisonment of either description for a term which may extend to two years, or with fine, or with both.
+[^175][Explanation.__ In sections 201 and 202 and in this section the word "offence" includes any act committed at any place out of [^176][Pakistan], which, if committed in [^176][Pakistan], would be punishable under any of the following sections, namely, 302, 304, 382, 392, 393, 394 395, 396, 397, 398, 399, 402, 435, 436, 449, 450, 457, 458, 459 and 460.]
+
+[^175]: Explanation ins. by the Indian Criminal Law Amdt. Act, 1894 (3 of 1894), s. 7.
+[^176]: Subs. by the Central Laws (Statute Reform) Ordinance, 1960 (21 of 1960) s.3 and 2nd Sch. (w.e.f. 14th October, 1955), for "the Provinces and the Capital of the Federation" which had been subs. by A. O., 1949, Arts. 3 (2) and 4, for "British India".

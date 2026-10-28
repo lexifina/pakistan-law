@@ -1,0 +1,2 @@
+498C. Prohibition of marriage with the Holy Quran.__ Whoever compels or arranges or facilitates the marriage of a woman with the Holy Quran shall be punished with imprisonment of either description which may extend to seven years which shall not be less than three years and shall be liable to fine of five hundred thousand rupees.
+Explanation.__ Oath by a woman on Holy Quran to remain unmarried for the rest of her life or, not to claim her share of inheritance shall be deemed to be marriage with the Holy Quran.]

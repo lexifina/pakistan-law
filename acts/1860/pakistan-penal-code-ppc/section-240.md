@@ -1,0 +1,3 @@
+240. Delivery of Pakistan coin possessed with knowledge that it is counterfeit. Whoever, having any counterfeit coin, which is a counterfeit of [^204][Pakistan coin], and which, at the time when he became possessed of it, he knew to be a counterfeit of [^204][Pakistan coin], fraudulently or with intent that fraud may be committed, delivers the same to any person, or attempts to induce any person to receive it, shall be punished with imprisonment of either description for a term which may extend to ten years, and shall also be liable to fine.
+
+[^204]: Subs. by A. O., 1961, Art. 2 and Sch., for "the Queen's coin" (w.e.f. 23rd March, 1956).

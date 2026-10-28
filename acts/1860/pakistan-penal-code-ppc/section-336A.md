@@ -1,0 +1,4 @@
+[^255][336A. Hurt caused by corrosive substance.__ Whoever with the intention or knowingly causes or attempts to cause hurt by means of a corrosive substance or any substance which is deleterious to human body when it is swallowed, inhaled, comes into contact or received into human body or otherwise shall be said to cause hurt by corrosive substance:
+Explanation.__ In this sub­section, unless the context otherwise requires, “corrosive substance” means a substance which may destroy, cause hurt, deface or dismember any organ of the human body and includes every kind of acid, poison, explosive or explosive substance, heating substance, noxious thing, arsenic or any other chemical which has a corroding effect and which is deleterious to human body.
+
+[^255]: Ins. & added by Act XXV (Second Amdt.) of 2011, s.2-3.

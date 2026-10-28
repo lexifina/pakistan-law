@@ -1,0 +1,2 @@
+433. Mischief by destroying, moving or rendering less useful a light-house or sea-mark.
+Whoever commits mischief by destroying or moving any light-house or other light used as a sea-mark, or any sea-mark or buoy or other thing placed as a guide for navigators, or by any act which renders any such light-house, sea-mark, buoy or other such thing as aforesaid less useful as a guide for navigators, shall be punished with imprisonment of either description for a term which may extend to seven years, or with fine, or with both.

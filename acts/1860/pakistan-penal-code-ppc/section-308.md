@@ -1,0 +1,7 @@
+308. Punishment in qatl-i-amd not liable to qisas, etc.__ (1) Where an offender guilty of qatl-i-amd is not liable to qisas under section 306 or the qisas is not enforceable under clause (c) of section 307, he shall be liable to diyat :
+Provided that, where the offender is minor or insane, diyat shall be payable either from his property or, by such person as may be determined by the court :
+Provided further that where at the time of committing qatl-e-amd the offender being a minor, had attained sufficient maturity or being insane, had a lucid interval, so as to be able to realize the consequences of his act, he may also be punished with imprisonment of either description for a term which may extend [^245][twenty-five years] as ta'zir:
+Provided further that, where the qisas is not enforceable under clause (c) of section 307, the offender shall be liable to diyat only if there is any wali other than offender and if there is no wali other than the offender, he shall be punished with imprisonment of either description for a term which may extend to [^245][twenty-five years] as ta'zir.
+(2) Notwithstanding anything contained in sub-section (1), the court, having regard to the facts and circumstances of the case in addition to the punishment of diyat, may punish the offender with imprisonment of either description for a term which may extend to [^245][twenty-five years], as ta'zir.
+
+[^245]: Subs. by Act I of 05,s.5.

@@ -1,0 +1,10 @@
+201. Causing disappearance of evidence of offence, or giving false information to screen
+offender. Whoever, knowing or having reason to believe that an offence has been committed, causes any evidence of the commission of that offence to disappear, with the intention of screening the offender from legal punishment, or with that intention gives any information respecting the offence which he knows or believes to be false,
+if a capital offence; shall, if the offence which he knows or believes to have been committed is punishable with death, be punished with imprisonment of either description for a term which may extend to seven years, and shall also be liable to fine ;
+if punishable with [^173][imprisonment for life]; and if the offence is punishable with [^174][imprisonment for life], or with imprisonment which may extend to ten years shall be punished with imprisonment of either description for a term which may extend to three years, and shall also be liable to fine ;
+if punishable with less than ten years imprisonment. and if the offence is punishable with imprisonment for any term not extending to ten years, shall be punished with imprisonment of the description provided for the offence, for a term which may extend to one-fourth part of the longest term of the imprisonment provided for the offence, or with fine, or with both.
+Illustration
+A, knowing that B has murdered Z, assists B to hide the body with the intention of screening B from punishment. A is liable to imprisonment of either description for seven years, and also to fine.
+
+[^173]: Subs. by the Law Reforms Ordinance, 1972 (12 of 1972), s. 2 and Sch., for “Transportation”.
+[^174]: Subs. by the Law Reforms Ordinance, 1972 (12 of 1972), s. 2 and Sch., for “transportation for life”.

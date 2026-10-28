@@ -1,0 +1,7 @@
+163. Taking gratification, for exercise of personal influence with public servant.
+Whoever accepts or obtains, or agrees to accept or attempts to obtain, from any person, for himself or for any other person, any gratification whatever, as a motive or reward for inducing, by the exercise of personal influence, any public servant to do or to forbear to do any official act, or in the exercise of the official functions of such public servant to show favour or disfavour to any person, or to render or attempt to render any service or disservice to any person [^140][with the [^141][Federal] or any Provincial Government or Legislature], or with any public servant, as such, shall be punished with simple imprisonment for a term which may extend to one year, or with fine, or with both.
+Illustration
+An advocate who receives a fee for arguing a case before a Judge ; a person who receives pay for arranging and correcting a memorial addressed to Government, setting forth the services and claims of the memorialist ; a paid agent for a condemned criminal, who lays before the Government statements tending to show that the condemnation was unjust,__ are not within this section, inasmuch as they do not exercise or profess to exercise personal influence.
+
+[^140]: Subs. by A. O., 1937, for “with the Legislative or Executive G. of I., or with the Govt. of any Presidency, or with any Lieutenant­Governor”.
+[^141]: Subs. by the Federal Adaptation of Laws Order, 1975 (P.O. No. 4 of 1975), Art. 2 and Table for “Central”.

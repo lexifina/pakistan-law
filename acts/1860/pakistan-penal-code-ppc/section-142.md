@@ -1,0 +1,1 @@
+142. Being member of unlawful assembly. Whoever, being aware of facts which render any assembly an unlawful assembly, intentionally joins that assembly, or continues in it, is said to be a member of an unlawful assembly.

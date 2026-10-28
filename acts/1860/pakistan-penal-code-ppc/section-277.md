@@ -1,0 +1,3 @@
+277. Fouling water of public spring or reservoir. Whoever voluntarily corrupts or fouls the water of any public spring or reservoir, so as to render it less fit for the purpose for which it is ordinarily used, shall be punished with imprisonment of either description for a term which may extend to three months, or with fine which may extend to [^218][one thousand five hundred rupees], or with both.
+
+[^218]: Subs. by Ord. 86 of 02, s.2 & Sch.I. * An offence punishable under sections 273, 274, 275 & 276 of the Pakistan Penal Code will be tried and punished by a Military Court, See Notification No. 57/ 1 (1) 1943/AJAG/CMLA/82 dt. 16-11-82 (Ext. Gaz. IBD. Part-I, dt. 21-11-82 page, 153).

@@ -1,0 +1,1 @@
+338H. Saving.__ (1) Nothing in this Chapter, except sections 309, 310 and 338E, shall apply to cases pending before any court immediately before the commencement of the Criminal Law (Second Amendment) Ordinance, 1990 (VII of 1990), or to the offences committed before such commencement].

@@ -1,0 +1,4 @@
+394. Voluntarily causing hurt in committing robbery. If any person, in committing or in attempting to commit robbery, voluntarily causes hurt, such person, and any other person jointly concerned in committing or attempting to commit such robbery, shall be punished with [^301][imprisonment for life], or with rigorous imprisonment for a term which [^302][shall not be less than four years nor more than] ten years, and shall also be liable to fine.
+
+[^301]: Subs. by the Law Reforms Ordinance, 1972 (12 of 1972), s. 2 and Sch., for “transportation for life”.
+[^302]: Subs. by the Criminal Laws (Amdt.) Ordinance, 1980 (3 of 1980), ss.7&10, for “may extend to”.

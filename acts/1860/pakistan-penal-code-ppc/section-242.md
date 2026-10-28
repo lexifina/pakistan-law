@@ -1,0 +1,2 @@
+242. Possession of counterfeit coin by person who knew it to be counterfeit when he
+became possessed thereof. Whoever, fraudulently or with intent that fraud may be committed, is in possession of counterfeit coin, having known at the time when he became possessed thereof that such coin was counterfeit, shall be punished with imprisonment of either description for a term which may extend to three years, and shall also be liable to fine.

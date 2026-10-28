@@ -1,0 +1,3 @@
+[^236][298. Uttering words, etc. with deliberate intent to wound religious feelings. Whoever, with deliberate intention of wounding or outraging the religious feelings of any person or inciting religious, sectarian or ethnic hatred, utters any words by using loudspeaker or sound amplifier or any other device or makes any sound in the hearing of that person or makes any gesture in the sight of that person or persons, shall be punished with imprisonment of either description of a term which may extend to three years but shall not be less than one year, or with 0.5. million fine, or with both.]
+
+[^236]: Subs. by Act No. IV of 2017 s. 2 (2).

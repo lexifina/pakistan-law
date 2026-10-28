@@ -1,0 +1,1 @@
+414. Assisting in concealment of stolen property. Whoever voluntarily assists in concealing or disposing of or making away with property which he knows or has reason to believe to be stolen property, shall be punished with imprisonment of either description for a term which may extend to three years, or with fine, or with both.

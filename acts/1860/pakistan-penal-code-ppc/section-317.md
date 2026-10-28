@@ -1,0 +1,1 @@
+317. Person committing qatl debarred from succession.__ Where a person committing qatl-i-'amd or qatl shibh-i-'amd is an heir or a beneficiary under a will, he shall be debarred from succeeding to the estate of the victim as an heir or a beneficiary.

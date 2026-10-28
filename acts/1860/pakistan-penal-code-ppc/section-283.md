@@ -1,0 +1,3 @@
+283. Danger or obstruction in public way or line of navigation. Whoever, by doing any act, or by omitting to take order with any property in his possession or under his charge, causes danger, obstruction or injury to any person in any public way or public line of navigation, shall be punished with fine which may extend to [^218][six hundred rupees].
+
+[^218]: Subs. by Ord. 86 of 02, s.2 & Sch.I. * An offence punishable under sections 273, 274, 275 & 276 of the Pakistan Penal Code will be tried and punished by a Military Court, See Notification No. 57/ 1 (1) 1943/AJAG/CMLA/82 dt. 16-11-82 (Ext. Gaz. IBD. Part-I, dt. 21-11-82 page, 153).

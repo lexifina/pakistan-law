@@ -1,0 +1,1 @@
+336B. Punishment for hurt by corrosive substance.__ Whoever causes hurt by corrosive substance shall be punished with imprisonment for life or imprisonment of either description which shall not be less than fourteen years and a minimum fine of one million rupees.]

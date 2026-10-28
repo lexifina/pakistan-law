@@ -1,0 +1,5 @@
+[^282][371A.__ Selling person for purposes of prostitution, etc. Whoever sells, lets to hire, or otherwise disposes of any person with intent that such person shall at any time be employed or used for the purpose of prostitution or illicit intercourse with any person or for any unlawful and immoral purpose, or knowing it to be likely that such person will at any time be employed or used for any such purpose, shall be punished with imprisonment which may extend to twenty-five years, and shall also be liable to fine.
+Explanations.__ (a) When a female is sold, let for hire, or otherwise disposed of to a prostitute or to any person who keeps or manages a brothel, the person so disposing of such female shall, until the contrary is proved, be presumed to have disposed of her with the intent that she shall be used for the purpose of prostitution.
+(b) For the purposes of this section and section 371B, “illicit intercourse” means sexual intercourse between persons not united by marriage.
+
+[^282]: Ins. by Act. VI of 06, s. 4.

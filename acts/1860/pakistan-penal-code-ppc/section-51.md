@@ -1,0 +1,1 @@
+51. “Oath.” The word “oath” includes a solemn affirmation substituted by law for an oath, and any declaration required or authorized by law to be made before a public servant or to be used for the purpose of proof, whether in a Court of Justice or not.

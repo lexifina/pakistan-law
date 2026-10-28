@@ -1,0 +1,6 @@
+371B. Buying person for purposes of prostitution, etc.__ Whoever buys, hires or otherwise obtains possession of any person with intent that such person shall at any time be employed or used for the purpose of prostitution or illicit intercourse with any person or for any unlawful and immoral purpose, or knowing it to be likely that such person will at any time be employed or used for any such purpose, shall be punished with imprisonment which may extend to twenty-five years, and shall also be liable to fine.
+Explanation.__ Any prostitute or any person keeping or managing a brothel, who buys, hires or otherwise obtains possession of a female shall, until the contrary is proved, be presumed to have obtained possession of such female with the intent that she shall be used for the purpose of prostitution.]
+[^283]372. [Selling minor for purposes of prostitution, etc.] Rep. by the Offence of Zina (Enforcement of Hudood) Ordinance, 1979 (VIl of 1979), s. 19 (w.e.f. the 10th day of February, 1979).
+[^283]373. [Buying minor for purposes of prostitution, etc.] Rep. by the Offence of Zina (Enforcement of Hudood) Ordinance, 1979 (VlI of 1979), s. 19 (w.e.f the 10th day of February, 1979).
+
+[^283]: This section was amended by the Indian Penal Code (Amdt.) Act, 1924 (5 of 1924) s. 2 and the Indian Criminal Law (Amdt.) Act, 1924 (18 of 1924), s.2.

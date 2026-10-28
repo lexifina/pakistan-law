@@ -1,0 +1,4 @@
+474. Having possession of document described in section 466 or 467, knowing it to be
+forged and intending to use it as genuine. Whoever has in his possession any document, knowing the same to be forged, and intending that the same shall fraudulently or dishonestly be used as genuine, shall, if the document is one of the description mentioned in section 466 of this Code, be punished with imprisonment of either description for a term which may extend to seven years, and shall also be liable to fine ; and if the document is one of the description mentioned in section 467, shall be punished with [^325][imprisonment for life],or with imprisonment of either description, for a term which may extend to seven years, and shall also be liable to fine.
+
+[^325]: Subs. by the Law Reforms Ordinance, 1972 (12 of 1972), s. 2 and Sch., for “transportation for life”.

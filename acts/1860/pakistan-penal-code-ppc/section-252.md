@@ -1,0 +1,2 @@
+252. Possession of coin by person who knew it to be altered when he became possessed
+thereof. Whoever fraudulently or with intent that fraud may be committed, is in possession of coin with respect to which the offence defined in either of the section 246 or 248 has been committed, having known at the time of becoming possessed thereof that such offence had been committed with respect to such coin, shall be punished with imprisonment of either description for a term which may extend to three years, and shall also be liable to fine.

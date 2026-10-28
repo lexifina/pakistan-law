@@ -1,0 +1,4 @@
+171H. Illegal payments in connection with an election. Whoever without the general or special authority in writing of a candidate incurs or authorizes expenses on account of the holding of any public meeting, or upon any advertisement, circular or publication, or in any other way whatsoever for the purpose of promoting or procuring the election of such candidate, shall be punished with fine which may extend [^148][one thousand five hundred rupees]:
+Provided that if any person having incurred any such expenses not exceeding the amount of ten rupees without authority obtains within ten days from the date on which such expenses were incurred the approval in writing of the candidate he shall be deemed to have incurred such expenses with the authority of the candidate.
+
+[^148]: Sub.by ord No.86 of 2002,s.2 & sch.I, “five hundred rupees”.
