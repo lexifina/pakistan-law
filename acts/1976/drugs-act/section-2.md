@@ -1,0 +1,1 @@
+2. Application of other laws not barred. The provisions of this Act, shall be in addition to, and not in derogation of, the Dangerous Drugs Act, 1930 (II of 1930), and any other law for the time being in force.

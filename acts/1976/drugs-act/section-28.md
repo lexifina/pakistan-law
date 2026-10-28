@@ -1,0 +1,5 @@
+28. Penalty for subsequent offence.— (1) Whoever having been convicted of an offence under sub-section (1) of section 27 is [^12][convicted for a subsequent] offence under that sub-section shall be punishable with imprisonment for life or with imprisonment which shall not be less than five years and with fine which may extend to two lakh rupees.
+(2) Whoever having been convicted of an offence under sub-section (2) of section 27 is [^12][convicted for a subsequent] offence under that sub-section shall be punishable with imprisonment for a term which shall not be less than two years or more than ten years, or with fine which may extend to two lakh rupees, or with both.
+(3) Whoever having been convicted of an offence under sub-section (4) of section 27 is [^12][convicted for a subsequent] offence under that sub-section shall be punishable with imprisonment for a term which may extend to seven years, or with fine which may extend to one lakh rupees, or with both.
+
+[^12]: Subs. by Ordinance No. CXXVIII of 2002, s. 14.

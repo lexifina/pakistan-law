@@ -1,0 +1,1 @@
+20. Persons bound to disclose place where drugs are manufactured or kept.— Every person for the time being in charge of any premises whereon any drug is being manufactured or is kept for sale or distribution shall, on being required by an inspector so to do, disclose to the Inspector the place where the drug is being manufactured or is kept, as the case may be.

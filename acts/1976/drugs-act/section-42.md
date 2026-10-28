@@ -1,0 +1,1 @@
+42. Cancellation or suspension of registration of registered drugs.— Where any person has been found to have contravened any of the provisions of this Act, or the rules in respect of any registered drug, the Registration Board may, after giving such person an opportunity of being heard, cancel the registration of such drug or suspend such registration for a specified period.

@@ -1,0 +1,1 @@
+39. Finality of orders, etc.— Save as otherwise expressly provided in this Act, every order passed or decision given by any Board, a Drug Court or any other authority under this Act shall be final and shall not be called in question by or before any Court or other authority.

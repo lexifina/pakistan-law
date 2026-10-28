@@ -1,0 +1,3 @@
+17. Inspectors.— The Federal Government or a Provincial Government may, by notification in the official Gazette, appoint such persons as it thinks fit, having the prescribed qualifications, to be Federal Inspectors or, as the case may be, Provincial Inspectors for the purposes of this Act within such local limits as it may assign to them respectively:
+Provided that no person who has any financial interest in the manufacture, import, export or sale of any drug shall be so appointed:
+Provided further that a person serving under the Federal Government or another Provincial Government shall not be so appointed without the previous consent of such Government.

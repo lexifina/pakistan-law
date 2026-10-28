@@ -1,0 +1,1 @@
+6. Regulation of sale of drugs. The Provincial Governments shall regulate the sale of drugs in the prescribed manner and may for that purpose make such orders, and issue such directions to the importers, manufacturers, stockists, retailers or other dealers of drugs, as they may deem fit.

@@ -1,0 +1,1 @@
+26. Control of printing of labelling.— No person shall print any labelling in respect of any drug which is required to be registered under this Act but is not so registered after the date fixed by the Federal Government under sub-section (6) of section 7 or for a person who does not possess a licence under this Act to manufacture that drug.

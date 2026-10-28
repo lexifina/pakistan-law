@@ -1,0 +1,6 @@
+45. Repeal and Savings.— (1) The Drugs Act, 1940 (XXIII of 1940), the Drugs (Generic Names) Act, 1972 (XXIV of 1972), and the Drugs Ordinance, 1976 (IV of 1976), are hereby repealed.
+(2) Notwithstanding the repeal of the Drugs Act, 1940 (XXIII of 1940) by sub-section (1),—
+(a) Any licence to manufacture for sale issued thereunder to any person, for the revalidation of which an application has already been made to the Central Licensing Board within the date specified by the Federal Government shall continue to be valid until orders are passed by the said Board in this behalf.
+(b) Any licence for import or export or sale of drugs issued thereunder to any person, shall, unless it expires earlier under the terms thereof, continue to be valid for such periods as the Federal Government, or as the case may be the Provincial Government may by notification in the official Gazette, specify in this behalf:
+Provided that in case of drugs to be imported or exported licences may continue to be issued under the rules framed under the Drugs Act, 1940, till the rules under this Act are framed or as the case may be, a date is fixed under sub-section (6) of section 7 in respect of drugs in the finished form ready for use.
+RGN Dated: 20-02-2026
