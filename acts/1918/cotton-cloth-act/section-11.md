@@ -1,0 +1,1 @@
+11. Grant of licences for sale of standard cloth. A licence for the sale of standard cloth shall be granted by such authority, in such form and subject to such conditions as the 1[Provincial Government] may prescribe by rules made under this Act.
