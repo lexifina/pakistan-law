@@ -1,0 +1,1 @@
+9. Causing damage to Mazar. No person shall, except for carrying out any repair or improvement in the Quaid-i-Azam’s Mazar under property, authority, destroy, damage, alter, injure, deface or multilate the Quaid-i-Azam’s Mazar or any part thereof or scribble, write, or engrave any inscription or sign on any part of the Mazar.

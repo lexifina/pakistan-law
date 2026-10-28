@@ -1,0 +1,1 @@
+6. Meetings, etc. prohibited. No person shall organise, convene or take part in any meeting or demonstration or procession or engage in political activity of any kind within the Quaid-i-Azam’s Mazar or within a distance of ten feet from the outer boundary thereof.
