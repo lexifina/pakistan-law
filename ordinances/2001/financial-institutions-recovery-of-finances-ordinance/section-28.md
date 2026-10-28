@@ -1,0 +1,1 @@
+28. Indemnity.—No suit, prosecution or other legal proceeding shall lie against the Federal Government or a Banking Court or a financial institution or any person for any thing which is in good faith done or intended to be done under this Ordinance or any rule made thereunder.
