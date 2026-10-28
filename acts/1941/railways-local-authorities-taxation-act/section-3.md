@@ -1,0 +1,5 @@
+3. Liability of Railways to taxation by local authorities.__ (1) In respect of property vested in [^1][* * *] the [^3][Federal Government], being property of a railway, a railway administration shall be liable to pay any tax in aid of the funds of any local authority, if the [^3][Federal Government], by notification in the official Gazette, declares it to be so liable.
+(2) While a notification under sub-section (1) is in force, the railway administration shall be liable to pay to the local authority either the tax mentioned in the notification or in lieu thereof such sum, if any, as a person appointed in this behalf by the [^3][Federal Government] may, having regard to the services rendered to the railway and all the relevant circumstances of the case, from time to time determine to be fair and reasonable. The person so appointed shall be a person who is or has been a Judge of a High Court or a District Judge.
+
+[^1]: Subs. and omitted by the Central Laws (Adaptation) Order 1961 (Order No. 1 of 1961), Art. 2.
+[^3]: Subs. by the Federal Adaptation Order of Laws Order, 1975 (P. O. No. 1 of 1975), Art. 2 and Table.
