@@ -1,0 +1,1 @@
+9. Alterations.__ A licensed travel agency shall, on payment of the prescribed fee, have every change in its nature or composition or its field of operation entered in the register maintained under section 4, within fifteen days of the day on which such change occurs.
