@@ -1,0 +1,1 @@
+46. Proceedings of any body or authority not invalidated by any vacancy.— No act, proceedings, resolution or decision of any body or authority shall be invalid by reason only of any vacancy in or any defect in the constitution of, or in the appointment or nomination of any member of such body or authority.

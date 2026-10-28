@@ -1,0 +1,1 @@
+35. Power to make rules. The Committee may make rules for implementation of Statutes or regulations where so required under such Statutes or regulations, or make rules to regulate any matter relating to the affairs of the University which under this Ordinance are not specifically required to be provided for by Statutes or regulations.

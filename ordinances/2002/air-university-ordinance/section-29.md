@@ -1,0 +1,1 @@
+29. Academic and non-academic employees. The Academic and non-academic employees of the University and those of its constituent units shall be selected with a view to achieving its stated objectives and the basic criteria for their selection shall be the highest standards of competence, integrity and proficiency.

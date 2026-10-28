@@ -1,0 +1,2 @@
+15. Director Research and Development.—(1) The Board may appoint a Director Research and Development, on such terms and conditions, as it may determine.
+(2) The Director Research and Development shall be responsible for providing guidelines and coordinating all arrangement for research and development activities in the University and its constituent units. He shall also perform other duties assigned to him by the Vice-Chancellor.

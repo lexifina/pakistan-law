@@ -1,0 +1,3 @@
+9. Pro-Chancellor.—(1) The Pro-Chancellor shall be appointed by the Chancellor for such period and on such terms and conditions as the Chancellor may determine.
+(2) The Pro-Chancellor shall act for the Chancellor at any time when the office of the Chancellor is vacant, or the Chancellor is absent or is unable to perform the functions of his office due to any cause. He shall seek approval of the Chancellor on all actions taken by him during the absence of the Chancellor.
+(3) The Pro-Chancellor shall perform such other functions as may be entrusted to him by the Chancellor.

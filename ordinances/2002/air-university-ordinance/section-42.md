@@ -1,0 +1,1 @@
+42. Commencement of term of office of a member of any body or authority. .The term of office of a newly appointed or nominated member of a body or an authority shall be as fixed under this Ordinance and shall commence from such date as may be prescribed.

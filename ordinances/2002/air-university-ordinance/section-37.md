@@ -1,0 +1,1 @@
+37. Bar of jurisdiction. No decision taken, or act or thing done, by the Chancellor, the Pro- Chancellor, the Vice-Chancellor or the Board shall be called in question before any court or other authority, provided that the provisions of this Ordinance and the Constitution of Pakistan are not violated in any manner.

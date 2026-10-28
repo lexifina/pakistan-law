@@ -1,0 +1,5 @@
+5. Principal teaching facilities, examinations, etc.—(1)The principal teaching facilities of the University shall consist of the constituent units and such other colleges and Institutes as may be determined by the Board, from time to time.
+(2) Some of the existing colleges and Institutes referred to in sub-section (1) shall continue to function under their existing administrative and financial arrangements:
+Provided that the examinations and other academic activities, including research shall be subject to co-ordination and supervision by the University.
+(3) Academic activities, examinations and syllabi at the colleges and Institutes referred to in sub-section (1) shall be in conformity with and as prescribed by the University.
+(4) The University may, with the approval of the Board, provide facilities to the representatives of the Higher Education Commission and the Pakistan Air Force or such relevant organizations for visitation to enable them to verify and ensure that appropriate academic standards are being maintained by it.
