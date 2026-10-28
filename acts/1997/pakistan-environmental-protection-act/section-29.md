@@ -1,0 +1,1 @@
+29. Dues recoverable as arrears of land revenue.—Any dues recoverable by the Federal Agency or Provincial Agency under this Act, or the rules or regulations made thereunder shall be recoverable as arrears of land revenue.

@@ -1,0 +1,2 @@
+22. Appeals to the Environmental Tribunal.—(1) Any person aggrieved by any order or direction of the Federal Agency or any Provincial Agency under any provision of this Act and rules or regulations made thereunder may prefer an appeal with the Environmental Tribunal within thirty days of the date of communication of the impugned order or direction to such person.
+(2) An appeal to the Environmental Tribunal shall be in such form, contain such particulars and be accompanied by such fees as may be prescribed.

@@ -1,0 +1,1 @@
+31. Power to make rules.—The Federal Government may, by Notification in the official Gazette, make rules for carrying out the purposes of this Act including rules for implementing the provisions of the international environmental agreements, specified in the Schedule to this Act.
