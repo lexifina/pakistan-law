@@ -1,0 +1,3 @@
+176. Informality or error in the order or warrants. Whenever a person is sentenced to imprisonment or detention under this Act, and is undergoing the sentence in any place or manner in which he might be confined under a lawful order or warrant in pursuance of this Act, the confinement of such person shall not be deemed to be illegal only by reason of any informality or error in or as respects the order, warrant or other document, or the authority by which, or in pursuance whereof such person was brought into or is confined any such place, and any such order, warrant or document may be amended accordingly.
+CHAPTER XIV
+PARDONS, REMISSIONS AND SUSPENSION

@@ -1,0 +1,5 @@
+10B. Reappointment [^34][and/or] extension of the Chief of the Air Staff.—(1) Notwithstanding anything contained in this Act or any other law for the time being in force, the President, on the advice of the Prime Minister, may re-appoint the Chief of the Air Staff for additional tenure of [^35][five (05)] years, [^34][**] [^35][ and/or] extend the tenure(s) of the Chief of the Air Staff upto [^35][five (05)] years, on such terms and conditions, as maybe determined by the President, on the advice of the Prime Minister, in the national security interest or exigencies, from time to time.
+(2) Notwithstanding anything contained in this Act or any other law, or any order or judgment of any Court, the appointment, reappointment or extension of the Chief of the Air Staff, or the exercise of discretion by the appointing authority in this regard, shall not be called into question before any Court onany ground whatsoever.
+
+[^34]: Omitted and subs. by Act No. XXXIV of 2025, ss. 2-4 ( It comes into force at once and shall always be deemed to have been part of the Pakistan Air Force Act 1953(VI of 1953))
+[^35]: Subs. by Act No. XXXIV of 2024, ss. 2-4.

@@ -1,0 +1,1 @@
+157. Confirmation of finding and sentence on board a ship. When any person subject to this Act is tried and sentenced by court‑martial while on board ship, the finding and sentence so far as not confirmed and executed on board ship may be confirmed and executed in like manner as if such person had been tried at the port of disembarkation.

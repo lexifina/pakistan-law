@@ -1,0 +1,1 @@
+47. Ill‑treating a subordinate. Any officer, warrant officer or non-commissioned officer, who uses criminal force to or otherwise ill‑treats any person subject to this Act, being his subordinate in rank or position, shall, on conviction by court‑martial, be liable to suffer short imprisonment.

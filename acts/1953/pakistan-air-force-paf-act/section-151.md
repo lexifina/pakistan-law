@@ -1,0 +1,1 @@
+151. Finding and sentence not valid unless confirmed. No finding or sentence of a general, district or field general Court‑martial shall be valid except so far as it may be confirmed as provided by this Act.

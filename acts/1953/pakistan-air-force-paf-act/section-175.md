@@ -1,0 +1,1 @@
+175. Restriction of rulemaking power in respect of corporal punishment. Rules made under section 174 shall not authorise corporal punishment to be inflicted for any offence, nor render the imprisonment more severe than it is under any law for the time being in force relating to Civil prisons in Pakistan.

@@ -1,0 +1,1 @@
+81. Punishments otherwise than by court‑martial. Punishments may also be inflicted in respect of offences committed by persons subject to this Act without the intervention of a court‑martial and in the manner stated in sections 82 and 86.

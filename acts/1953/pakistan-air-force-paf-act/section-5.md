@@ -1,0 +1,6 @@
+5. Application of Act to certain forces under the [^30][Federal Government]. (1) The [^30][Federal Government] may, by notification, apply, with or without modifications, all or any of the provisions of this Act to any force raised and maintained in Pakistan and suspend the operation of any other enactment for the time being applicable to the said force.
+(2) The provisions of this Act so applied shall have effect in respect of persons belonging to the said force as they have effect in respect of persons subject to this Act holding in the Air Force the same or equivalent rank as the aforesaid persons hold for the time being in the said force.
+(3) The provisions of this Act so applied shall also have effect in respect of persons who are employed by, or are in the service of, or are followers of, or accompany any portion of the said force as they have effect in respect of persons subject to this Act under clause (d) of section 2.
+(4) While any of the provisions of this Act apply to the said force, the [^30][Federal Government] may, by notification, direct by what authority any jurisdiction, powers or duties incident to the operation of these provisions shall be exercised or performed in respect of the said force.
+
+[^30]: Subs. by F.A.O., 1975, Art. 2 and Table, for “Central Government”.

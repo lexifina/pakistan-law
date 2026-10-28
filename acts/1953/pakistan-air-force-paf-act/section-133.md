@@ -1,0 +1,4 @@
+133. Summoning witnesses. (1) The convening officer, the president of the Court, the judge advocate, or the commanding officer of the accused person may, by summons under his hand, require the attendance at a time and place to be mentioned in the summons of any person either to give evidence or to produce any document or thing.
+(2) In the case of a witness amenable to Air Force, Naval or Military authority, the summons shall be sent to his commanding officer and such officer shall serve it upon him accordingly.
+(3) In the case of any other witness, the summon shall be sent to the magistrate within whose jurisdiction he may be or reside, and such magistrate shall give effect to the summons as if the witness were required in the Court of such magistrate.
+(4) When a witness is required to produce any particular document or other thing in his possession or power the summons shall describe it with reasonable precision.

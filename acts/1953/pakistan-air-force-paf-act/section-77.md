@@ -1,0 +1,2 @@
+77. Field Punishment. (1) Where any person subject to this Act and under the rank of warrant officer commits any offence on active service, it shall be lawful for a court‑martial to award for that offence any such punishment as is prescribed as a field punishment.
+(2) Field punishment shall be of the character of personal restraint or of hard labour but shall not be of a nature to cause injury to life or limb and shall not include flogging.

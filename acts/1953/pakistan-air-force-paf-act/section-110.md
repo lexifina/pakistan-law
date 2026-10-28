@@ -1,0 +1,1 @@
+110. Power to convene a district Court‑martial. A district Court martial may be convened by any authority having power to convene a general Court‑martial or by any officer empowered in this behalf by warrant of any such authority.

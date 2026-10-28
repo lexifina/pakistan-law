@@ -1,0 +1,1 @@
+192. Property of officers and warrant officers who die or desert. The provisions of sections 193 to 198 shall apply to the disposal of the property of the officers and warrant officers of the Air Force who die or desert.

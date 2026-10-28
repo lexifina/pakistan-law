@@ -1,0 +1,3 @@
+158. Revision of finding and sentence. (1) Any finding or sentence of a court‑martial may be once revised by order of the confirming authority ; and on such revision, the court, if so directed by the confirming authority, may take additional evidence.
+(2) The court, on revision, shall consist of the same officers as were present when the original decision was passed, unless any of those officers are unavoidably absent.
+(3) In case of such unavoidable absence the cause thereof shall be duly recorded in the proceedings, and the Court shall proceed with the revision, provided that, if a general court‑martial, it still consists of five officers, or, if a field general or district court‑martial, of three officers.

@@ -1,0 +1,1 @@
+45. Unbecoming conduct. Any officer or warrant officer who behaves in a manner unbecoming his position and the character expected of him shall, on conviction by court‑martial, be liable to be dismissed.
