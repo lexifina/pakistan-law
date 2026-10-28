@@ -1,0 +1,1 @@
+18. Establishment of inspection committee.—There shall be established an inspection committee by the Registration Board which shall be responsible for conduct of pre-registration, post-registration, pre-renewal and other inspections of healthcare establishments, as and when deemed necessary or when so directed by the Registration Board or the chief executive officer.

@@ -1,0 +1,1 @@
+48. Failure to comply with the decision of the Authority.— Any person who, in the opinion of the Authority, fails to comply with the final decision or recommendation of the Authority, the Authority may impose a fine which may extend to ten hundred thousand Rupees on such person.

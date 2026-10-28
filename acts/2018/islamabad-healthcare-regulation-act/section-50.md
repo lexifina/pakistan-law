@@ -1,0 +1,2 @@
+50. Incentives.—(1) Healthcare establishments already registered with International Organization for Standardization (ISO) or Joint Commission International (JCI) or any other such organization shall be registered with the Board without inspection for a period till these establishments remain registered with such organizations.
+(2) Healthcare establishments registered with the Board, healthcare professional of such healthcare establishments shall be protected under immunity clause of this Act.

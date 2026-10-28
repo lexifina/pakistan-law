@@ -1,0 +1,4 @@
+7. Term of the Board and the committee members. —(1) A member of the Board shall hold office for a term of three years and shall be eligible for one second term.
+(2) A member, other than ex-officio member, of the selection committee shall hold office for a term of three years and shall be eligible for nomination for one second term.
+(3) In case of a vacancy of a member of the selection committee by death, resignation or disqualification under this Act, the Federal Government shall appoint a person as member in accordance with the provisions of this Act for the remainder of the term of the member who has died, resigned or disqualified, as the case may be. The vacancy shall not be filled if remaining period thereof is less than four months.
+(4) If a member remains on the Board or selection committee, as the case may be, for less than eighteen months then the period shall not be counted towards term.

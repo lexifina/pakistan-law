@@ -1,0 +1,1 @@
+36. Action done in good faith.—No suit or other legal proceedings shall lie against the authority, board, technical advisory committee, chief executive officer, officers, inspection teams, advisers, consultants or agents of the Authority for anything done in good faith in the execution or purported execution of this Act, rules or regulations made thereunder.

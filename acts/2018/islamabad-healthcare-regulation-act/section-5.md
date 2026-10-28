@@ -1,0 +1,4 @@
+5. Board of the Authority. —(1) The general superintendence, direction and management of affairs of the Authority and overall policy making in respect of its operations shall vest in the Board which may exercise all such powers and do all such acts, deeds and things that may be exercised or done by the Authority under this Act.
+(2) The Federal Government shall notify the Board of the Authority which shall consist of nine members, seven of whom shall be nominated on the recommendation of the committee constituted under this Act and the remaining two members shall be nominated by the Federal Government.
+(3) The Authority shall prescribe the remuneration payable to a member for attending a meeting of the Board.
+(4) A decision of the Board shall not be valid if decided in a meeting without quorum.
