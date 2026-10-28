@@ -1,0 +1,1 @@
+3. Prohibition of opium smoking. No person shall manufacture, possess or smoke opium, or possess any implement or apparatus used, or capable of being used, exclusively for the manufacture of opium, or any pipe or utensil for smoking opium.

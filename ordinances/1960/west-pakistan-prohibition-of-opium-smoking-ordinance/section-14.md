@@ -1,0 +1,1 @@
+14. Aid to excise officer. Every officer of the Police and Revenue Department shall be bound upon request made in that behalf to render lawful aid to any excise officer while acting under the provisions of this Ordinance.

@@ -1,0 +1,1 @@
+7. Penalty for offences not otherwise provided for. Whoever is guilty of any act or intentional omission in contravention of any of the provisions of this Ordinance and not otherwise provided for herein shall be punished for every such act or omission with a fine which may extend to two hundred rupees.

@@ -1,0 +1,1 @@
+15. Confiscation and destruction of opium and things seized. Any implement or apparatus used or capable of being used exclusively for the manufacture of opium and any pipe or utensil for smoking opium, wherever found, shall be confiscated and destroyed under the orders of a Magistrate having jurisdiction in the area where such implement, apparatus, pipe or utensil is found.

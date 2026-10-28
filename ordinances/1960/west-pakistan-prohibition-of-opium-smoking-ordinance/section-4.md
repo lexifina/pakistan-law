@@ -1,0 +1,1 @@
+4. Offences and punishments. Whoever contravenes the provisions of section 3 of this Ordinance, shall be punished with simple or rigorous imprisonment for a term which may extend to two years or with fine which may extend to two thousand rupees or with both.
