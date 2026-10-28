@@ -1,0 +1,4 @@
+18. Meetings of the Board of Governors, etc.—(1) The Board of Governors shall meet at least twice a year for regular or scheduled meetings and may meet at any other time at which a special meeting thereof may be called by the Chairman of the Board of Governors or requisitioned in writing by not less than four members of the Board of Governors.
+(2) Not less than ten clear days' notice of a special meeting shall be given to the members of the Board of Governors and the agenda of the meeting shall be restricted to the matters specified in the agenda to be annexed to such notice.
+(3) The quorum for a meeting of The Board of Governors shall be one-half of its members, a fraction being counted as one.
+(4) The decisions of the Board of Governors shall be expressed in terms of the views of the majority of the members present and voting and, if the members are equally divided, the Chairman shall have and exercise a second or casting vote.

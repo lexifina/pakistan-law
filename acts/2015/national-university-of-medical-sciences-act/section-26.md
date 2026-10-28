@@ -1,0 +1,2 @@
+26. Academic and administrative staff.—(1) The academic and administrative staff of the University shall be selected with a view to achieving its stated objectives and the basic criteria for their selection shall be the highest standards of competence, integrity and efficiency. .
+(2) The academic staff of the University shall enjoy freedom of expression in their research and educational work to achieve the objectives of the University.
