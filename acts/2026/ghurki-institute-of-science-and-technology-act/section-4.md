@@ -1,0 +1,32 @@
+4. Powers and Functions of the Institute.– The Institute shall have the following powers, namely:- a) to provide for education and scholarship in such branches of knowledge as it may deem fit, and to make provision for research, service to society and for the application, advancement and dissemination of knowledge in such manner as it may determine;
+b) to decide teaching methods and strategies in order to ensure the most effective educational and training programs that may include virtual, on-campus, online, distance learning, lecture, tutorials, discussions, courses of studies, seminars, demonstrations and other methods of instructions as well as practical work, workshops, internships, apprenticeship in industries, financial institutions, laboratories, hospitals, and other organizations, etc.;
+c) to offer joint degree, sandwich and split degree programs in collaboration with national and international universities and educational institutions;
+d) to prescribe courses of studies to be conducted by it and all its constituent units;
+e) to hold examinations and to award and confer degrees, diplomas, certificates and other academic distinctions to and on persons who have been admitted to and have passed its examinations under prescribed conditions;
+f) to prescribe the terms and conditions of employment of the officers, teachers and other employees of the Institute and to lay down terms and conditions that may be different from those applicable to government servants in general;
+g) to engage, where necessary, persons on contracts of specified duration and to specify the terms of each engagement;
+h) to confer honorary degrees or other distinctions on approved persons in the manner prescribed;
+i) to provide for such instruction for persons not being students of the Institute as it may determine, and to grant certificates and diplomas to such persons;
+j) to institute programmes for the exchange of students and teachers between the Institute and other universities, educational institutions and research organizations, inside as well as outside Pakistan;
+k) to provide career counselling and job search services to students and alumni;
+l) to maintain linkages with alumni;
+m) to develop and implement fund-raising plans;
+n) to provide and support the academic development of the faculty of the Institute;
+o) to confer degrees on persons who have carried out independent research under prescribed conditions;
+p) to accept the examinations passed and the period of study spent by students of the Institute at other universities and places of learning equivalent to such examinations and periods of study in the Institute, as it may prescribe, and to withdraw such acceptance;
+q) to cooperate with other universities, public authorities or private organizations, inside as well as outside Pakistan, in such manner and for such purposes as it may determine;
+r) to institute Professorships, Associate Professorships, Assistant Professorships and Lectureships and any other posts and to appoint persons thereto;
+s) to create posts for research, extension, administration and other related purposes and to appoint persons thereto;
+t) to recognize selected members of the teaching staff of colleges or educational institutions admitted to the privileges of the Institute or such other persons as it may deem fit, as Institute teachers;
+u) to institute and award financial assistance to students in need, fellowships, scholarships, bursaries, medals and prizes under prescribed conditions;
+v) to establish campuses, colleges, research and study centers, constituent colleges, teaching departments, schools, faculties, institutes, museums and other centers of learning for the development of teaching and research and to make such arrangements for their maintenance, management and administration as it may determine;
+w) to provide for the residence of the students of the Institute and the constituent units;
+x) to institute and maintain halls of residence and to approve or license hostels and lodging;
+y) to maintain order, discipline and security on the campuses of the Institute and the constituent colleges/units;
+z) to promote extra-curricular and recreational activities of students, and to make arrangements for promoting their health and general welfare;
+aa) to demand and receive such fees and other charges as it may determine;
+bb) to make provision for research, advisory or consultancy services and with these objects to enter into arrangements with other institutions, public or private bodies, commercial and industrial enterprises under such conditions as it may deem fit;
+cc) to enter into, carry out, vary or cancel contracts;
+dd) to receive and manage property transferred and grants, contributions made to the Institute and to invest any fund representing such property, grants, bequests, trusts, gifts, donations, endowments or contributions in such manner as it may deem fit;
+ee) to provide for the printing and publication of research and other works; and
+ff) to do all such other acts and things, whether incidental to the powers aforesaid or not, as may be requisite or expedient in order to further the objectives of the Institute as a place of education, learning, and research, professional and technical training, special studies, and for safeguarding tangible and intangible cultural heritage.

@@ -1,0 +1,2 @@
+7. Teaching at the Institute.– (1) All recognized teaching in various courses shall be conducted by the Institute or the constituent colleges/units in the prescribed manner and may include lectures, tutorials, discussions, seminars, demonstrations, online, distance learning and other methods of instruction as well as practical work in the laboratories, hospitals, workshops and other governmental or private organizations.
+(2) The authority responsible for organizing recognized teaching shall be such as may be prescribed.
