@@ -1,0 +1,3 @@
+8. Submission of estimates of receipts and expenditures to the Federal
+Government.―(1) The Board shall in the month of December every year, submit in such manner and form as the Federal Government may direct, to the Federal Government, for making necessary provision in its Budget, a statement of the discharge of its functions under this Act in respect of the new financial year together with a statement showing separately the estimated receipts and expenditure in foreign exchange for that year.
+(2) The Board shall not, without the previous sanction of the Federal Government, incur any expenditure or undertake any financial liability involving expenditure, in excess of the amount approved for the projects.

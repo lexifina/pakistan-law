@@ -1,0 +1,1 @@
+15. Dissolution of the Board. The Federal Government may, by Notification in the Official Gazette, declare that the Board shall be dissolved on such date, as may be specified therein, and the Board shall accordingly stand dissolved.
