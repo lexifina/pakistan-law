@@ -1,0 +1,4 @@
+9. Entering laws and RLCOs on the Registry.__(1) The Unit shall direct Government Agencies to make available on the Registry, all laws and RLCO applicable to or being administered by them as well as any other information specified by the Unit within such time as it may determine.
+(2) Every Government Agency shall nominate a representative to co-ordinate with the Unit for the purpose of ensuring compliance with sub-section (1) and with other provisions of this Act.
+(3) The head of each Government Agency, by whatever name called, shall transmit to the Unit a certificate on the schedule set by the Unit to the effect that sub-section (1) stands complied with.
+(4) Upon the transmission of the certificate referred to in sub-section (3), the RLCOs entered on the Registry by a Government Agency shall he deemed to be the only RLCOs in force and all other RLCOs pertaining to such Government Agency shall cease to be effective.

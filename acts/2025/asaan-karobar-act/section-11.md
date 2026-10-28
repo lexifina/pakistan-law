@@ -1,0 +1,1 @@
+11. Review by Government Agencies.__On expiry of the period referred to in section 10, and within such time as the Unit may determine, each Government Agency shall review the laws and RLCOs relating to it in terms of the parameters stated in section 8 and submit to the Unit, proposals regarding retention, with or without amendment, or repeal of such laws and RLCOs.

@@ -1,0 +1,2 @@
+7. Establishment of Pakistan Regulatory Registry.__(1) The Unit shall establish and maintain an electronic registry to be known as the Pakistan Regulatory Registry for cataloguing and mapping of laws and RLCOs.
+(2) The Unit may procure requisite software, hardware, systems, codes, data, infrastructure or other material to effectively manage and operate the Registry and for its future expansion and such software, hardware, systems, codes, data, infrastructure or other material shall, at all times, be accessible to and remain the property of the Unit.

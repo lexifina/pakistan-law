@@ -1,0 +1,1 @@
+24. Power to make regulations.__Subject to the provisions of this Act and the Rules made hereunder, the Secretary may, by notification in the Official Gazette, make regulations for performance of functions by the Unit under this Act.

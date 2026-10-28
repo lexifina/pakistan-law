@@ -1,0 +1,2 @@
+14. Repeal and amendment of laws and RLCOs.__(1) The proposals for amendment to or repeal of laws ratified by the Cabinet under sub-section (3) of section 13 shall be transmitted to the Majlis-e-Shoora (Parliament) for legislation.
+(2) Notwithstanding anything contained in any other law, amendments to or repeal of RLCOs as ratified by the Cabinet under sub-section (3) of section 13 shall he notified in the official Gazette and shall come into force upon such notification.

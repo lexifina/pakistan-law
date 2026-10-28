@@ -1,0 +1,1 @@
+22. Indemnity.__No suit, prosecution or other legal proceedings shall lie against any person for anything done or intended to be done in his official capacity and in good faith under this Act or the rules, notifications, instructions or directions made or issued thereunder.

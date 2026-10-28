@@ -1,0 +1,3 @@
+5. Asaan Karobar Technical Unit.__(1) Not later than thirty days from the coming into force of this Act, the Secretary shall establish the Asaan Karobar Technical Unit.
+(2) Head of the Unit to be appointed by the Government shall be a grade-20 officer of the Federal Government or a person from private sector having relevant qualifications as may be prescribed under the rules.
+(3) For the performance of the functions of the Unit, Head of the Unit may with the approval of the Federal Government, appoint such persons including technical experts as may be required from amongst the officers of Federal Government or Private Sector on such terms and conditions as may be prescribed.
