@@ -1,0 +1,1 @@
+2. Definition. In this Ordinance, unless there is anything repugnant in the subject or context, “requisitioned land” means immovable property which at the commencement of this Ordinance is subject to any requisition effected by or under the authority of the Federal Government under the rules made under the Defence of Pakistan Ordinance, 1971 (XXX of 1971).

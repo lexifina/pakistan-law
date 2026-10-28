@@ -1,0 +1,2 @@
+6. Power to obtain information.—(1) The Federal Government may, with a view to carrying out the purposes of sections 3 to 5, by order require any person to furnish to such authority as may be specified in the order such information in his possession relating to any requisitioned land as may be specified.
+(2) Every person required to furnish such information as is referred to in sub-section (1) shall be deemed to be legally bound to do so within the meaning of sections 176 and 177 of the Pakistan Penal Code (Act XLV 1860).

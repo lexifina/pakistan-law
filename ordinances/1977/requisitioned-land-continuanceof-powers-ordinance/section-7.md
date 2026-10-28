@@ -1,0 +1,1 @@
+7. Delegation of functions. The Federal Government may, by order notified in the official Gazette, direct that any power conferred or any duty imposed on it by this Ordinance shall, in such circumstances and under such conditions, if any, as may be specified in the direction, be exercised or discharged by such officer as may be so specified.
