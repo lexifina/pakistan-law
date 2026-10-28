@@ -1,0 +1,25 @@
+[^25][13. Benevolent grants to be paid from the Benevolent Fund.__ (1) Where, prior to the fourth day of September, 1988, an employee__
+(a) was declared by the prescribed medical authority to have been completely incapacitated physically or mentally to discharge the duties of his employment and for that reason was retired or removed from service ; or
+(b) had died during the continuance of his employment or dies after retirement before attaining the age of sixty-five years.
+he or, in the event of his death, his family shall be entitled to receive benevolent grant from the Benevolent Fund according to the rates specified in column (3) of the First Schedule, for a period of fifteen years or upto the date on which the employee attains or might have attained if he were alive, the age of sixty-five years, whichever is earlier:
+Provided that in the case of an employee who dies after having drawn benevolent grant under this sub-section, the said period of fifteen years shall be reckoned from the date from which he became eligible to the grant.
+(2) Where, on or after the fourth day of September, 1988, an employee is declared by the prescribed medical authority to have been completely incapacitated physically or mentally to discharge the duties of his employment and for that reason is retired or removed from service, he shall be entitled to receive for life such benevolent grant from the Benevolent Fund as specified in column (4) of the Second Schedule; or where the employee dies during the continuance of his employment, or during retirement before attaining the age of seventy years, his spouse shall be entitled to receive for life such benevolent grant from the Benevolent Fund as specified in column (4) of the Second Schedule:
+Provided that, if the deceased employee has no spouse or the spouse dies, other members of his family shall be entitled to receive benevolent grant from Benevolent Fund as prescribed for a period of fifteen years or upto the date the deceased employee would have attained the age of seventy years, whichever is earlier:
+Provided further that the said period of fifteen years shall be reckoned from the date from which the deceased employee or, as the case may be, the spouse became eligible for such grant.]
+[^26][(3) Where, on or after the first day of December 2003, an employee is declared by the prescribed medical authority to have been completely incapacitated physically or mentally to discharge the duties of his employment and for that reason is retired or removed from service, he shall be entitled to receive for life such benevolent grant from the Benevolent Fund as [^27][may be prescribed]; or where the employee dies during the continuance of his employment, or during retirement [^28]* * *, his spouse shall be entitled to receive for life such benevolent grant from the Benevolent Fund as [^27][may be prescribed]
+Provided that, if the deceased employee has no spouse or the spouse dies, other members of his family shall be entitled to receive benevolent grant from Benevolent Fund as prescribed for a period of fifteen years [^28]* * *.
+Provided further that the said period of fifteen years shall be reckoned from the date from which the deceased employee or, as the case may be, the spouse became eligible for such grant.
+(4) The beneficiaries whose grant period has not expired on 30th day of November, 2003 shall be entitled to an increase equal to twenty percent of the grant sanctioned under the rules with effect from the first day of December, 2003, for the remaining period of the grant.]
+[^29][(5) Where, on or after the [^30][15th day of June, 2013], an employee died or dies in a security related incident during his employment, his spouse shall be entitled to receive for life such additional monthly benevolent grant from the benevolent fund as may be prescribed:
+Provided that,__
+(a) If the deceased employee has no spouse or the spouse dies, other members of his family shall be entitled to receive the benevolent grant for period of fifteen years;
+(b) the period of fifteen years under clause (a) shall be reckoned from the date from which the heirs of deceased employee or, as the case may be, the spouse became eligible for such grant; and
+(c) the grant under this sub-section shall be in addition to other benefits admissible to an employee under this Act.
+Explanation. __ Security related incident for the purpose of admissibility of the additional monthly benevolent grant means death that occurs due to a terrorist act or while combating or confronting the terrorist, irrespective of the fact that the victim was a member of any law enforcement agency or a civilian employee. Death of a member of law enforcement agency due to a cause, other than a terrorist act, shall be classified as in-service death and shall not fall within the purview of this sub-section.]
+
+[^25]: Subs. by Act XIII of 1996, s.3 (w.e.f 04-09-1988).
+[^26]: Added by Act IV of 2005, s. 4 (w. e. f. 1-12-2003).
+[^27]: Subs. Act XX of 2010, s. 3. (w. e. f. 01-07-2009).
+[^28]: Omitted by Act VIII of 2015, s.2.
+[^29]: Added by Act XX of 2018, s. 2.
+[^30]: Subs. by Act No. XXI of 2023, s.2.
