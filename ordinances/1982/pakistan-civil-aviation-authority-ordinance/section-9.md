@@ -1,0 +1,2 @@
+9. Director‑General, his duties, functions and powers.― (1) The Federal Government shall appoint the Director‑General who shall be the executive head of the Authority and shall exercise suchpowers and perform such functions as may be specified under sub-section (7) of section 5 or delegated to him by the Board from time to time.
+(2) The Director‑General shall receive such salary and allowances and be subject to such conditions of service as may be determined by the Federal Government.

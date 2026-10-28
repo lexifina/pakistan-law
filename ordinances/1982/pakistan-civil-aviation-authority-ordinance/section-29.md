@@ -1,0 +1,2 @@
+29. Removal of difficulties. If any difficulty arises in giving effect to any of the provision of this Ordinance, the President may make such order, not inconsistent with the provisions of this Ordinance, as may appear to him to be necessary for the purpose of removing the difficulty:
+Provided that no such power shall be exercised after the expiry of one year from the coming intoforce of this Ordinance.

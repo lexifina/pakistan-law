@@ -1,0 +1,1 @@
+23. Ordinance XXIII of 1969 not to apply to Authority. The Industrial Relations Ordinance, 1969 (XXIII of 1969), shall not apply to or in relation to the Authority or any person in the service ofthe Authority.

@@ -1,0 +1,2 @@
+3. Establishment of the Authority.― (1) As soon as may be after the commencement of this Ordinance, the Federal Government shall, by notification in the official Gazette, establish an authority to be known as the Civil Aviation Authority for carrying out the purposes of this Ordinance.
+(2) The Authority shall be a body corporate, having perpetual succession and a common seal with power, subject to the provisions of this Ordinance, to acquire and hold property, both movable and immovable, and shall sue and be sued by the name assigned to it by sub-section (1).
