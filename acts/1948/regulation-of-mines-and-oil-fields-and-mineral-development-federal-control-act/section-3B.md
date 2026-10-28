@@ -1,0 +1,4 @@
+[^14]3B. Concessions to petroleum exploration companies.__ (1)Notwithstanding anything contained in any other law for the time being in force, every company, whether incorporated in Pakistan or outside Pakistan, to whom a licence or a lease to explore, prospect and mine petroleum is granted under this Act, not being a company such as is referred to in sub-section (1) of section 3A, shall be entitled to the concessions specified in the Schedule in addition to any concessions for the time being admissible to it under any other law or the rules made under this Act.
+(2) The Federal Government may, by notification in the official Gazette, amend the Schedule so as to add any concessions thereto or to improve any concessions therein.].
+
+[^14]: The Original sub-section (2) omitted by the Finance Act. 1998 (3 of 1998), s. 2A.
