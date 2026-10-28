@@ -1,0 +1,1 @@
+10. Federal Government to amend Schedule.⸻The Federal Government may, by notification in the official Gazette, amend the Schedule in conformity with any amendments to the provisions of the Convention set out therein which may hereafter be duly made and adopted.
