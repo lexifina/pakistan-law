@@ -1,0 +1,2 @@
+5. Exhibition of tables of fees.___ (1) Tables of the fees mentioned in the preceding section shall be exhibited prominently at every customs port, land customs station and customs aerodrome.
+(2) Every consular officer and diplomatic officer entrusted with consular functions shall exhibit the aforesaid tables of fees in his office prominently and shall permit them to be inspected by any person wishing to do so.
