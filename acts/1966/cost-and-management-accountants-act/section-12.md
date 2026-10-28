@@ -1,0 +1,4 @@
+12. Resignation of membership and casual vacancies.__ (1)Any member of the Council may at any time resign his membership by writing under his hand addressed to the President, and the seat of such member shall become vacant when such resignation is notified in the official Gazette.
+(2) A member of the Council shall be deemed to have vacated his seat if he is declared by the Council to have been absent without sufficient excuse from three consecutive meetings of the Council, or if his name is, for any cause, remove from the Register under the provisions of section 20.
+(3) A casual vacancy in the Council may be filled by nomination by the 1[Federal Government,] and the person nominated to fill the vacancy shall hold office until the expiry of the duration of the Council.
+(4) No act done by the Council shall be called in question on the ground merely of the existence of any vacancy in, or defect in the constitution of the Council.

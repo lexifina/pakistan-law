@@ -1,0 +1,9 @@
+22. Penalty for using the name of the Council etc.__ Save as otherwise provided in this Act, no person shall__
+(a) use any name or common seal which is identical with the name or the common seal of the Institute or so nearly resembles it as to deceive or as be likely to deceive the public; or
+(b) grant or confer any degree, diploma, certificate or designation which indicates or purports to indicate the possession or attainment of any qualification or competence in cost and [^28][management] accounting similar to that of a member of the Institute.
+(2) Any person contravening the provisions of sub-section (1) shall, without prejudice to any other proceedings which may be taken against him, be punishable, on first conviction, with fine which may extend to one thousand rupees, and, on any subsequent conviction, with imprisonment which may extend to six months or with fine which may extend to five thousand rupees or with both.
+(3) Nothing contained in this section shall apply to any University established by law or to any institution affiliated thereto.
+(4) If the [^29][Federal Government] is satisfied that any diploma, certificate or designation granted or conferred by any person other than the Institute, which purports to be a qualification in cost or 3[management] accounting but which, in the opinion of the [^29][Federal Government] falls short of the standard of qualifications prescribed for cost or [^28][management] accountants and does not in fact indicate or purport to indicate the possession or attainment of any qualifications or competence in cost or [^28][management] accounting similar to that of a member of the Institute, it may, by notification in official Gazette and subject to such conditions as it may think fit to impose, declare that this section shall not apply to such diploma, certificate or designation.
+
+[^28]: Subs. ibid., s. 4, for “industrial”.
+[^29]: Subs. by F.A.O., 1975, Art. 2 and Table, for “Central Government”.

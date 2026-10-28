@@ -1,0 +1,2 @@
+13. Duration and dissolution of Council.__ (1)The duration of a Council shall be three years from the date of its first meeting on the expiry of which a new Council shall be constituted in accordance with the provisions of this Act.
+(2) A Council shall, notwithstanding the expiry of its duration under sub-section (1) continue to perform its function until a new Council is constituted whereupon the Council so functioning shall stand dissolved.
