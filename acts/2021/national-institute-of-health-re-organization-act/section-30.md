@@ -1,0 +1,1 @@
+30. Power to make regulations.—The Board may make such regulations not inconsistent with the provisions of this Act and the rules for carrying out the purposes of this Act and as it may consider necessary or expedient for the administration and management of the affairs of the NIH.

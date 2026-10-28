@@ -1,0 +1,3 @@
+15. Functions of the National Health Laboratory.— (1) The National Health Laboratory shall establish and operate state of the art Core laboratories capable of performing all complex, modern measurements on human materials in terms of chemical, biologic, immunologic, bacteriologic, virologic, and molecular analysis.
+(2) The Laboratory shall perform such functions as are directed and assigned by the Federal Government or the Board.
+(3) The Laboratory shall serve as a reference laboratory for uncommonly available tests including new research tests and shall collaborate with research investigators to provide tests and analyses.

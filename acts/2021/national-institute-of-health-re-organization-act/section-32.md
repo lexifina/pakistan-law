@@ -1,0 +1,1 @@
+32. Jurisdiction in dispute resolution.— The civil court shall have exclusive jurisdiction in respect of any and all disputes, arising out matters of employment and terms and conditions of service, or any act of or contract executed by the NIH.

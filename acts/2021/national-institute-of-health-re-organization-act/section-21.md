@@ -1,0 +1,5 @@
+21. Budget, audit and accounts.— (1) Each institute and center shall submit, by such date as may be prescribed, to the Board its budget in the prescribed manner showing its estimated receipts and expenditure for approval of the Board.
+(2) The Board shall approve the financial regulations.
+(3) The accounts of the NIH including each institute and center shall be maintained in such form and manner as directed by the Board and as may be advised by the Accountant General of Pakistan.
+(4) The accounts of the NIH shall be audited by one or more auditors who are chartered accountants within the meaning, of the Chartered Accountants Ordinance, 1961 (X of 1961), and are appointed by the Board on the recommendation of the Chief Financial Officer in a transparent, manner. Any grants, aid, funds or loans provided by the Federal or Provincial Governments or a public body shall be audited by the Auditor General of Pakistan.
+(5) The audited accounts of the NIH shall be provided to the Federal Government and shall be published on the website of the NIH.

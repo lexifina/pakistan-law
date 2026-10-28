@@ -1,0 +1,1 @@
+24. Delegation of powers.— The Board may, by general or special order in writing, direct that all or any its powers under this Act shall, subject to such conditions and in such circumstances as may be specified in the order, be exercisable also by an Executive Director or any specified member or officer of the Board.
