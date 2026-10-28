@@ -1,0 +1,1 @@
+34. Opportunity to show cause. —Except as otherwise provided by this Act, no full-time officer, teacher of other employee of the University shall be removed from office, reduced in rank, or compulsorily retired from office unless he is given a reasonable opportunity of showing cause against the action proposed to be taken.

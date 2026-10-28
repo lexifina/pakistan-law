@@ -1,0 +1,4 @@
+15. Directors. —(1) In such manner as may be prescribed, the Senate may from time to time on such terms and conditions and having such powers as it may prescribe, appoint such number of Directors as it deems appropriate, including, inter alia, Director Finance, Director Human Resources.
+(2) A Director shall hold office for a term of four years and may, upon a resolution of the Senate supporting such renewal, be re-appointed once only for a further term of four years.
+(3) A Director shall hold office until the expiry of his term, or earlier resignation, or removal by the Senate on grounds of misconduct or as may otherwise be prescribed.
+(4) The job descriptions, terms and conditions of service, and criteria for performance evaluation of the Directors shall be such as may be determined by the Senate.
