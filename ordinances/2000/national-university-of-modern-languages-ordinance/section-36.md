@@ -1,0 +1,2 @@
+36. Removal of difficulties :___ (1) Any difficulty arises in giving effect to any provision of this Ordinance, the Board may make such order or direction, not inconsistent with the provisions of this Ordinance, as may appear to it to be necessary for the purpose of removing such difficulty.
+(2) The Board may issue directions or decide such matters as are covered by this Ordinance in the manner it considers proper.

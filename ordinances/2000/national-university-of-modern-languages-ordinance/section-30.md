@@ -1,0 +1,1 @@
+30. Commencement of term of office of members of authorities :___The term of office of a newly appointed or nominated person on a body or authority shall be as fixed under this Ordinance and shall commence from such date as may be prescribed.
