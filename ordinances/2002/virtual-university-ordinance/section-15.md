@@ -1,0 +1,1 @@
+15. University Auditor:___There shall be a University Auditor who shall be appointed by the Board, being a person who is a Chartered Accountant within the meaning of the Chartered Accountants Act, 1961 (X of 1961).

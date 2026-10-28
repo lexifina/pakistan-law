@@ -1,0 +1,1 @@
+35. Indemnity and bar of jurisdiction:___No suit, prosecution or other proceeding shall lie against any person or authority for anything, which is in good faith done or intended to be done under this Ordinance.
