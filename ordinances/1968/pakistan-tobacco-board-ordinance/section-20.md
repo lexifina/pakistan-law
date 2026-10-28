@@ -1,0 +1,1 @@
+20. Power to prohibit transportation, storage or sale. The 1[ Federal Government] may, by general or special order, prohibit any exporter or class of exporters from transporting, storing, buying, selling or otherwise disposing of any tobacco except in such manner and under such conditions as may be specified in the order.

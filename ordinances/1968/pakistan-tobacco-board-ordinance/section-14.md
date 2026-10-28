@@ -1,0 +1,2 @@
+14. Grants and loans by Government to the Board.___(1) The 1[Federal Government] may make grants or give loans to the Board to be placed at the disposal of the Committee for carrying out the functions of the Committee.
+(2) The 1[Federal Government] may, subject to such conditions as it may impose, authorise the Committee to give, out of the funds placed at its disposal, loans to any person for the improvement and expansion of tobacco farms.

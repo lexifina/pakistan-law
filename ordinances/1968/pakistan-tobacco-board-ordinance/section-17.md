@@ -1,0 +1,2 @@
+17. Export allotment and its distribution.___(1) The 1[ Federal Government] may, after consultation with the Board, by notification in the official Gazette, fix for each year the export allotment of tobacco and tobacco products and shall distribute the export allotment so fixed in such manner as it may deem fit.
+(2) Every person shall export the full amount of his share of the export allotment during the year to which the allotment relates.
