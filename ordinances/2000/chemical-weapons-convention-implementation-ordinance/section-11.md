@@ -1,0 +1,1 @@
+11. Delegation of powers.___The National Authority may, for the purpose of efficient discharge of its functions and duties, delegate to an officer of the Federal Government, subject to such conditions and limitations as may be specified, such of its functions and duties under this Ordinance as it may deem necessary.

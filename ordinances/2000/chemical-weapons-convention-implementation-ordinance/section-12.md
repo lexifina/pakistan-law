@@ -1,0 +1,2 @@
+12. Inspections under the Convention.___ (1) If it is proposed to conduct a routine inspection, a challenge inspection or an assistance inspection in Pakistan, the National Authority may, subject to sub-section (2), issue an authorisation under this section in respect of that inspection.
+(2) In issuing any authorisation, the National Authority shall ensure that the Convention is not abused to the detriment of the security and economic interests of Pakistan and shall take appropriate measures to protect sensitive installations not related to the Convention.
