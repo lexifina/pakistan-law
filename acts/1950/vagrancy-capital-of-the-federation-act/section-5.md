@@ -1,0 +1,4 @@
+5. Declaration of persons as vagrants.___ (1) When a person is brought before a Special Magistrate under section 4, the Special Magistrate shall make a summary inquiry into the circumstances and character of such person.
+(2) If the enquiry referred to in sub-section (1), cannot be completed forthwith, the Special Magistrate may adjourn it from time to time and order the person to be remanded for not longer than 7 days at a time to such place and custody as may be prescribed.
+(3) If on completing an inquiry under this section, the Special Magistrate is not satisfied that such person is a vagrant, he shall order him to be released forthwith.
+(4) If on completing the inquiry the Magistrate is satisfied that such person is a vagrant, he shall make a declaration to that effect and shall further inquire whether the said vagrant is a child, or an old, disabled or infirm person within the meaning of this Act.
