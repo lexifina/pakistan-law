@@ -1,0 +1,6 @@
+5. Declaration and repatriation of assets held outside Pakistan.—(1) Subject to the provisions of this Act, any person may make to the Federal Board of Revenue, by the due date specified in section 6, a declaration in respect of foreign assets acquired before the tenth day of April, 2018.
+(2) The value of a foreign asset shall be fair market value as defined in section 2.
+(3) The declaration of value and tax paid in respect of the foreign assets shall be in the manner as set out in Form A of the Schedule to this Act.
+(4) The description of the foreign assets declared under sub-section (1) and (3) shall be in the manner as set out in Form B of the Schedule to this Act.
+(5) A person declaring foreign assets under sub-section (1), may by the due date as specified in section 6 also repatriate the said foreign assets in Pakistan.
+(6) The declaration of foreign assets shall be made in the manner as set out in Form A of the Schedule to this Act, electronically on Federal Board of Revenue’s web portal and shall be valid only if it is accompanied by the evidence of payment of tax. The declarant may be required to provide additional item-wise details of such assets while filing declaration on Federal Board of Revenue’s web portal.

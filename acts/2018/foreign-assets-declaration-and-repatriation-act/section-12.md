@@ -1,0 +1,1 @@
+12. Investment in Government securities.—Investment in Government securities under S.No. 3 of the Table in section 7 shall be made in accordance with a scheme to be introduced by the Government of Pakistan through the State Bank of Pakistan, by notification in the official Gazette, specifying periodic rate of return, the period for the rate of return and period of maturity.
