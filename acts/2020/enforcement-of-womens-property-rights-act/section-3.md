@@ -1,0 +1,1 @@
+3. Powers of the Ombudsman. —In addition to the powers, functions and authority under this Act and rules made hereunder, the Ombudsman, for the purpose of this Act, shall have the same powers, functions and authority as are vested in the Ombudsman for the Protection against Harassment of Women at the Workplace Act, 2010 (IV of 2010).

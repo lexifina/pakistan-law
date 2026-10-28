@@ -1,0 +1,1 @@
+8. Loss of rent.—On culmination of proceedings under section 5, the Ombudsman may also direct the complainant to be paid by the person depriving the said complainant of the use of the property, the amount equivalent to the rent that the property would fetch at the prevalent market rate, for the duration for which the complainant was deprived of the use of such property.

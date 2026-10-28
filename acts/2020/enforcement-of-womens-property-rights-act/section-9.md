@@ -1,0 +1,1 @@
+9. Execution of orders.—The Ombudsman may direct any executive state functionary including the relevant Deputy Commissioner where the property of the Complainant is situated, to execute the orders in letter and spirit.

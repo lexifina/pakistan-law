@@ -1,0 +1,1 @@
+10. Appointment of officers, etc.—For carrying out the object and purpose of this Act, the Federal Government shall appoint such officers as may be required, on such terms and conditions as prescribed.
