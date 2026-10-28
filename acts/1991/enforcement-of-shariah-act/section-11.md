@@ -1,0 +1,1 @@
+11. Elimination of bribery and corruption.—The State shall take legislative and administrative measures, to eliminate bribery, corruption and malpractices and provide for exemplary punishment for such offences.

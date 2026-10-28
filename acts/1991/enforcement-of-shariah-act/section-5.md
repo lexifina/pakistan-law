@@ -1,0 +1,1 @@
+5. Observance of Shari’ah by Muslim citizens.—All Muslim citizens of Pakistan shall observe Shari'ah and act accordingly and in this regard the Majlis-e-Shoora (Parliament) shall formulate code of conduct for Government functionaries.

@@ -1,0 +1,2 @@
+2. Definition.—In this Act “Shari’ah” means the Injunctions of Islam as laid down in the Holy Quran and Sunnah.
+Explanation.—While interpreting and explaining the Shari’ah the recognized principles of interpretation and explanation of the Holy Quran and Sunnah shall be followed and the expositions and opinions of recognised jurists of Islam belonging to prevalent Islamic schools of jurisprudence may be taken into consideration.

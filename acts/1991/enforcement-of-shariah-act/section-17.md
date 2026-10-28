@@ -1,0 +1,1 @@
+17. Safeguard against false imputations, etc.—The State shall take legislative and administrative measures to protect the honour and reputation of the citizens against false imputations, character assassination and violation of privacy.
