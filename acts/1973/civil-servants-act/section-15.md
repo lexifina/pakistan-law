@@ -1,0 +1,1 @@
+15. Conduct.__ The conduct of a civil servant shall be regulated by rules made, or instructions issued, by Government or a prescribed authority, whether generally or in respect of a specified group or class of civil servants.

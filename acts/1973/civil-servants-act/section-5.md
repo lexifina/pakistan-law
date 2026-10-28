@@ -1,0 +1,1 @@
+5. Appointments.__ Appointments to an All-Pakistan Service or to a civil service of the Federation or to a civil post in connection with the affairs of the Federation, including any civil post connected with defence, shall be made in the prescribed manner by the President or by a person authorised by the President in that behalf.
