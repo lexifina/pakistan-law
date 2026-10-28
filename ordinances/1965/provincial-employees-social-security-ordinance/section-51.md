@@ -1,0 +1,2 @@
+51. Non-duplication of benefits.– (1) A secured person shall not be paid, for the same period, more than one of the benefits referred to in sections 35, 36 and 39, namely, sickness benefit, maternity benefit and injury benefit, and where any person is entitled to more than one of these benefits shall be given the higher or highest of such benefits.
+(2) No person shall be entitled to sickness benefit or maternity benefit or injury benefit for any day for which he receives wages.

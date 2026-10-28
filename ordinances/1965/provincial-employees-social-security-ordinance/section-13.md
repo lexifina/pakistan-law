@@ -1,0 +1,1 @@
+13. Filling of casual vacancies.– A member appointed to fill a vacancy other than a full-term vacancy, shall hold office for only so long as the member in whose place he is appointed would have been entitled to hold office if the vacancy had not occurred.

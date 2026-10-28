@@ -1,0 +1,1 @@
+29. Security reserves.– The Institution shall establish and maintain reserves in connection with the branches of social security prescribed in accordance with sub-section (4) of section 28 at such times, upto such amounts, and in such manner as may be prescribed.

@@ -1,0 +1,1 @@
+69. Exemption from taxes.– Notwithstanding anything contained in any other law, Government may, by order in writing, exempt the Institution from any tax, rate or duty leviable by Government or by a local authority under the control of Government.

@@ -1,0 +1,2 @@
+17. Medical practitioners and Medical Boards.– (1) The Institution shall appoint Medical Practitioners and Medical Boards in such Social Security areas and in such manner as may be provided by regulations.
+(2) The powers and functions of Medical Practitioners and Medical Boards, and the fees and allowances to be paid to such practitioners or the members of such boards, shall be such as may be provided by regulations.

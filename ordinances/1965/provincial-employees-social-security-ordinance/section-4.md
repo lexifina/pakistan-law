@@ -1,0 +1,2 @@
+4. Management.– (1) The general direction and superintendence of the affairs of the institution shall vest in a Governing Body which, with the assistance of a Commissioner, may exercise all powers and do all acts and things which may be exercised or done by the Institution.
+(2) In discharging its functions, the institution shall be guided by such instructions on questions of policy as may be given to it from time to time by Government, which shall be the sole judge as to whether any instructions are on a question of policy or not.

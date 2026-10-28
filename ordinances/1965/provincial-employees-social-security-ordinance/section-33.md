@@ -1,0 +1,2 @@
+33. Annual Reports.– (1) The Institution shall, within six months after the closing of a financial year, submit to Government an annual report of its work and activities during that financial year, and such report shall cover such matters as may be prescribed.
+(2) The annual report, together with the audited accounts of the Institution, shall be published and copies thereof shall be made available for sale to the public.

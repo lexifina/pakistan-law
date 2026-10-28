@@ -1,0 +1,2 @@
+48. Manner of claiming benefit.– (1) All claims for benefits under this Ordinance shall be made within such times as may be prescribed, and in such form and manner, and shall be accompanied by such documents, information and evidence as to entitlement as may be provided in the regulations.
+(2) Payment in respect of benefits shall be made in such manner, and at such times and places as may be provided in the regulations.

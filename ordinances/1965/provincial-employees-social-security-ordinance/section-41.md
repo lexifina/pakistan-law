@@ -1,0 +1,2 @@
+41. Disablement gratuity.– (1) A secured person who sustains minor disablement shall, subject to regulations, be entitled to a disablement gratuity at such rates for different degrees of disablement as may be fixed by Government by notification, in consultation with the Institution.
+(2) Where a person receiving disablement pension ceases to suffer from total or partial disablement but continues to suffer from minor disablement he shall, on the termination of his disablement pension, be entitled to disablement gratuity under this section.

@@ -1,0 +1,1 @@
+50. Exemption from stamp duty.– Notwithstanding anything to the contrary contained in the Stamp Act, 1899 (Act II of 1899), stamp duty shall not be chargeable upon any draft or order or receipt in respect of any benefit payable under this Ordinance.
