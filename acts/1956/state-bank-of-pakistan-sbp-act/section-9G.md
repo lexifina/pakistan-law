@@ -1,0 +1,1 @@
+9G. Governor and Minister of Finance to establish liaison.⸺ The Governor and the Finance Minister shall establish a close liaison through a mutual agreement with each other and shall keep each other fully informed on all matters which jointly concern the Bank and the Ministry of Finance.]
