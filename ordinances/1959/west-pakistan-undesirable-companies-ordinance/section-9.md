@@ -1,0 +1,7 @@
+9. Power to call for certain information, etc. (1) Where the registrar has reason to believe that a company is an undesirable company or that an undesiredable company is carrying on business in contravention of section 4, he or any gazetted officer authorised by him in this behalf, may__
+(a) direct any person to give such information in his possession with respect to any business carried on by that company as he may demand;
+(b) inspect or cause to be inspected any book or other document belonging to or under the control of the company or any officer thereof;
+(c) enter and search any premises and seize or authorise any person to seize any book or other document belonging to or under the control of the company or any officer thereof.
+(2) If the registrar is satisfied that a company is an undesirable company or that an undesirable company is carrying on business in contravention of section 4, he shall by order in writing, direct the manager of the company to hand over the management of the company to a person to be appointed by the registrar for the purpose, and the manager shall forthwith hand over the management of the company to such person.
+(3) The person to whom management is handed over in pursuance of sub-section (2) shall be deemed to be the manager of the company, and the other provisions of this Ordinance shall apply accordingly.
+(4) Whoever fails to comply with any direction given under sub-section (1) or sub-section (2) shall be punished with imprisonment for a term which may extend to six months or with fine or with both.
