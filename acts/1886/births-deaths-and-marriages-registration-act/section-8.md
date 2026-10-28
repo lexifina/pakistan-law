@@ -1,0 +1,1 @@
+8. Indexes to be open to inspection. Subject to the payment of the prescribed fees, the indexes so made shall be at all reasonable times open to inspection by any person applying to inspect them, and copies of entries in the certified copies of the registers to which the indexes relate shall be given to all persons applying for them.

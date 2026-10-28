@@ -1,0 +1,5 @@
+2. Local extent. This Act extends[^7] to [^8][the whole of Pakistan] and applies also [^9][to citizens of Pakistan in Acceding States].
+
+[^7]: It has been declared in force in Baluchistan by the British Baluchistan Laws Regulation (2 of 1913), s. 3 and Sch. It has also been extended to the Leased Areas of Baluchistan, see the Leased Areas (Laws) Order, 1950 (G.G.O. 3 of 1950); and applied in the Federated Areas of Baluchistan, see Gaz. of India, 1937, Pt. I, p. 1499.
+[^8]: Subs. by the Central Laws (Statute Reform) Ordinance, 1960 (21 of 1960), s. 3 and 2nd Sch. (with effect from the 14th October, 1955) for “all the Provinces and the Capital of the Federation” which had been subs. by A.O., 1949, Arts. 3(2) and 4, for “the whole of British India”.
+[^9]: The original words “within the dominions of Princes and States in India in alliance with Her Majesty, to British subjects in those dominions” have successively been amended by A. O.,1937, the Federal Laws (Revision and Declaration) Act, 1951 (26 of 1951), s. 4 and 3rd Sch., and A.O., 1961, Art. 2 and Sch, (with effect from the 23rd March, 1956), to read as above.

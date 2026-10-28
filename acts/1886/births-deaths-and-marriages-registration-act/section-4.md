@@ -1,0 +1,1 @@
+4. Saving of local laws. Nothing in this Act, or in any rule made under this Act, shall affect any law heretofore or hereafter passed providing for the registration of births and deaths within particular local areas.

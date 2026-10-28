@@ -1,0 +1,2 @@
+25. Searches and copies of entries in register books.—(1) Every Registrar of Births and Deaths shall, on payment of the prescribed fees, at all reasonable times, al1ow searches to be, made in the register books kept by him and give a copy of any entry in the same.
+(2) Every copy of an entry in a register book given under this section shall be certified by the Registrar of Births and Deaths and shall be admissible in evidence for the purpose of proving the birth or death to which the entry relates.
