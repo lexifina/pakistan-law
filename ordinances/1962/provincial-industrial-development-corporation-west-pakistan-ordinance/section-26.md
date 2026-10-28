@@ -1,0 +1,1 @@
+26. Winding up of the Corporation. No provision of law relating to the winding up of companies and corporations shall apply to the Corporation and the Corporation shall not be wound up except by order of the Government and in such manner as it may direct.

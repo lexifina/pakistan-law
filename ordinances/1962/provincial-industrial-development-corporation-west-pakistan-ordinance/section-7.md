@@ -1,0 +1,6 @@
+7. Chairman.___(1) The Government shall appoint one of the Directors to be the Chairman of the Board, who shall be the Chief Executive of the Corporation [^15][and shall, subject to the provisions of sub-section (1) of section 5, exercise such powers as are exercisable by the Corporation under this Ordinance].
+(2) Subject to his continuing to hold office as a Director, the Chairman shall hold office as Chairman for a term of three years and, subject as aforesaid, shall remain in office as Chairman thereafter until his successor in that office is appointed and may, subject as aforesaid, be appointed to hold that office for a further term or terms as the Government may, in appointing him thereto, determine.
+8. Notwithstanding anything contained in sections 6 and 7, when the Board is first constituted, the Chairman and Directors, shall hold office for such term, not exceeding three years, as may be determined by the Government:
+Provided that such Chairman and Directors may be appointed to hold that office for a further term or terms as the Government may, in appointing him thereto, determine.
+
+[^15]: Added by the Provisional Industrial Development Corporation (West Pakistan) (Amdt.) Ordinance, 1971 (26 of 1971), s. 4.)
