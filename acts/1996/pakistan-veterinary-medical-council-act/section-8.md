@@ -1,0 +1,1 @@
+8. Terms and conditions of the officers, etc. of the Council:—The Council may with the previous sanction of the Federal Government fix the remuneration and allowances to be paid to the President, the Vice President, members and officers and servants of the Council.
