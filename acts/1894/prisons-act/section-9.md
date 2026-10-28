@@ -1,0 +1,1 @@
+9. Officers not to have business dealings with prisoners. No officer of a prison shall sell or let, nor shall any person in trust for or employed by him sell or let, or derive any benefit from, selling or letting, any article to any prisoner or have any money or other business dealings directly or indirectly with any prisoner.

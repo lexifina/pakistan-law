@@ -1,0 +1,1 @@
+49. Punishments to be in accordance with foregoing sections. Except by order of a Court of Justice, no punishment other than the punishments specified in the foregoing sections shall be inflicted on any prisoner, and no punishment shall be inflicted on any prisoner otherwise than in accordance with the provisions of those sections.

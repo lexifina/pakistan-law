@@ -1,0 +1,1 @@
+10. Officers not to be interested in prison contracts. No officer of a prison shall, nor shall any person in trust for or employed by him, have any interest, direct or indirect, in any contract for the supply of the prison: nor shall he derive any benefit, directly or indirectly, from the sale or purchase of any article on behalf of the prison or belonging to a prisoner.
