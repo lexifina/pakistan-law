@@ -1,0 +1,7 @@
+5. Power of superintendence.—(1) The appropriate Government may, if it considers it necessary for any purpose of this Ordinance, by order in writing assume the superintendence of all or any of the medical and public health services of any local authority.
+(2) Upon the assumption of superintendence under sub-section (1),—
+(a) the appropriate Government may by order in writing specify the scale of the medical or public health establishment concerned to be maintained by the local authority, the qualifications to be required for appointment to posts in such establishment, and the pay and other conditions of service of such establishment;
+(b) the powers of appointment, dismissal and punishment of, and grant of leave to, members of such establishment shall vest in such authority as the appropriate Government may appoint in this behalf;
+(c) the appropriate Government may by order in writing specify the powers to be exercised by Health Officers employed under the local authority;
+(d) the appropriate Government shall have power to inspect, superintend and control the operations of the local authority in regard to any purpose of this Ordinance, and may by order in writing authorise persons to carry out such inspection, superintendence and control and define their powers and duties when so acting;
+(e) the costs of and incidental to the services and establishments concerned shall continue to be paid out of the funds of the local authority.

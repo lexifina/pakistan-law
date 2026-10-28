@@ -1,0 +1,1 @@
+12. Certain persons deemed to be public servants. All persons authorised under sub-section (2) of section 3, clause (d) of sub-section (2) of section 5, section 6 or clause (b) of sub-section (2) of section 9 shall be deemed to be public servants within the meaning of the Pakistan Penal Code (XLV of 1860).

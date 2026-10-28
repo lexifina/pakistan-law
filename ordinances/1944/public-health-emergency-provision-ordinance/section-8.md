@@ -1,0 +1,1 @@
+8. Power to give directions. For the purpose of carrying into effect any of the foregoing provisions of this Ordinance or any order made thereunder, the appropriate Government may in writing give to any local authority such directions as it thinks fit, and it shall be the duty of the local authority to comply therewith.
