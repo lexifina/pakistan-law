@@ -1,0 +1,1 @@
+3. Injured persons to be treated on priority basis.___ Where an injured person is brought to a hospital, he shall be provided medical aid without delay on priority basis over all other medico-legal formalities.

@@ -1,0 +1,3 @@
+11. Penalty.___ Whoever contravenes or violates the provisions of this Act or the rules made there under shall be punishable with imprisonment which may extend to two years, or with fine not less than ten thousand rupees, or with both, in addition to any other penalty to which he may be liable under any other law for the time being in force:
+Provided that where penalty of fine is imposed half of such fine shall be paid to injured person or his heirs, as the case may be, as compensation:
+Provided further that the Court may direct the Medical and Dental Council under the Medical and Dental Council Ordinance, 1962 (XXXII of 1962) to cancel the registration of a doctor convicted by the Court.
