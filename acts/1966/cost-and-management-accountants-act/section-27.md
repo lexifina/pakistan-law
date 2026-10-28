@@ -1,0 +1,3 @@
+27. Dissolution of the Institute registered under Act VII of 1913. On the commencement of this Act,__
+(1) the company registered under the Companies Act, 1913 as, the Pakistan Institute of Industrial Accountants shall stand dissolved and thereafter no person shall make, asset or take any claims, demands or proceedings against the dissolved company or against any officer thereof in his capacity as such officer, except in so far as may be necessary for enforcing the provisions of this Act;
+(2) the right of every member to or in respect of the dissolved company shall be extinguished, and thereafter no member of that company shall make, assert or take any claims or demands or proceedings in respect of that company except as provided in this Act.
