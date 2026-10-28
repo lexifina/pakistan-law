@@ -1,0 +1,10 @@
+18. Power to call for information.—(1) Any person authorised in this behalf by the [^14][Federal Government] may, for the purpose of ascertaining whether or not any goods or property insurable under this Ordinance has been so insured, or for the purposes of determining the insurable value of any goods or property insured, or required or proposed to be insured, under this Ordinance, or for the purpose of assessing the damage suffered by any goods or property insured under this Ordinance,—
+(a) require the owner or occupier of any goods or property, or any person carrying on in Pakistan the business of any kinds of insurance or banking or of selling goods to submit to him by such date as he may specify such accounts, books or other documents or to furnish to him such information as he may reasonably consider necessary, and
+(b) at any reasonable time,—
+(i) enter into any premises .occupied or otherwise used by any such person or any premises containing or comprising any goods or property insurable under this Ordinance,
+(ii) inspect any such premises and goods contained therein, and
+(iii) require any person found in or on any such premises whom he believes to be in possession of, or otherwise capable of furnishing information relevant to his investigation to furnish to him such information as he may reasonably think necessary.
+(2) Whoever wilfully obstruct any person in the exercise of his powers under sub- section (1) or fails without reasonable cause to comply with anything required of him thereunder shall, in respect of each such obstruction or failure, be punishable with fine which may extend to five thousand rupees and with a further fine 'which may extend to one thousand rupees for every day after the first during which the obstruction or failure continues.
+(3) Whoever, in purporting to comply with his obligations under sub-section (1), knowingly or recklessly makes a statement false in material particular, shall be punishable with imprisonment which may extend to two years, or with fine which may extend to one thousand rupees.
+
+[^14]: Subs. by P. O. No. 4 of 1975, Art. 2 and Table
