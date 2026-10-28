@@ -1,0 +1,2 @@
+93. Powers of the Government.___(1) The Government may issue directions to a local government and the local government shall be bound by such directions.
+(2) Where the situation demands immediate action and the local government fails to comply with the directions given to it under sub-section (1), the Government may direct the officer authorized by it to take such action as the situation may necessitate.

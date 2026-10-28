@@ -1,0 +1,1 @@
+39. Powers of Election Tribunal.―The Election Tribunal may exercise powers of a civil court trying a suit under the Code of Civil Procedure, 1908 (V of 1908) and shall be deemed to be a Court within the meaning of sections 480 and 482 of the Code.

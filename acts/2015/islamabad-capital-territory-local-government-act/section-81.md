@@ -1,0 +1,4 @@
+81. Application of Local Fund.—(1) Monies credited to a Local Fund shall be expended in accordance with the annual budget and revised budget estimates approved by the local government.
+(2) A local government shall not transfer monies to any other local government except by way of payment of debts, for carrying out deposit works or for such other purposes as may be prescribed.
+(3) The application of Local Fund shall be subject to the budgetary constraints and according to the minimum prescribed ratio of development and non-development expenditures.
+(4) Where a new local government is to take over during a financial year as a result of fresh elections, the outgoing local government shall not spend funds or make commitments for any expenditure under any demand for grant or appropriation in excess of eight percent per month of the budgeted funds for the remainder of its term in office in that financial year.

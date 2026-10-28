@@ -1,0 +1,5 @@
+27. Bar against dual membership.—(1) A Mayor, a Deputy Mayor, a Chairman or a Vice Chairman may contest election for any other political office after resigning from the office of the Mayor, Deputy Mayor, Chairman or Vice Chairman.
+(2) A member of a local government, other than the Chairman of a Union Council, may contest election for any other political office without resigning from the membership of the local government but any such member shall not simultaneously hold more than one office.
+(3) If a member of a local government is elected to any other political office, on the notification of election of that political office, his seat as member of the local government shall become vacant.
+(4) If a Chairman of a Union Council is elected as the Mayor or a Deputy Mayor, he shall cease to be the Chairman of the Union Council and the seat of the Chairman of the Union Council shall stand vacated.
+(5) Nothing in this section shall apply to bar a member of a local government to contest the election of Mayor, Deputy Mayor, Chairman or Vice Chairman of a local government.

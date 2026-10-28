@@ -1,0 +1,2 @@
+106. Appointment and control of Inspectors.—(1) The Mayor or the Chairman shall, with the approval of the local government, authorize the officials of the local government as Inspectors for the enforcement of the offences specified in the Schedules.
+(2) The prescribed officer shall be the controlling authority and administrative head of an Inspector and the Inspector shall report to the officer for the enforcement of provisions of this Chapter.

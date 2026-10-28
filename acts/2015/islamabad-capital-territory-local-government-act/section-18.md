@@ -1,0 +1,1 @@
+18. Executive Authority to assist the Election Commission.―It shall be the duty of all executive authorities in the Islamabad Capital Territory to assist the Election Commission in the discharge of its functions.

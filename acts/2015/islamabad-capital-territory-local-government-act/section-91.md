@@ -1,0 +1,2 @@
+91. Additional powers of the Government.___ (1) Notwithstanding anything contained in this chapter, the Government may, by rules, determine the minimum rate of a tax or free to be levied and collected by a local government.
+(2) The Government may, for reasons to be recorded in writing and by notification, exempt the levy of any tax or fee of a local government for specified period of not more than fifteen days on any special occasion or in order to alleviate the specific hardship suffered by people at large or a section of people.

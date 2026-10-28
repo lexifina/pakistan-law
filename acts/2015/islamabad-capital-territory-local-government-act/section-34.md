@@ -1,0 +1,3 @@
+34. Vote of no-confidence.—(1) Subject to this section, a Mayor or Deputy Mayor, shall cease to hold office if a vote of no-confidence is passed against him in the prescribed manner by two-third majority of the total number of members of the local government.
+(2) A motion of no-confidence shall not be moved before the expiry of one year of his assumption of office as the Mayor or Deputy Mayor.
+(3) Where a motion of no-confidence against the Mayor or Deputy Mayor, has been moved and fails for want of the requisite majority of votes in a meeting, no similar motion shall be moved against him before the expiry of one year from the date when such motion was moved.

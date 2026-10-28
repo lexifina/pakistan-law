@@ -1,0 +1,1 @@
+13. Saving.―Nothing contained in this Chapter shall be construed to prevent a woman, peasant, worker, technocrat or a non-Muslim from being a candidate or elected to a general seat in any local government.

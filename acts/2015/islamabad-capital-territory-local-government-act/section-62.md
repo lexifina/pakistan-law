@@ -1,0 +1,2 @@
+62. Prosecution of offences under this Chapter.—(1) Subject to section 59, a Court shall not take cognizance of an offence under this Chapter except on a complaint in writing made by order or under authority of the Election Commission.
+(2) An offence punishable under this Chapter shall be triable by a Magistrate of first class and if a Magistrate lacks jurisdiction to try such case it shall be tried by a court of competent jurisdiction.

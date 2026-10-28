@@ -1,0 +1,1 @@
+122. Members and servants of local governments to be public servants.—Every member and every servant of a local government, and every other person duly empowered to act on behalf of a local government, shall be deemed to be a public servant within the meaning of section 21 of the Pakistan Penal Code, 1860 (Act XLV of 1860).

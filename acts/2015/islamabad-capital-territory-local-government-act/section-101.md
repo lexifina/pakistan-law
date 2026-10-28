@@ -1,0 +1,1 @@
+101. Transfer of property by the Government.— Subject to such conditions as may be prescribed, the Government may, on its own accord or on a request by a local government, transfer the management of nazul land, auqaf land or any other Government or public property to it for administration as a trustee.

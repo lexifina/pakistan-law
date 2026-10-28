@@ -1,0 +1,1 @@
+84. Honoraria and allowances.—A local government may, subject to the prescribed limitations, make budgetary provisions for honoraria and allowances of the Mayor, Chairman, Deputy Mayor, Vice Chairman or a member of the local government.

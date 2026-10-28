@@ -1,0 +1,1 @@
+121. General powers of local governments.—Notwithstanding any specific provision of this Act, a local government shall perform its functions conferred by or under this Act and exercise such powers and follow such procedures as are enumerated in Ninth Schedule.

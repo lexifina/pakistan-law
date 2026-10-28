@@ -1,0 +1,2 @@
+126. Constitution of Oversight Committees.—(1) There shall be different oversight committees at Union Council and Metropolitan Corporation level elected from the respective councils in the manner as may be prescribed to oversee the performance of the offices and report the matters to the Metropolitan Corporation and the Councils, as the case may be.
+(2) The Oversight Committees shall perform their functions as may be prescribed.
