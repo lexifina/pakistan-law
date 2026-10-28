@@ -1,0 +1,1 @@
+6. Power to exempt.___ The Federal Government may, by notification in the official Gazette, exempt any company or class of companies from the operation of the provisions of sub-section (1) of section 3 subject to such conditions and for such period as may be specified in the notification.
