@@ -1,0 +1,1 @@
+31. Act to override other laws. ⎯The provisions of this Act shall have effect notwithstanding anything inconsistent contained in any other law for the time being in force and any such law, rule or regulation shall, to the extent of any inconsistency, cease to have effect from the date this Act comes into force.

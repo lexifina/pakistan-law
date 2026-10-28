@@ -1,0 +1,1 @@
+24. Officers etc., to be public servant. ⎯Every officer, employee expert and consultant of the Authority shall be deemed to be a public servant within the meaning of section 21 of the Pakistan Penal Code, 1860 (Act XLV of 1860).

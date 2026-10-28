@@ -1,0 +1,2 @@
+10. Chairman of the Authority. ⎯(1) The Federal Government shall appoint Chairman of the Authority in accordance with the qualifications and procedure laid down by the Council. The Chairman shall be responsible for the policy matters for such period and such terms and conditions as may be determined by the Council.
+(2) The Chairman shall perform such function and carry out such responsibilities as may be delegated to him by the Council or the Board.

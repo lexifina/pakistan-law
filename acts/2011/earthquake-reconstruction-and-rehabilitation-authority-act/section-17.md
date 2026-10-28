@@ -1,0 +1,1 @@
+17. Accounts. ⎯The Authority shall maintain complete and accurate books of accounts and shall, after the end of each financial year, prepare for the financial year a statement of accounts of the Authority in such form as may be prescribed by the Controller General of Accounts for submission to the Federal Government.

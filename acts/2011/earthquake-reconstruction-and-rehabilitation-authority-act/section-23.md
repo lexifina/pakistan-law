@@ -1,0 +1,1 @@
+23. Indemnity. ⎯No suit, prosecution or other legal proceedings shall lie against the Authority, the Council, the Board, the Chairperson, the Chairman, or any member, officer, servant, advisor, consultant or expert of the Authority, for anything done in good faith under this Act.
