@@ -1,0 +1,6 @@
+16. Accounts and audit.—(1) A securities exchange shall keep proper books of accounts and records of its profit and loss, assets and liabilities and all other transactions of the securities exchange as may be prescribed.
+(2) The securities exchange shall send audited financial statements along with auditor's report of the securities exchange for the financial year, including such other items as may be prescribed, within three month after the end of each financial year or such later time as allowed by the Commission.
+(3) The Commission may, where it deems appropriate, also require operational and regulatory audit to be conducted by an independent auditor in a prescribed manner.
+(4) The auditors report shall be in such a manner as may be prescribed.
+(5) The auditors shall have a right of access at all reasonable times to the books, accounts, vouchers and other records of the securities exchange and are entitled to require from officers of the securities exchange such information and explanations as they consider necessary for the performance of their duties as auditor.
+(6) The accounting and other records required to be reported under this section shall be preserved by the securities exchange for a period of ten years or such longer period as may be prescribed.

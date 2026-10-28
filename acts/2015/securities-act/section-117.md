@@ -1,0 +1,2 @@
+117. Persons to whom public offer shall be made.— The acquirer shall ensure that the offer letter is sent to all the shareholders of the target company whose names appear on the register of members of the company as on the date specified in the public announcement:
+Provided that where the public announcement is made pursuant to an agreement to acquire voting shares or control of the target company, the offer letter shall be sent to the shareholders other than the parties to the agreement.

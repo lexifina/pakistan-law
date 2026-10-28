@@ -1,0 +1,11 @@
+119. Prohibitions on board of directors of the target company.— (1) The board of directors of the target company, during the offer period, shall not—
+(a) sell, transfer, or otherwise dispose of or enter into an agreement for sale, transfer, or for disposal of the undertaking or a sizeable part thereof, not being sale or disposal of assets in the ordinary course of business of the company or its subsidiaries;
+(b) encumber any asset of the company or its subsidiary;
+(c) issue any further shares during the offer period; or
+(d) enter into any material contract.
+(2) Once the public announcement of intention has been made, the board of directors of the target company shall not appoint any person who represents or has an interest in the acquirer as an additional director or against a casual vacancy on the board of directors, till acquisition is completed.
+(3) The target Company shall not transfer the securities acquired by the acquirer unless all obligations have been fulfilled by the acquirer under this chapter as certified by the manager to the offer.
+(4) Notwithstanding anything contained in the Companies Ordinance, 1984 (XLVII of 1984), once the acquisition of shares has been completed in accordance with this Part, the target company shall allow such changes in the board of directors as would give the acquirer proportionate representation on the board or control of the company.
+(5) In case the acquirer does not get a proportionate representation on the board of directors of the target company or the number of casual vacancies so created to complete the board on the basis of proportional representation are not sufficient, the acquirer may serve a notice on the target company for holding of fresh elections and shall submit a copy of such notice to the Commission forthwith.
+(6) The board of directors of the target company shall cause the election of directors to be held within thirty days from the receipt of the notice under sub-section (5), and the elections shall be held in accordance with the provisions of sub-sections (2) to (5) of section 178 of the Companies Ordinance, 1984 (XLVII of 1984).
+(7) The board of directors so elected shall hold office during the remainder of the term of the outgoing directors of the target company.

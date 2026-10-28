@@ -1,0 +1,1 @@
+20. Compulsory listing. Where the Commission, having regard to the nature of and the dealings in a company's securities, is of the opinion that it is necessary or expedient in the public interest so to do, it may, after consulting the securities exchange and giving the company an opportunity of being heard, direct the securities exchange to list the company's securities.

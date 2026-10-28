@@ -1,0 +1,1 @@
+90. Expert to be independent.— A prospectus shall not contain a statement purporting to be made by an expert unless the expert is a person who is not, and has not been, engaged or interested in the formation or promotion or in the management of the company.

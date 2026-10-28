@@ -1,0 +1,1 @@
+66. Representatives.— No person shall act as a representative in carrying on business in any regulated securities activity or hold himself out as doing so, unless he is the holder of a representative's licence for that regulated securities activity and is duly accredited to a principal.

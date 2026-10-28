@@ -1,0 +1,6 @@
+56. Emergency powers of the Commission.— (1) Where the Commission has reason to believe or decides on the recommendation of the central depository, that an emergency exists or where the Commission considers it necessary or expedient in the interest of the public or section of the public or for the protection of customers or where the Commission takes action under section 13 or section 32, the Commission may direct by notice in writing a central depository to take such action as it considers necessary and the central depository shall comply with that direction.
+(2) Where a central depository fails to comply with a direction of the Commission under sub- section (1), within such time as is specified by the Commission, the Commission may take such other action, including but not limited to those specified in sub-section (1), as the Commission considers fit to maintain or restore fair, transparent and efficient depository facility.
+(3) In this section, “emergency” means —
+(a) any act of government affecting securities;
+(b) any major market disturbance which prevents the market from accurately reflecting the forces of supply and demand for securities; or
+(c) any other situation or practice which in the opinion of the Commission constitutes an emergency.

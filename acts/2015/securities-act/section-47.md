@@ -1,0 +1,2 @@
+47. Licensing requirement.— No person shall establish or operate or assist in establishing or operating or hold himself out as operating a depository facility except under and in accordance with a central depository licence granted by the Commission under section 49:
+Provided that a licensing requirement provided in this section shall not be applicable on depository facility provided by State Bank of Pakistan through State Bank of Pakistan-Banking Services Corporation for government securities.

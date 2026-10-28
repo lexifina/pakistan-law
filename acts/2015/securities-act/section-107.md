@@ -1,0 +1,2 @@
+107. Notification to the Commission of prescribed information.— (1) Every listed company, once in each year, prepare in the prescribed manner and file with the Commission a return containing the prescribed information.
+(2) The return referred to in sub-section (1) shall be filed with the Commission within forty-five days from the date of the annual general meeting held in the year or, where no such meeting is held or if held is not concluded, from the last day of the calendar year to which it relates.

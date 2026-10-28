@@ -1,0 +1,1 @@
+176. Removal of difficulties.— If any difficulty arises in giving effect to any provision of this Act, the Federal Government may, make such order as it may deem necessary for removing the difficulty.

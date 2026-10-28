@@ -1,0 +1,1 @@
+140. Destruction of documents.— A person who destroys, falsifies, conceals or disposes of or causes or permits the destruction, falsification, concealment or disposal of any document, which he knows or ought to know is relevant to an inspection under section 138 or an investigation under section 139, commits an offence.
