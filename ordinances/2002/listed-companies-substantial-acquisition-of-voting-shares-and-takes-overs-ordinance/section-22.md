@@ -1,0 +1,2 @@
+22. Notice before enquiry.⸻ (1) Before ordering an enquiry under section 21, the Commission shall give not less than seven days’ notice to the acquirer, the seller, the target company, the manager to the offer as the case may be.
+(2) During the course of an investigation, the acquirer, the seller, the target company, the manager to the offer, against whom the investigation is being carried out shall be bound to discharge his obligation as provided in this Ordinance and the rules made thereunder.

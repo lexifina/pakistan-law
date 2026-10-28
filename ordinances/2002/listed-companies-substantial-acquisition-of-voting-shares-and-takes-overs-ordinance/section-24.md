@@ -1,0 +1,3 @@
+24. Submission of report and communication of findings.⸻ (1) The enquiry officer shall, as soon as possible, on completion of the enquiry, submit report to the Commission.
+(2) The Commission shall, after consideration of the enquiry report, communicate the findings of the enquiry officer to the acquirer, the seller, the target company, the manager to the offer as the case may be.
+(3) On receipt of the reply from the acquirer, the seller, the target company or, as the case may be, the manager to the offer, the Commission may direct them to take such measures as it may deem fit in the interest of the securities market and for due compliance with the provisions of this Ordinance and rules made thereunder.

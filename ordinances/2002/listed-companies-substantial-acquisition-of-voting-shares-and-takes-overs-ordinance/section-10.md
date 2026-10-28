@@ -1,0 +1,1 @@
+10. Contents of public offer, mode of payment and minimum offer price.⸻The contents of the public offer, its submission to the Commission, the date to be specified for the public announcement, mode of payment and minimum offer price, shall be in such form and manner as may be prescribed.

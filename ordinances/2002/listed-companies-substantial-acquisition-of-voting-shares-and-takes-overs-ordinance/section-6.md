@@ -1,0 +1,4 @@
+6. Consolidation of holdings.⸻ (1) No acquirer, who has acquired more than twenty-five per cent but less than fifty-one per cent of the voting shares or control of a listed company, shall acquire additional voting shares or control unless such acquirer makes a public announcement of offer to acquire voting shares or control in accordance with this Ordinance:
+Provided that such acquirer shall not be required to make a fresh public announcement of offer within a period of twelve months from the date of the previous announcement.
+(2) No acquirer shall acquire voting shares in excess of the quantity specified in the invitation of offer made by such acquirer and all additional or incremental acquisition beyond the preceding offer shall be valid only through further offer.
+(3) Noting in this section shall apply to a person who has already acquired fifty-one per cent or more of the voting share or control in consequence of making a public announcement of the offer.

@@ -1,0 +1,1 @@
+27. Delegation of powers.–– The Commission may, subject to such conditions and limitations as it may deem fit to impose, delegate all or any of its powers and functions under this Ordinance to a Commissioner appointed under section 5 of the Securities and Exchange Commission of Pakistan Act, 1997 (XLII of 1997).

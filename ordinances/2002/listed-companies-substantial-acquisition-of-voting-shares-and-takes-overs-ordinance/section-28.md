@@ -1,0 +1,1 @@
+28. Relaxation of provisions of the rules.–– Where the Commission is satisfied that it is not practicable or expedient to comply with any requirement of the rules made hereunder in a particular case, the Commission may, in consultation with the Federal Government and for reasons to be recorded, relax such requirement subject to such conditions as it may deem fit.

@@ -1,0 +1,4 @@
+17. Upward revision of Offer.⸻ Irrespective of whether or not there is a competitive bid the acquirer, who has made the public announcement, may make upward revision in his offer in respect to the price and the number of voting shares to be acquired at any time up to seven working days prior to the date of the closure of public offer: Provided that any such upward revision of the public offer shall be made only on the following conditions, namely:⸻
+(a) the making of a public announcement in respect of such changes or amendments in all the newspapers in which the earlier public announcement was made;
+(b) the informing of the Commission, the stock exchange on which the voting shares of the target company are listed, and the target company at its registered office simultaneous with the issue of public announcement referred in clause (a); and
+(c) the increase in the value of the security as provide under sub-section (3) of section 19.

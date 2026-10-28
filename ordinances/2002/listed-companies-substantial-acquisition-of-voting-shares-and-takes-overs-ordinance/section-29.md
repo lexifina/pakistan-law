@@ -1,0 +1,1 @@
+29. Power of the Commission to make rules.–– The Commission may, in consultation with the Federal Government and by notification in the official Gazette, make rules for carrying out the purposes of this Ordinance.

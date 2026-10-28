@@ -1,0 +1,1 @@
+30. Ordinance to override other laws etc.⸻ The provisions of this Ordinance shall have effect notwithstanding anything contained in the Companies Ordinance, 1984 (XLVII of 1984), or any other law for the time being in force or in any charter, statute or memorandum or articles of association or in any applicable document or resolution.
