@@ -1,0 +1,1 @@
+18. Members, officers, staff, etc. deemed to be public servants.__ Subject to other provisions of this Ordinance, every officer and employee of the BOI shall be deemed to be a public servant within the meaning of section 21 of the Pakistan Penal Code (Act XLV of 1860).

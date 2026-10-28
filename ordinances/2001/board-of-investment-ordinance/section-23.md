@@ -1,0 +1,2 @@
+23. Power to make rules.__ (1) The BOI may, with the prior approval of the Federal Government, make rules for carrying out the purposes of this Ordinance and to regulate appointments and conditions of service of officers and employees in the service of the BOI; and
+(2) Until the rules referred to in subsection (1) are made, the officers and employees of the BOI shall continue to be governed, in respect of the matters terms and conditions of service by rules applicable to them immediately before the commencement of this Ordinance.

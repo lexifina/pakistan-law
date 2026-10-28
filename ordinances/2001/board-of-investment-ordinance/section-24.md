@@ -1,0 +1,1 @@
+24. Power to make regulations.__ The BOI may, by Notification in the Official Gazette, make regulations, not inconsistent with the provisions of this Ordinance or the rules, for carrying out the purposes under this Ordinance.
