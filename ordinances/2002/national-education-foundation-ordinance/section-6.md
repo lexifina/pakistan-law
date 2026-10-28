@@ -1,0 +1,6 @@
+6. Cardinal Principles. The cardinal principles governing the whole operation of the Foundation” shall be that Board shall―
+(1) Ensure that the resources of the Foundation shall not be used for political patronage or for any other political purposes ;
+(2) Treat the income and monies of the “Foundation”, all of which shall be considered public assets, as a sacred trust and it shall be their prime responsibility to administer and manage Foundation with due diligence and transparent fiduciary responsibility and for the purposes for which the Foundation has been established;
+(3) Ensure that as far as possible the Foundation”s operations are decentralized, subject to sound financial and operational management principles, to facilitate access to the Foundation”s services by partner organizations in all the Federal Administered Areas ;
+(4) Ensure that the resources of the Foundation are only provided to well functioning, professionally managed institution with transparent governance and financial management systems ;
+(5) Ensure that financial assistance to partner organizations and beneficiaries is based on sound principles of cost sharing and sustainability, and financial viability where applicable.

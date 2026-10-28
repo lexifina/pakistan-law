@@ -1,0 +1,21 @@
+5. Functions of the Foundation.―(1) Establishing partnership and collaboration with agencies and organizations pursuing the common goal of educational development particularly promoting public-private partnership; mobilizing resources for basic/elementary, technical/vocational education.
+(2) Initiating and maintaining contact and collaborating with other organizations, institutions, NGOs, bodies and societies in Pakistan and abroad including relevant international agencies, constituents of UN system interested in similar objectives and to cooperate with such institutions, bodies and organizations for furthering the objectives of the Foundation.
+(3) Coordinating and networking with other Foundations and stakeholders, initiating, organizing and facilitating projects and programs on resource sharing basis.
+(4) Providing support in providing and organizing in-service training for;
+(a) teachers of the pilot project and innovative program;
+(b) Private school teachers; and
+(c) NGO communities, representatives and members of educational committees and other bodies developed for such purpose from time to time.
+(5) Providing and administrating direct financial assistance to private school operators and institutions related to educational development.
+(6) Providing consultancy services for education development and related activities as and when required by national, international and other organizations.
+(7) Ensuring sustainability of educational development under public private partnership through innovative mechanisms such as providing endowment and matching grants etc.
+(8) Ensuring that equal opportunities for education are provided to boys and girls of whatever social, class, colour, race or creed to promote equality, development, human rights and peace for all.
+(9) Fiend raising from public, private, support organization donors, international agencies and other sources including income from Foundation”s projects.
+(10) Welfare program for dependents of educationists and teachers including scholarships for students, financial support to widows and other related projects.
+(11) Developing databases, conducting research and preparing periodical reports on educational development particularly in private and NGO sector.
+(12) Providing assistance through newsletters, rendering advice, developing training packages, providing a forum for exchange of ideas and sharing experiences among various stakeholders promoting educational development in particular.
+(13) Providing support and assistance for the efforts in educational development with focus on new technologies including IT etc.
+(14) Establishing in any place in the Federal Administered Areas such regional offices, branches and local units as may be necessary for managing any of the affairs of the Foundation.
+(15) Investing and dealing with all money of the Foundation not immediately required in such securities, shares, debentures and in such manner as shall from time to time be determined for the benefit of the Foundation as may be permissible under the law and to create reserve fund, insurance fund and depreciation fund thereto.
+(16) Purchasing, taking on lease or on allotment or hire or otherwise acquire, erect or adapt movable or immovable properties for the time being and to sell, let outor hire all or any portion of the same as considered necessary for attaining the objects of the Foundation.
+(17) Entering into any arrangement with any government authority (Federal, Provincial, municipal, local or otherwise), or any corporation, company or persons that may be conducive to the Foundation”s objectives and to obtain from any such government, authority, corporation, company or person any charters, contracts, decrees, rights, privileges and concessions which the Foundation may think desirable, and to carry out, exercise and comply with any such charters, contracts, decrees, rights, privileges and concessions.
+(18) Opening accounts with bank or banks or approved financial institutions and to draw, make, accept, endorse, discount, execute and issue promissory notes, bills of exchange, cheques, bills of lading, warrants, debentures, and other negotiable or transferable instruments, concerning the business of the Foundation.

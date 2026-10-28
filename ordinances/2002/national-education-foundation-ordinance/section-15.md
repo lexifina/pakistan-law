@@ -1,0 +1,1 @@
+15. Regulations. Subject to this Ordinance and the rules made thereunder, the Board may, with the previous approval of the Federal Government, make regulations for all matters not provided for in the rules for which provision is necessary for carrying out the purposes of this Ordinance and the rules.

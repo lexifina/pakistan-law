@@ -1,0 +1,1 @@
+11. Appointment of officers, employees etc. For the efficient” performance of its functions, the Foundation may appoint its employees, with the prior approval of the Board on such terms and conditions as may be prescribed.
