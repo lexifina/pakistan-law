@@ -1,0 +1,2 @@
+13. Appeal.― (1) Any person aggrieved by order of the court under section 12 may file an appeal to the court of sessions within thirty days of the passing of the order of sentence and the Court of sessions shall decide the appeal within sixty days.
+(2) Any person aggrieved by the final decision of the Court may, within ten days of the final Judgment or order of the Court prefer an appeal to the Court of sessions.

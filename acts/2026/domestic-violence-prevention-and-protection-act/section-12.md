@@ -1,0 +1,2 @@
+12. Penalty for breach of an interim or protection order etc. by the respondent.― (1) A breach of protection order, or of the interim order or of the residence order, or of a custody order by the respondent shall be an offence and shall be punishable with imprisonment of one year and with fine of one hundred thousand Rupees which shall be paid to the aggrieved person.
+(2) Notwithstanding anything contained in the Code, the offence under this section shall be cognizable, bailable and compoundable.

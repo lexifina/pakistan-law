@@ -1,0 +1,3 @@
+4. Punishment.―(1) If the offence does not fall under the Penal Code, the act of domestic violence shall be punishable with simple imprisonment of a maximum period of three years and not less than six months depending on the gravity of the act of domestic violence committed, and a fine of one hundred-thousand Rupees and minimum of twenty-thousand Rupees shall also be paid as compensation to the aggrieved person.
+(2) In default of payment of fine, the court may award simple imprisonment of three months.
+(3) Whoever aids or abets the commission of an offence of domestic violence shall be punished with the same punishment provided for the offence.

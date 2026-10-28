@@ -1,0 +1,2 @@
+6. Right to reside in a household.―(1) Notwithstanding anything contained in any other law for the time being in force, the aggrieved person, shall have the right to reside in the shared household, whether or not the aggrieved person has any right, title or beneficial interest in the same.
+(2) The aggrieved person may choose to reside in the house or in a shelter home arranged by any service provider.

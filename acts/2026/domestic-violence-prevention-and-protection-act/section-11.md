@@ -1,0 +1,4 @@
+11. Duration and alteration of interim, protection and residence orders.―(1) The interim order made under section 7, the protection order made under section 8 and the custody order under section 10 shall remain in force until the aggrieved person applies for discharge of such order.
+(2) If the court on receipt of an application at any stage from the aggrieved person or the respondent is satisfied that there is a change in the circumstance requiring alteration, modification or recalling of any order made under this Act, it may, for reasons to be recorded in writing pass such order, as it may deem appropriate.
+(3) The residence order shall remain in force till altered by the court.
+(4) Nothing contained in sub-sections (1) and (2) shall prevent an aggrieved person from making a fresh application after the previous order has been discharged.
