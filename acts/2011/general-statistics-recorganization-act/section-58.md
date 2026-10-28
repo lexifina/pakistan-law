@@ -1,0 +1,1 @@
+58. Indemnity. ⎯No suit, prosecution or other legal proceeding shall lie against the Bureau or any person acting under the Bureau for anything which is in good faith done or intended to be done in pursuance of this Act or any rules or regulations made there under.

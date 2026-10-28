@@ -1,0 +1,2 @@
+11. Committees. ⎯(1) The Governing Council may constitute the management committee comprising of the Chief Statistician, functional members of the Bureau and any such member(s) as the Council may consider appropriate, to carry out the day-to-day business of the Bureau and to ensure the performance against work plan and goals of the Bureau.
+(2) The Governing Council may, for the purpose of obtaining advice and carry out any function or assignment under this Act, constitute committees consisting of suitable person or persons as members, as it may deem fit.

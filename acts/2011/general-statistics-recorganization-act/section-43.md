@@ -1,0 +1,1 @@
+43. Bank accounts. ⎯The Bureau may, with the approval of the Governing Council, open and maintain accounts in rupees or in any foreign currency at such scheduled bank as it may from time to time determine in accordance with instructions of the Finance Division.

@@ -1,0 +1,1 @@
+10. Supplementary provisions. ⎯ All guidelines, decisions and directives of the Governing Council or the Bureau shall be in writing expressed by resolutions, orders or in such other form as may be appropriate in the circumstances and shall be authenticated in the manner prescribed by the regulations.

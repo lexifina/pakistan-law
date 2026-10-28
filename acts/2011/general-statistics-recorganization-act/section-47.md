@@ -1,0 +1,8 @@
+47. Offences by companies. ⎯(1) If the person guilty of an offence under section 46 is a company, every person who at the time the offence was committed was in charge of and was responsible for the conduct of the business of the company, shall be deemed to be guilty of the offence and shall be punishable with fine which may extend up to five hundred thousand rupees and in the case of continuing offence to a further fine which may extend to twenty-five thousand rupees for each day during which the offence continues:
+Provided that nothing contained in this section shall render any such person liable to any punishment provided in this Act if he proves that the offence was committed without his knowledge or that he exercised all due diligence to prevent the commission of such offence.
+(2) A certificate under the hand of the Federal Statistical Authority or the Provincial Statistical Authority stating that such return has not been furnished or the contents are incorrect, shall be prima facie evidence of the facts stated in the certificate.
+48. Desertion, impersonation or improper disclosure. ⎯Every person who⎯
+(a) deserts from his duty;
+(b) impersonates as census officer or a statistical agent and seeks to obtain information which that person is not duly authorized to obtain; or
+(c) discloses or knowingly cause to be disclosed or divulges directly or indirectly, any information obtained under this Act to any person not entitled under this Act to receive the same,
+shall be punishable for such offence with imprisonment for a term which may extend to six months or with fine which may extend to twenty-five thousand rupees.

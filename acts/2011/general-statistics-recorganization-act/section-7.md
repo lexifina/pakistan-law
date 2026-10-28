@@ -1,0 +1,1 @@
+7. Tenure of office.⎯ A member, other than an ex-officio member, shall hold office during the pleasure of the Federal Government for a term of three years and if not earlier resigned or removed, shall be eligible for reappointment for one additional term not exceeding three years.

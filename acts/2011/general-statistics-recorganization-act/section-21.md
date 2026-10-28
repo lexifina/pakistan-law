@@ -1,0 +1,2 @@
+21. Competent authority. ⎯(1) The Statistical Authority may, for the purpose of collection and compilation of statistics on any matter, appoint any authority, body corporate or officer or entity to be a competent authority for the purpose of this Act.
+(2) In the exercise of its powers and performance of its functions under this Act, a competent authority shall be subject to the superintendence, direction and control of the Statistical Authority.

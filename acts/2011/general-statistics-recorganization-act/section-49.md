@@ -1,0 +1,1 @@
+49. Refusal to perform duties as census officer. ⎯Whoever refuses or neglects to discharge the duties which he is directed under subsection (1) of section 33 to discharge shall be deemed to have committed an offence under section 187 of the Pakistan Penal Code, 1860 (Act XLV of 1860).

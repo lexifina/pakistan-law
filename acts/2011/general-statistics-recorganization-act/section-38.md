@@ -1,0 +1,2 @@
+38. Crop-cutting experiment. ⎯(1) For the purpose of collecting information referred to in section 37, crop-cutting experiments may be conducted and for such experiments any land in any area may be selected.
+(2) The owner of the crop shall be entitled to such compensation for any loss or damage caused to him by the conduct of crop-cutting experiment as is not less than such loss or damage and the assessment of the loss or damage shall be carried out in such manner as the Governing Council may prescribe under regulations.

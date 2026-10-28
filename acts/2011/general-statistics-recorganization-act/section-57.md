@@ -1,0 +1,1 @@
+57. Delegation of powers, duties and functions. ⎯The Governing Council may, subject to such conditions and limitations as it may deem fit to impose, delegate all or such powers, duties or functions to the Chairman, the Chief Statistician, a member, a committee or an officer, as it may deem fit for the efficient performance of functions of the Bureau.

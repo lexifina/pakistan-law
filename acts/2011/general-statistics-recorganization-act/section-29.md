@@ -1,0 +1,1 @@
+29. Permitted disclosure. ⎯The disclosure of information is authorized to be used if such information has been made public through any authorized means or prior written consent of the person answering the questions has been duly obtained.

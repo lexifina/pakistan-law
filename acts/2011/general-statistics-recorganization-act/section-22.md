@@ -1,0 +1,2 @@
+22. Statistical agents. ⎯(1) The Statistical Authority for the purpose of collection of statistics or information under this Act, appoint or engage such officers or persons or body corporate or entity to be statistical agent as it may think fit.
+(2) A statistical agent shall perform such other functions as may be assigned to him by the Statistical Authority in accordance with the provisions of this Act.

@@ -1,0 +1,3 @@
+53. Appeal against the orders of Federal Statistical Authority and the Provincial
+Statistical Authorities. —(1) Appeal against the orders of Federal Statistical Authority shall lie to the Secretary, Statistics Division while appeal against the orders of Provincial Statistical Authorities shall lie to the Chairman, Planning and Development Board or such authority as the Provincial Government may, by notification in official Gazette, specify.
+(2) An appeal under sub-section (1) shall be proposed within thirty days of order by the Federal Statistical Authority or the Provincial Statistical Authority, as the case may be.

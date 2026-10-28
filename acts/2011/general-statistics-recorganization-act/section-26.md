@@ -1,0 +1,3 @@
+26. Dissemination of statistical data. ⎯(l) Any statistical data collected by the Statistical Authority shall be in accordance with the provisions of this Act and, after ascertaining its quality for accuracy and ensuring confidentiality as set out in section 28, shall be released for general dissemination.
+(2) The Bureau shall ensure timely publication of data collected, to take reasonable steps to ensure public access to official statistics, to public information on what statistics are available and how that can be obtained by the users.
+(3) No user may have access to the data or statistics collected by the Bureau before release of its report with exception for special research, approval of which may be made at the level of Federal Statistical Authority.
