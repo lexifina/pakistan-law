@@ -1,0 +1,1 @@
+11. Public announcement and offer letter etc. not to contain misleading material.⸻The public announcement, any other advertisement, circular, brochure, publicity material or offer letter issued in respect of, or in relation to, the acquisition of voting shares shall not contain any, misleading information.

@@ -1,0 +1,14 @@
+16. Procedure for making competitive bid.⸻(1) Any person, other than the acquirer who has made the first public announcement, who is desirous of making a competitive bid, shall, within twenty-one days of the public announcement of the first offer, make a public announcement of his offer for acquisition of the same voting shares of the target company.
+(2) No public announcement of a competitive bid shall be made after twenty-one days from the date of public announcement of the first offer. Explanation.⸻For the purpose of this section a bid shall be deemed to be competitive only if it offers a higher purchase price.
+(3) A competitive bid shall not be for less than the number of voting shares for which the earlier public offer has been made.
+(4) Upon the public announcement of a competitive bid the acquirer, who has made a public announcement of the earlier offer, shall have the option to make another announcement-
+(a) revising the public offer; or
+(b) withdrawing the public offer with the prior approval of the Commission.
+Provided that if no such announcement is made within ten days of the public announcement of the competitive bid, the earlier offer on the original terms shall continue to be valid and binding on the acquirer who has made the earlier public offer, except that the date of closing of such public offer shall stand extended to the date of closure of public offer under the last subsisting competitive bid.
+(5) The provisions of this Ordinance shall, mutatis mutandis, apply to the competitive bid made under sub-section (1).
+(6) An acquirer who has made a public announcement, and has not withdrawn his public offer in terms of sub-section (4), shall have the option to make an upward revision of his offer in respect of the price and the number of voting shares to be acquired at any time within seven working days prior to the date of closure of the last subsisting public offer without changing any other terms and conditions of the said public offer.
+(7) Any upward revision made in terms of sub-section (6), shall be made only on the following conditions, namely:⸻
+(a) the making of a public announcement in respect of such changes or amendments in all the newspapers in which the earlier public announcement was made,
+(b) the informing of the Commission, the stock exchange on which the voting shares of the target company are listed, and the target company at its registered office, simultaneous with the issue of public announcement referred in clause (a); and
+(c) the increase in the value of the security as provided under sub-section (3) of section 19.
+(8) Where there is a competitive bid, the date of closure of the earlier bid, as also the date of closure of all the subsequent competitive bids, shall be the date of closure of public offer under the last subsisting competitive bid and the public offers under all the subsisting competitive bids shall close on the same date.

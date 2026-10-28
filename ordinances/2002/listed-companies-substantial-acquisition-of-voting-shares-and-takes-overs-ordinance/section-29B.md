@@ -1,0 +1,1 @@
+29B. The power of the Commission to issue directives, circulars.–– (1) guidelines, etc. The Commission may issue such directives, 1 codes, guidelines, circulars or notifications as are necessary to carry out the purposes of this Ordinance, the rules and regulations made thereunder.]

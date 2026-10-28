@@ -1,0 +1,5 @@
+9. Public announcement.⸻ (1) The public announcement shall be published at least in one issue each of a daily newspaper in English language and a daily newspaper in Urdu language having circulation in the Province or Provinces in which the stock exchange, on which the target company is listed, is situated.
+(2) The public announcement shall contain such information as may be prescribed.
+(3) A copy of the public announcement shall be submitted to the Commission through the manager to the offer at least two working days before its issuance.
+(4) Simultaneous with the submission of the public announcement to the Commission, the public announcement shall also be sent to all the stock exchanges on which the voting shares of the target company are listed for being notified on the notice board and on the automated information system thereof, and to the target company at its registered office for being placed before the board of directors of such company.
+(5) A public offer under this Ordinance shall be deemed to have been made on the date on which the public announcement is made in any of the newspapers as required by sub-section (1).
