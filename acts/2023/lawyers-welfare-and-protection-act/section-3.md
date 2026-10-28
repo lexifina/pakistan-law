@@ -1,0 +1,5 @@
+## CHAPTER-II
+## OFFENCES AND PUNISHMENTS
+3. Offences and Punishments.__ (1) Whoever commits or abets the commission of act of violence, except any act of violence covered by sub-clause (ii) of clause (a) of sub-section (1) of section 2, against an advocate shall be punishable with imprisonment for a term which may extend to three years or fine which may extend to hundred thousand rupees or with both.
+(2) Whoever, having already been convicted of an offence under this Act is convicted for the second time for any subsequent offence under this Act, shall be punished with imprisonment for a term which shall not be less than one year but which may extend to five years or fine which may extend to two hundred thousand rupees or with both.
+(3) Notwithstanding anything contained in the Code or any other law for the time being in force, every offence committed under this Act shall be non-bailable, compoundable with permission of the Court and deemed to be a cognizable offence within the meaning of clause (f) of section 4 of the Code and the words “cognizable case” as defined in the clause shall be construed accordingly.

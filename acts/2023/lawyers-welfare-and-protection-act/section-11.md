@@ -1,0 +1,2 @@
+11. Provision of health facilities.__ The Government shall notify in relation to all the Government, and Semi Government hospitals, the right to every advocate, his spouse and dependent children for medical treatment at par with the gazetted Government officer, subject to presentation of their official cards and verification by the respective Bar Councils:
+Provided that for the purpose of this section, the parents, minor children, spouse of the advocate shall also be entitled to the same facilities.

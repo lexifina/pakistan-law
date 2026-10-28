@@ -1,0 +1,1 @@
+5. Establishment of Court.__ (1) The Federal Government may, in consultation with the Chief Justice of the High Court concerned, designate, throughout the country, as many courts of Additional Sessions Judges or such other courts, as it may deem necessary to try the offences under this Act.
