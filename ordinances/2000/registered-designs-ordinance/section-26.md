@@ -1,0 +1,1 @@
+26. Power of Registrar to refuse to deal with certain agents.___ The Registrar may refuse to recognize in respect of any business under this Ordinance any agent who is not entitled to practice as a patent agent before the Controller of Patents and Designs under the Patents Ordinance, 2000.

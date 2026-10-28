@@ -1,0 +1,4 @@
+16. Rectification of register.___ (1) The High Court may, on the application of any aggrieved person, order the register to be rectified by the making of any entry therein or the variation, or deletion, of any entry therein.
+(2) In proceedings under this section, the High Court may determine any question which it may be necessary or expedient to decide in connection with the rectification of the register.
+(3) Notice of any application to the High Court under this section shall be given in the manner as may be prescribed to the Registrar who shall be entitled to appear and be heard on the application and shall appear if so directed by the Court.
+(4) Any order made by the High Court under this section shall direct that notice of the order shall be served on the Registrar in the manner as may be prescribed and the Registrar shall, on receipt of the notice, rectify the register accordingly.

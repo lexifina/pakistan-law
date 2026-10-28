@@ -1,0 +1,1 @@
+4. Establishment of Patent Office.___ There shall be established an office to be called the Patent Office and, until a Patent Office is established under this section, the Patent Office functioning under the Patents and Designs Act, 1911 (II of 1911) shall continue to function and shall be deemed to have been established under this Ordinance.

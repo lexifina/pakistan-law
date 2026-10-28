@@ -1,0 +1,1 @@
+33. Service of notices, etc, by post.___ Any notice required or authorized to be given by or under this Ordinance, and any application or other document so authorized or required to be made or filed, may be given, made or filed by post or by hand.

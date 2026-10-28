@@ -1,0 +1,7 @@
+______________
+## CHAPTER III
+## EFFECT OF REGISTRATION, ETC.
+7. Registration of designs.___ (1) The registration of a design under this Ordinance shall give to the registered proprietor the registration in the registered design for a period of ten years from the date of registration.
+(2) The owner of a registered design shall have the right to exclude third parties, not having his consent, from making, selling or working articles bearing or embodying a design which is a copy of the registered design when such acts are undertaken for commercial purposes.
+(3) The Registrar shall extend the period of registration for a second period of ten years from the expiration of the original period and for a third period of ten years from the expiration of the second period if an application for extension of the period oi' registration for the second or third period is made in the prescribed form before the expiration of the original period or the second period, as the case may be, and if the prescribed fee is paid before the expiration of the relevant period or if such application is made and the said fee is paid within such further period, not exceeding six months, as may be, specified in a request made to the Registrar and accompanied by the prescribed additional fee.
+(4) The owner of a registered industrial design may surrender it by written declaration to the Registrar who shall record the surrender in the Register and publish it. The surrender shall have effect on the date it is thus recorded.
