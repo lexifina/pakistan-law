@@ -1,0 +1,1 @@
+5. Prohibition of inspection by an unregistered firm.—No company, organisation or institution, including a foreign company, hereinafter referred to as company, which has not been registered with the authority, shall carry on the business of inspection or issue a certificate of inspection.
