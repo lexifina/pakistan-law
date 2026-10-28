@@ -1,0 +1,1 @@
+19. Immunity service provider. ___ The service provider shall have immunity in any civil or criminal legal proceedings that any person may commence against his corporate entity or against his office bearers or employees, for having complied with the warrant issued under this Act.

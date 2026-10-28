@@ -1,0 +1,4 @@
+17. Method of executing the Warrant. ____ (1) Where the warrant is issued, the applicant in case of the warrant of interception, shall approach the designated agency or body, for serving the same on service provider in the manner provided for in Schedule III and the designated agency or body shall duly serve the said warrant on the service provider or give effect to it within seven days.
+(2) The service provider shall not extend technical facilities of interception to any person or organization other than the Designated Agency or Body.
+(3) Where nature of surveillance or interception is such that it is not necessary to serve the warrant on anyone, then the same shall not be served and its issuance alone shall be sufficient basis to collect evidence.
+(4) While executing the warrants each applicant shall act within the mandate provided for it under the law.

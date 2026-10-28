@@ -1,0 +1,6 @@
+8. Application for issuance of warrant.____ After permission from the Minister, application for issuance of warrant shall be made by the authorized officer to the Judge,--
+(a) preferably in the manner prescribed in schedule II;
+(b) in case, the nature of warrant requested to be issued requires different description, then the application shall be made in writing on the letter head of the applicant justifying the issuance of warrant by mentioning all necessary details with supporting material alongwith proposed draft for warrant; and
+(c) the application for the issuance of warrant shall be accompanied by,___
+(i) a signed statement and affidavit of the authorized officer that the contents of the report and application are true and correct to the best of his information, knowledge and belief, and that the warrant shall be used only and exclusively for preventing or lawfully investigating a scheduled offence or to collect evidence in respect thereof and the same shall neither be misused in any manner, nor shall the approval of the warrant, be abused to interfere or intervene in the privacy of any person; and
+(ii) details of all warrants obtained previously in respect of the person against whom the warrant is sought

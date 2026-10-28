@@ -1,0 +1,1 @@
+6. Material to be placed before the Minister.--An official of the applicant who has prepared the report under Section 5 shall present the same through the Head of the Department to the Minister for permission to make application to the Judge for issuance of the warrant of surveillance or interception.

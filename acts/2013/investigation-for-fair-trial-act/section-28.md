@@ -1,0 +1,3 @@
+28. Representation. __ (1) In case the applicant is not satisfied with the declining of the request for the issuance of the warrant of surveillance or interception, it may prefer a representation to the Chief Justice of High Court concerned, for Constitution of a Division Bench of two Judges for hearing in chambers.
+(2) The Division Bench to whom the representation is entrusted may either set aside the decision of the Judge and issue the warrant or uphold the view taken by the judge.
+(3) Nothing in this Act shall bar the applicant to approach the Judge again for issue of warrant in respect of the same person on basis of fresh grounds or new material.

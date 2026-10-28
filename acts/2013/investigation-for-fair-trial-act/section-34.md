@@ -1,0 +1,2 @@
+34. Prohibition of misuse of intercepted material___(1) The material intercepted pursuant to the warrant of surveillance or interception shall not be used by any official of the applicant or of the Court or any other person associated with any function under this Act other than in accordance with the provisions of this Act.
+(2) Any person who violates the provisions of sub-section (1), shall be punished with imprisonment of upto five years or with fine upto ten million rupees or with both.

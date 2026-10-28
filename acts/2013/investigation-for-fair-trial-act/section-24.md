@@ -1,0 +1,2 @@
+24. Presumption of validity of warrant.___ The warrant of surveillance and interception whenever presented in the Trial Court or any other Court, shall be presumed to have been validly and lawfully issued.
+(2) The intercepted material collected or received pursuant to the warrant of surveillance or interception under this Act and the material based on which the warrant of surveillance or interception was applied for by the applicant shall be admissible in evidence.
