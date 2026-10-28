@@ -1,0 +1,1 @@
+30. Dispute as to apportionment. When the amount of compensation has been settled under section 11, if any dispute arises as to the apportionment of the same or any part thereof, or as to the persons to whom the same or any part thereof is payable, the Collector may refer such dispute to the decision of the court.

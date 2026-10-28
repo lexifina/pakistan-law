@@ -1,0 +1,1 @@
+8. Land to be marked out, measured and planned. The Collector shall thereupon cause the land (unless it has been already marked out under section 4) to be marked out. He shall also cause it to be measured, and if no plan has been made thereof, a plan to be made of the same.

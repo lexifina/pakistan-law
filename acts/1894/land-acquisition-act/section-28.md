@@ -1,0 +1,4 @@
+28. Collector may be directed to pay interest on excess compensation. If the sum which in the opinion of the Court, the Collector ought to have awarded as compensation is in excess of the sum which the Collector did award as compensation, the award of the Court may direct that the Collector shall pay [^38][compound interest on such excess at the rate of eight per centum] per annum from the date on which he took possession of the land to the date of payment of such excess into Court.
+[^38][Provided that in all cases where the Court has directed that Collector shall pay interest on such excess at the rate of six per centum from the date on which possession was taken and the payment of compensation or a part thereof has not been made up to the commencement of the Land Acquisition (West Pakistan Amendment) Act, 1969, the rate of compound interest on such excess on balance shall be eight per centum.]
+
+[^38]: Subs and added by Act. NO. III of 1969, s.2.

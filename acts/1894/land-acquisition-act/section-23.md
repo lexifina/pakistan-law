@@ -1,0 +1,16 @@
+23. Matters to be considered in determining compensation.___(1) In determining the amount of compensation to be awarded for land acquired under this Act, the Court shall take into consideration–
+first, the market-value of the land at the date of the publication of the [^32][notification under section 4, sub­section (1)];
+[^31][EXPLANATION— For the purpose of determining the market-value, the Court shall take into account transfer of land similarly situated and in similar use. The potential-value of the land to be acquired if put to a different use shall only be taken into consideration if it is proved that land similarly situated and previously in similar use has, before the date of the notification under sub-section (1) of section 4, been transferred with a view to being put to the use relied upon as affecting the potential value of the land to be acquired:
+Provided that—
+(i) if the market-value has been increased in consequence of the land being put to a use which is unlawful or contrary to public policy that use shall be disregarded and the market-value shall be deemed to be the market-value of the land if it were put to ordinary use; and
+(ii) if the market-value of any building has been increased in consequence of the building being so overcrowded as to be dangerous to the health of the inmates, such overcrowding shall be disregarded and the market-value shall be deemed to be the market-value of the building if occupied by such number of persons only as can be accommodated in it without risk of danger to health from overcrowding.]
+secondly, the damage sustained by the person interested, by reason of the taking of any standing crops or trees which may be on the land at the time of the Collector’s taking possession thereof;
+thirdly, the damage (if any) sustained by the person interested, at the time of the Collector’s taking possession of the land, by reason of severing such land from his other land;
+fourthly, the damage (if any) sustained by the person interested, at the time of the Collector’s taking possession of the land, by reason of the acquisition injuriously affecting his other property, moveable or immoveable, in any other manner, or his earnings;
+fifthly, if, in consequence of the acquisition of the land by the Collector, the person interested is compelled to change his residence or place of business, the reasonable expenses (if any) incidental to such change; and
+sixthly, the damage (if any) bona fide resulting from diminution of the profits of the land between the time of the publication of the declaration under section 6 and the time of the Collector’s taking possession of the land.
+[^33][(2) In addition to the market-value of the land as above provided, the Court shall award a sum of fifteen per centum on such market-value, in consideration of the compulsory nature of the acquisition, if the acquisition has been made for a public purpose and a sum of twenty-five per centum on such market-value if the acquisition has been made for a Company.]
+
+[^31]: Inserted & added by Ord. No. XLIX of 1969, ss. 14, 15 & 16.
+[^32]: Subs. by the Land Acquisition (Amdt.) Act, 1923 (38 of 1923), s. 7, for “declaration relating thereto under s. 6”.
+[^33]: Subs.by Ord. No. XLIX of 1969, s. 16.
