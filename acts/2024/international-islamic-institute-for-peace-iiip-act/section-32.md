@@ -1,0 +1,1 @@
+32. Removal of difficulties.—If any difficulty arises in giving effect to any provisions of the Act, the Government may, on the recommendations of the Board, within one year of the commencement of the Act, give such directions, not inconsistent with the Act, as it may consider necessary for the removal of such difficulty.
