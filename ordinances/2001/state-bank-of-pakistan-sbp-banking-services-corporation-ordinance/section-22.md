@@ -1,0 +1,1 @@
+22. Persons in the service of the Bank to be public servants.⸺Every person in the service of the Bank shall be deemed to be a public servant within the meaning of section 21 of the Pakistan Penal Code (Act XLV of 1860).

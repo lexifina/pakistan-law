@@ -1,0 +1,6 @@
+_____________
+## PART VI
+## MISCELLANEOUS
+20. Duty of officers and servants to maintain secrecy.⸺(1) Except in the performance of his duties under this Ordinance, every executive or other employee of the Bank shall preserve and aid in preserving secrecy with regard to all matters relating to the affairs of the Bank and of the State Bank coming to his knowledge and not published by the Bank or by the State Bank and with regard to all matters relating to the financial or monetary affairs of any bank, institution, person, body of persons, any Government or authority whether in Pakistan or outside Pakistan that may come to his knowledge in the performance of his duties.
+(2) Every such executive or other employee who communicates any such matter, except when required by law so to do, or in the discharge of his duties as such, shall be guilty of an offence punishable with imprisonment of either description for a term which may extend to three years, or with fine which may extend to one hundred thousand rupees, or with both.
+(3) No court shall take cognizance of any offence punishable under this section except upon a complaint in writing by a person authorized in this behalf by the Board.
