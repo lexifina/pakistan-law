@@ -1,0 +1,4 @@
+## CHAPTER-XV
+## RIGHTS OF INSURER ON PAYMENT
+80. Right of subrogation.— (1) Where the insurer pays for a total loss, either of the whole or, in the case of goods of any apportion able part, of the subject-matter insured, he thereupon become entitled to take over the interest of the insured in whatever may remain of the subject-matter so paid for and he is thereby subrogated to all the rights and remedies of the insured in and in respect of that subject-matter as from the time of the casualty causing the loss.
+(2) Subject to sub-section (D), where the insurer pays for a partial loss, he acquires no title to the subject-matter insured or such part of it as may remain, but he is thereupon subrogated to all rights and remedies of the insured in and in respect of the subject-matter insured as from the time of the casualty causing the loss, in so far as the insured has been indemnified, according to this Act, by such payment for the loss.

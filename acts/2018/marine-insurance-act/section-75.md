@@ -1,0 +1,1 @@
+75. Liabilities to third parties.— Where the insured has effected an insurance in express terms against any liability to a third party, the measure of indemnity, subject to any express provision in the policy, is the amount paid or payable by himto such third party in respect of such liability.

@@ -1,0 +1,1 @@
+82. Effect of under insurance.— Where the insured is insured for an amount less than the insurable value or, in the case of a valued policy, for an amount less than the policy valuation, he is deemed to be his own insurer in respect of the un-insured balance.

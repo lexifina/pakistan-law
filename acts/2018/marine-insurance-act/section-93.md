@@ -1,0 +1,1 @@
+93. Power to issue directives, circulars, guidelines. The Minister in-Charge shall have the power to issue such directives, codes, guidelines, circulars or notifications as are necessary to carry out the purposes of this Act.
