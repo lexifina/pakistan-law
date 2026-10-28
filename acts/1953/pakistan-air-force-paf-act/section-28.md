@@ -1,0 +1,1 @@
+28. Immunity from attachment. The arms, clothes, equipment, accoutrement or necessaries of any person subject to this Act shall not be seized, and the pay and allowances of any such person or any part thereof shall not be attached, by direction of any civil or revenue court or any revenue officer, in satisfaction of any decree or order enforceable against him.

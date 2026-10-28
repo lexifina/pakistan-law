@@ -1,0 +1,2 @@
+188. Effect of suspension and remission on dismissal. (1) Where in addition to any other sentence the punishment of dismissal has been awarded by a court-martial, and such other sentence is suspended under section 180, then, such dismissal shall not take effect until so ordered by the authority or officer specified in section 180.
+(2) If such other sentence is remitted under section 184, the punishment of dismissal shall also be remitted.

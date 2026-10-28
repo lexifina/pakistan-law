@@ -1,0 +1,3 @@
+41. Disobedience to superior officer. (1) Any person subject to this Act who disobeys in such manner as to show a wilful defiance of authority any lawful command given personally by his superior officer in the execution of his office whether the same is given orally or in writing or by signal or otherwise shall, on conviction by court‑martial, be liable to suffer long imprisonment.
+(2) Any person subject to this Act, who disobeys any lawful command given by his superior officer shall, on conviction by court‑martial,
+if he commits such offence when on active service, be liable to suffer long imprisonment ; and if he commits such offence when not on active service, be liable to suffer short imprisonment.

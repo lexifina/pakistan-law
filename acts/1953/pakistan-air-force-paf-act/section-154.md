@@ -1,0 +1,1 @@
+154. Limitation of powers of confirming authority. A warrant issued under section 152 or section 153 may contain such restrictions, reservations or conditions as the authority issuing it may think fit..

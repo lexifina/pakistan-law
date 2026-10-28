@@ -1,0 +1,1 @@
+99. Provision for dependants of prisoner of war from his pay and allowances. It shall be lawful for proper provision to be made by the prescribed authorities for any dependants of any person subject to this Act, who is a prisoner of war or is missing out of his pay and allowances.

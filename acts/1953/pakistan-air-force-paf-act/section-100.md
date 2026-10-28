@@ -1,0 +1,1 @@
+100. Period during which a person is deemed to be a prisoner of war. For the purposes of sections 98 and 99 a person shall be deemed to continue to be a prisoner of war until the conclusion of any inquiry into his conduct such as is referred to in section 96, and if he is dismissed from the service in consequence of such conduct, until the date of such dismissal.

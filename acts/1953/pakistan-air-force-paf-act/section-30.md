@@ -1,0 +1,2 @@
+30. Immunity of persons attending courts‑martial from arrest. (1)No president or member of a court‑martial, no judge advocate, no party to any proceeding before a court‑martial, or his legal practitioner or agent, and no witness acting in obedience to a summons to attend a court‑martial, shall, while proceeding to, attending, or returning from a court‑‑martial, be liable to arrest by civil or revenue process.
+(2) If any such person is arrested under any such process, he may be discharged by order of the court‑martial.

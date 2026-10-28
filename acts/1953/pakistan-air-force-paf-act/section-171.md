@@ -1,0 +1,2 @@
+171. Communication of certain orders to prison officers. Whenever an order is duly made under this Act setting aside or varying any sentence, order or warrant under which any person is confined in a Civil, Military or Air Force prison or detained in a Military or Air Force detention barracks a warrant in accordance with such order shall be forwarded by the prescribed officer to the officer in charge of the prison or detention barracks in which such person is confined.
+Such warrant shall be sufficient authority for the execution of the orders contained therein.

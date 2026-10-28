@@ -1,0 +1,1 @@
+163B. Form of sentence of whipping. In awarding a sentence of whipping a court-martial shall direct that the sentence shall be executed in the manner provided for in the Execution of the Punishment of Whipping Ordinance, 1979 (IX of 1979).

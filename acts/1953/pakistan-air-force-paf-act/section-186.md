@@ -1,0 +1,4 @@
+186. Fresh sentence after suspension. Where an offender, while a sentence on him is suspended under this Act, is sentenced for any other offence, then
+(a) if the further sentence is also suspended under this Act, the two sentences shall run concurrently ;
+(b) if the further sentence is for a period of three months or more and is not suspended under this Act, the offender shall also be committed to prison or Air Force custody for the unexpired portion of the previous sentence, but both sentences shall run concurrently ; and
+(c) if the further sentence is for a period of less than three months and is not suspended under this Act, the offender shall be so committed on that sentence only, and the previous sentence shall, subject to any order which may be passed under section 184 or section 185, continue to be suspended.

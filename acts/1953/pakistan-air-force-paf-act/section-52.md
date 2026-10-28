@@ -1,0 +1,8 @@
+52. Offences in respect of property. Any person subject to this Act who commits any of the following offences, that is to say :
+(a) commits theft of any property belonging to the Government, or to any Military, Naval or Air Force mess, band or institution, or to any person subject to Military, Naval or Air Force law; or serving with, or attached to, the Air Force ; or
+(b) dishonestly misappropriates or converts to his own use any such property ; or
+(c) commits criminal breach of trust in respect of any such property ; or
+(d) dishonestly receives or retains any such property in respect of which any of the offences under clauses (a), (b) and (c) has been committed, knowing or having reason to believe the commission of such offences ; or
+(e) wilfully destroys or injures any property of the Government entrusted to him ; or
+(f) does any other thing with intent to defraud, or to cause wrongful gain to one person or wrongful loss to another person ;
+shall, on conviction by court‑martial, be liable to suffer long imprisonment.

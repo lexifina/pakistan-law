@@ -1,0 +1,1 @@
+117. Powers of general and field general Courts‑martial. A general or field general Court‑martial shall have power to try any person subject to this Act for any offence punishable therein and to pass any sentence authorised thereby.

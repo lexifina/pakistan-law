@@ -1,0 +1,1 @@
+153. Power to confirm finding and sentence of district court‑martial. The findings and sentences of district Courts‑martial may be confirmed by any authority having power to convene a general court‑martial or by any officer empowered in this behalf by warrant of any such authority.

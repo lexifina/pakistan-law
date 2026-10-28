@@ -1,0 +1,1 @@
+127. Judge Advocate. Every general Court‑martial shall, and every district or field general Court‑martial may, be attended by a judge advocate, who shall be either an officer belonging to the department of the Judge Advocate General, or if no such officer is available, a fit person appointed by the convening officer.

@@ -1,0 +1,1 @@
+87. Transmission of proceedings. In every case in which punishment has been awarded under section 86, certified true copies of the proceedings shall be forwarded, in the prescribed manner, by the officer awarding the punishment, to a superior Air Force authority as defined in section 89.

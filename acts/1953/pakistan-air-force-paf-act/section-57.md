@@ -1,0 +1,6 @@
+57. Falsifying official document and false declaration. Any person subject to this Act, who commits any of the following offences, that is to say :
+(a) in any report, return, list, certificate, book or other document made or signed by him, or of the contents of which it is his duty to ascertain the accuracy, knowingly makes, or is privy to the making of, any false or fraudulent statement ; or
+(b) in any document of the description mentioned in clause (a) knowingly makes, or is privy to the making of, any omission, with intent to defraud ; or
+(c) knowingly and with intent to injure any person or knowingly and with intent to defraud, suppresses, defaces, alters or makes away with any document which it is his duty to preserve or produce ; or (d) where it is his official duty to make a declaration respecting any matter, knowingly makes a false declaration ; or
+(e) obtains for himself, or for any other persons, any pension, allowance or other advantage or privilege by a statement which is false, and which he either knows or believes to be false or does not believe to be true, or by making or using a false entry in any book or record, or by making any document containing a false statement, or by omitting to make a true entry or document containing a true statement ;
+shall, on conviction by court‑martial, be liable to suffer short imprisonment.

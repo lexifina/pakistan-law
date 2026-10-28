@@ -1,0 +1,3 @@
+67. Attempt. Any person subject to this Act who attempts to commit any of the offences specified in sections 34 to 66 inclusive, or to cause such an offence to be committed, and in such attempt does any act towards the commission of the offence shall, on conviction by court‑martial, where no express provision is made by this Act for the punishment of such attempt, be liable,
+if the offence attempted to be committed is punishable with death, to suffer long imprisonment ;and
+if the offence attempted to be committed is punishable with imprisonment to suffer imprisonment for a term which may extend to one‑half of the longest term provided for that offence.

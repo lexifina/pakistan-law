@@ -1,0 +1,1 @@
+61. Unlawful detention of pay. Any officer, warrant officer or non-commissioned officer who, having received the pay of a person subject to this Act unlawfully detains or refuses to pay the same when due, shall, on conviction by court‑martial, be liable to suffer short imprisonment.
