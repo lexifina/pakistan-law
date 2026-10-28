@@ -1,0 +1,2 @@
+27. Rules. ____ (1) Subject to subsection (2), the Authorities and the other bodies of the University may make rules consistent with this Act, statutes or the regulations, to regulate any matter relating to the affairs of the University which has not been provided for by this Act or that is not required to be regulated by statutes or regulations, including rules to regulate the conduct of business and the time and place of meetings and related matters.
+(2) Rules shall be made with the approval of the Syndicate.
