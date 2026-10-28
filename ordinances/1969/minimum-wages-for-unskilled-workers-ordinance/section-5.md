@@ -1,0 +1,2 @@
+5. Agreements under duress to be void. All agreements arrived at between the employers and the workers under duress at any time during the period from the 1st March, 1969 to the 25th March, 1969, shall, with effect from the date of coming into force of this Ordinance, be void.
+Explanation.―In this section the words “under duress” include circumstances in which due to fear either party is in a state of mental incompetence to resist pressure improperly brought to bear due to violence or threat of violence.

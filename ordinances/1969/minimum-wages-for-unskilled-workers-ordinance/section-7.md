@@ -1,0 +1,1 @@
+7. Penalty. Any employer who contravenes any provisions of this Ordinance shall be punishable with simple imprisonment for a term which may extend to six months, or with fine which may extend to two thousand rupees, or with both.
