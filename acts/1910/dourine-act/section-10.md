@@ -1,0 +1,2 @@
+10. Settlement of compensation.___(1) A veterinary practitioner may award, as compensation to be paid under section 9 in respect of each horse castrated or destroyed under section 8, a sum not exceeding two hundred and fifty rupees.
+(2) If, in the opinion of the veterinary practitioner, the amount which should be paid as such compensation exceeds two hundred and fifty rupees, he shall report accordingly to the Collector, who shall decide the amount to be so paid.

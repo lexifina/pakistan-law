@@ -1,0 +1,2 @@
+13. Vexatious entries and searches.___ (1) Whoever, being an inspector appointed under this Act, vexatiously and unnecessarily enters or searches any field, building or other place, shall be punishable with imprisonment for a term which may extend to six months, or with fine which may extend to five hundred rupees, or with both.
+(2) No prosecution under this section shall be instituted after the expiry of three months from the date on which the offence has been committed.

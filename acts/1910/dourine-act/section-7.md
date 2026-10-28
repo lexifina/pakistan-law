@@ -1,0 +1,1 @@
+7. Inspection of horses.___ A veterinary practitioner receiving a copy of an order forwarded under section 6 shall, as soon as possible after receipt of such copy, examine the horse mentioned therein, and may for such purpose enter any building, field or other place.

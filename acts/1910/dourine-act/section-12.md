@@ -1,0 +1,1 @@
+12. Appeals.___ Any owner may, within two months from the date of a decision under section 10, appeal against such decision to the committee constituted in that behalf by rules made under section 11, and the decision of such committee shall be final.
