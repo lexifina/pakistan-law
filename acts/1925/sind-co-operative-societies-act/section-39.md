@@ -1,0 +1,4 @@
+39. Reserve fund. (1) Every society which does or can derive a profit from its transactions shall maintain a reserve fund.
+(2) In the case of a Resource or Producers’ society at least 1/4th of the net profits of the society each year shall be carried to the reserve fund and in the case of any other society at least 1/10th of the net profits of the society each year shall be carried to the reserve fund, and such reserve fund may be used in the business of the society or may be invested, subject to the provisions of section 37, as[^61][the Provisional Government] may by general or special order direct, or may with the previous sanction of [^61][the Provincial Government] be used in part for some public purpose likely to promote the object of this Act or for some purposes of provincial or local interest.
+
+[^61]: Subs. by the A.O., 1937, for “Govt.”

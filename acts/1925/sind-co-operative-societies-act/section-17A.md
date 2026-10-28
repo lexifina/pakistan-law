@@ -1,0 +1,19 @@
+[^27][17A. Special provisions for membership of Resource Socities.[^28][(1)] Notwithstanding anything contained in this Act and any other law for the time being in force___
+(i) every application made by any person for membership of an Agricultural Credit Society shall be accompanied by a declaration specifying the immovable property on which he agrees to have a charge created for the dues of the society; and no such person shall be admitted as a member or shall exercise rights of a member of such society unless he makes such declaration;
+(ii) any member of an Agricultural Credit Society may at any time make a declaration as in clause (i) regarding immoveable property on which he agrees to have a charge created for the dues of the society of which he is a member ;
+(iii) a declaration made under clause (i) or (ii) may be varied at any time by a member with the consent of the society in favour of which charge is created ;
+(iv) no member of an Agricultural Credit Society so long as he continues to remain such member shall alienate the whole or any part of the property specified in the declaration made under clause (i) or (ii);
+(v) any alienation of any property specified in the declaration made under clause (i) or (ii) by such members shall be void;
+(vi) subject to the prior claim of [^29][Government] in respect of land revenue or any money recoverable as arrears of land revenue, there shall be a first charge in favour of the society on the property specified in the declaration under clause (i) or (ii) in respect of and to the extent of any debt or other outstanding demand owing by such member to the society;
+(vii) an entry regarding a charge on immoveable property created by a declaration under clause (i) or (ii) or any variation made therein under clause (iii) shall be made in the record of rights maintained under [^30][the Sind Land Revenue Act, 1967, notwithstanding anything contained in the said Act]. Explanation.-For the purposes of this section an ‘Agricultural Credit Society’ means a Resource Society of which the Primary object is the creation of funds to be lent to its members and of which a majority of the members are agriculturists and of which no member is a registered society and the liability of which is limited.]
+[^31][(2) Where a society is a member of another society, that society shall nominate any of its members to serve as a director of the society of which it is a member.
+(3) The director of a society who is nominated in accordance with sub-section (2) must be natural person who shall provide such information to the society to which he is nominated, in such circumstances and manner, as may be prescribed.
+(4) The Secretary of society shall keep an updated record of any nominated directors, as well as provide prescribed information of the nominated directors to the Registrar both annually and from time to time when changes occurs in the prescribed circumstances and manners.
+(5) The Registrar shall keep an updated record of the nominated Directors of all societies in the prescribed circumstances and manner.
+(6) Other than as set out in sub-section (1), no director shall nominate on his behalf a member of director to perform the membership rights on his behalf.]
+
+[^27]: S. 17-A ins. by Sind 16 of 1943, s. 6.
+[^28]: numbered. by the Cooperative Societies (amendment) Act, 2020, (XXVIII of 2020),s.4 (only for ICT)
+[^29]: Subs. by W.P.A.O, 1964, s. 2 and sch. Part IV(C) for “the Crown”. (w.e.f 8.6.1962)
+[^30]: Subs. by Sind Act 17 of 1975, s. 3, Sch. II, for “Chapter XA of the (Sind) Land Revenue Code 1879, or the relevant provisions of any other Law relating to land revenue in force in the area notwithstanding anything contained in the said chapter.” (Subs. by Sind Act. 17 of 1975 + 2nd Sch).
+[^31]: Ins. by the Cooperative Societies (amendment) Act, 2020, (XXVIII of 2020), s.4 (only forICT)

@@ -1,0 +1,1 @@
+59L. Manner of sale.- The distrained property shall be sold by public auction in one or more lots as the officer holding the sale may determine; and if the demand amount is realized by the sale of a portion of the property, the order of distrain shall not be executed with respect to the remainder.

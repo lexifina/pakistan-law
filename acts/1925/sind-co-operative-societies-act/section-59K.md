@@ -1,0 +1,2 @@
+59K. Provisions relating to growing crops.- (1) Where the crop is a growing one and from its nature admits of being stored, the sale shall not be held until the crop is reaped or gathered and is ready for storing.
+(2) Where the crop from its nature does not admit of being stored, it may be sold before it is reaped or gathered, and the purchaser shall be entitled to enter on the land by himself or by any other person appointed by him in this behalf and to do all acts necessary for the purpose of tending, reaping or gathering the crop.

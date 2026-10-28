@@ -1,0 +1,4 @@
+64A. Power of Provincial Government and the Registrar to call for proceedings of
+subordinate Officers and to pass orders thereon.[^112][The Provincial Government] and the Registrar may call for and examine the record of any inquiry or the proceedings of any officer subordinate to them for the purpose of satisfying themselves as to the legality or propriety of any decision or order passed and as to the regularity of the proceedings of such officer. If in any case, it shall appear to [^112][the Provincial Government] or the Registrar that any decision or order or proceedings so called for should be modified, annulled or reversed, [^112][the Provincial Government] or the Registrar, as the case may be, may pass such order thereon as to it or him may seem fit.
+
+[^112]: Subs. by the A.O., 1937, for “Govt.”.

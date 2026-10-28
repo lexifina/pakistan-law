@@ -1,0 +1,3 @@
+8. Power of Registrar to decide certain questions. When any question arises [^21][whether for the purposes of this Act] a person is an agriculturist or a non-agriculturist, or whether any person is resident in a town or village or group of villages, or whether two or more villages shall be considered to from a group, or whether any person belongs to any particular tribe, class, caste or occupation, the question shall be decided by the Registrar, whose decision shall be final.
+
+[^21]: Subs. by Sind 20 of 1947, s. 3, for “whether for the purpose of the information, or registration or continuance of a society under this Act”.

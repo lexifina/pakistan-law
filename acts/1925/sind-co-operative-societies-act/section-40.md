@@ -1,0 +1,5 @@
+40. Restrictions on distribution of profits. Subject to the provisions of section 38 the balance of the profits of a society after making the prescribed provision for the reserve fund may, together with any available profits of past years be distributed among its members, and in the case of Consumers’ and Producers’ societies, also among persons who are not members, to the extent and under the conditions prescribed by the rules or by the by-laws of such societies, provided that :__
+(a) in the case of a Resource society on a basis of unlimited liability in which the members do not hold shares, no distribution of profits shall be made without the general or special order of [^61][the Provincial Government] in this behalf; and
+(b) in the case of a Resource society on a basis of unlimited liability in which the members hold shares, no such distribution of profits shall be made until 10 years from the date of registration of the society have elapsed.
+
+[^61]: Subs. by the A.O., 1937, for “Govt.”

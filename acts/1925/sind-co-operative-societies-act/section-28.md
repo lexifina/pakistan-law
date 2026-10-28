@@ -1,0 +1,1 @@
+28. Liability of past member. The liability of a past member for the debts of a society as they existed at the time when he ceased to be a member, shall continue for a period of two years from the date of his ceasing to be a member.

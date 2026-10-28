@@ -1,0 +1,1 @@
+12. Annual general meeting. Every society shall within a period of three months after the date fixed for making up its accounts for the year under the rules for the time being in force call a general meeting of its members.

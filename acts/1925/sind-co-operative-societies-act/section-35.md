@@ -1,0 +1,1 @@
+35. Restrictions in borrowing. A society shall receive deposits and loans from persons who are not members only to such extent and under such conditions as may be prescribed by the rules or by the by-laws of the society.

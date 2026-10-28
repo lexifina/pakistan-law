@@ -1,0 +1,3 @@
+[^111][61A. Penalty for offences committed under clause (e) of section 60.- Any member, employee, director, officer or secretary of the society found guilty under clause (e) of section 60 shall be punishable with an imprisonment for a term not less than three years and not exceeding five years or with a fine upto two million rupees or with both and, if any society is found guilty under the said clause (e) of section 60 shall be liable to a fine up to a maximum of one-fourth of its working capital or to a fine not exceeding ten million rupees.]
+
+[^111]: Subs. and added by the Cooperative Societies (Amendment) Act, 2020 (XXVIII of 2020), ss. 9-11 (only for ICT).
