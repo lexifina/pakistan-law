@@ -1,0 +1,1 @@
+16. Representation of Commission. Any law or other instrument providing for the establishment or incorporation of a university or a degree awarding institution shall have effect as if it provided for the governing body of the university or degree awarding institution consisting of a nominee of the Commission in addition to the members of the governing body.

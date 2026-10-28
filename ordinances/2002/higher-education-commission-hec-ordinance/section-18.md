@@ -1,0 +1,1 @@
+18. Delegation of function. The Commission may, by general or special order and subject to such conditions as it may deem fit to impose, delegate to Chairperson, Executive Director or any of its member any of its functions under this Ordinance.

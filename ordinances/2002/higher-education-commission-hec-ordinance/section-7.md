@@ -1,0 +1,1 @@
+7. Honorarium and allowances of the members. The members, other than Chairperson and Executive Director, shall not be entitled to any salary or benefits for their services except such honorarium and allowances as may be prescribed.
