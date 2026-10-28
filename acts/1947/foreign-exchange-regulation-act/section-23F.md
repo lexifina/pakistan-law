@@ -1,0 +1,2 @@
+23F. Proceedings before Adjudicating Officer to be deemed to be judicial proceedings.
+All proceedings before an Adjudicating Officer or Appellate Board shall be deemed to be judicial proceedings within the meaning of sections 193 and 228 of the Pakistan Penal Code (Act XLV of 1860), and an Adjudicating Officer and Appellate Board shall be deemed to be a Court for the purposes of sections 480 and 482 of the Code of Criminal Procedure, 1898 (Act V of 1898).

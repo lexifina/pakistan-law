@@ -1,0 +1,24 @@
+13. Regulation of export and transfer of securities.__(1) No person shall, except with the general or special permission of [^58][the State Bank],__
+(a) take or send any security to any place [^59][outside Pakistan];
+(b) transfer any security or create or transfer any interest in a security to or in favour of a person resident [^59][outside Pakistan];
+(c) transfer any security from a register in [^60][Pakistan] to a register [^59][outside Pakistan] or do any act which is calculated to secure, or forms part of a series of acts which together are calculated to secure, the substitution for any security which is either in, or registered in, [^60][Pakistan] of any security which is either outside or registered [^59][outside Pakistan];
+(d) issue, whether in [^60][Pakistan] or elsewhere, any security which is registered or to be registered in [^60][Pakistan] to a person resident [^59][outside Pakistan].
+(2) Where the holder of a security is a nominee, neither he nor any person through whose agency the exercise of all or any of the holder’s rights in respect of the security is controlled shall, except with the general or special permission of [^58][the State Bank], do any act whereby he recognizes or gives effect to the substitution of another person as the person from whom he directly receives instructions, unless both the persons previously instructing him and the person substituted for that person were, immediately before the substitution, resident [^61][in Pakistan].
+(3) [^58][The State Bank] may, for the purpose of securing that the provisions of this section are not evaded, require that the person transferring any security and the person to whom such security is transferred shall subscribe to a declaration that the transferee is not resident [^59][outside Pakistan].
+(4) Notwithstanding anything contained in any other law, no person shall, except with the permission of [^58][the State Bank],__
+(a) enter any transfer of securities in any register or book in which securities are registered or inscribed if he has any ground for suspecting that the transfer involves any contravention of the provisions of this section, or
+(b) enter in any such register or book, in respect of any security, whether in connection with the issue or transfer of the security or otherwise, an address [^62][outside Pakistan] except by way of substitution for any such address in the same country or for the purpose of any transaction for which permission has been granted under this section with knowledge that it involves entry of the said address.
+(5) For the purposes of this section,__
+(a) “holder” in relation to a bearer security means the person having physical custody of the security; provided that, where a bearer security is deposited with any person in a locked or sealed receptacle from which the person with whom it is deposited is not entitled to remove it without the authority of some other person, that other person shall be deemed to be the holder of the security;
+(b) “nominee” means a holder of any security (including bearer security) or any coupon representing dividends or interest who, as respects the exercise of any rights in respect of the security or coupon, is not entitled to exercise those rights except in accordance with instructions given by some other person, and a person holding a security or coupon as nominee shall be deemed to act as nominee for the person who is entitled to give instructions either directly or through the agency of one or more persons, as to the exercise by the holder of the security or coupon of any rights in respect thereof and is not, in so doing, himself under a duty to comply with instructions given by some other person.
+(c) “security” also includes coupons or warrants representing dividends or interest, and life or endowment insurance policies [^63][;]
+[^64][(d) “a person resident outside Pakistan” includes a foreign national for the time being resident in Pakistan [^65][and a company registered in Pakistan which is controlled, directly or indirectly, by a person resident outside Pakistan.]
+
+[^58]: Subs. by the Pakistan (Adaptation of Existing Pakistan Laws) (State Bank of Pakistan) Order, 1948, (G.G.O.18 of 1948), Art.4, for “the Reserve Bank”.
+[^59]: Subs. by A.O., 1949, for “outside India.”
+[^60]: Subs. by the Central Laws (Statute Reform) Ordinance, 1960 (21 of 1960), s.3 and 2nd Sch. (with effect from the 14th October, 1955), for “the Provinces and the Capital of the Federation” which had been subs. by A.O., 1949, for “British India”.
+[^61]: Subs. by A.O., 1949, for “in India”.
+[^62]: Subs. by A.O. 1949, for “outside India.”
+[^63]: Subs. by the Foreign Exchange Regulation (Amdt.) Act, 1957, (40 of 1957), s.3, for full-stop.
+[^64]: Added ibid.
+[^65]: Added by the Foreign Exchange Regulation (Amendment) Act, 1973 (8 of 1973), s.4.

@@ -1,0 +1,6 @@
+17. Restriction on settlement.__(1) No person resident in [^75][Pakistan] shall, except with the general or special permission of [^76][the State Bank], settle any property, otherwise than by will, upon any trust under which a person who at the time of the settlement is resident [^77][outside Pakistan], elsewhere than in territories notified in this behalf, by [^76][the State Bank] will have an interest in the property, or exercise, other than by will, any power for payment in favour of a person who at the time of the exercise of the power is resident [^77][outside Pakistan] elsewhere than in such notified territories.
+(2) A settlement or power as aforesaid shall not be invalid except in so far as it confers any right or benefit on any person who at the time of the settlement or the exercise of the powers resident [^77][outside Pakistan], elsewhere than in territories notified by [^76][the State Bank].
+
+[^75]: Subs. by the Central Laws (Statute Reform) Ordinance, 1960 (21 of 1960), s.3 and 2nd Sch. (with effect from the 14th October, 1955), for “the Provinces and the Capital of the Federation” which had been subs. by A.O., 1949, for “British India”.
+[^76]: Subs. by the Pakistan (Adaptation of Existing Pakistan Laws) (State Bank of Pakistan) Order, 1948 (G.G.O.18 of 1948), Art.4, for “the Reserve Bank”.
+[^77]: Subs. by A.O. 1949, for “outside India”.
