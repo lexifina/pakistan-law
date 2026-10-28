@@ -1,0 +1,1 @@
+23. Appointment of Committees by Certain Authorities.—The Board of Trustees, the Board of Governors, the Academic Council and other Authorities may, from time to time, appoint such standing, special, or advisory committees as they may deem fit, and may place on such committees persons who arc not members of the Authorities appointing the Committees.
