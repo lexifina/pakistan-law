@@ -1,0 +1,1 @@
+34. Removal of difficulties.—If any difficulty arises as to the first constitution or re-constitution of any authority upon coming into force of this Act or otherwise in giving effect to any provision of this Act, the Patron may give appropriate directions to remove such difficulty.
