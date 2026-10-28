@@ -1,0 +1,1 @@
+18. Bar to certain suits. No suit shall be brought in any civil court in respect of trespass or in respect of nuisance by reason only of the flight of aircraft over any property at a height above the ground which having regard to wind, whether and all the circumstances of the case is reasonable, or by reason only of the ordinary incidents of such flight.

@@ -1,0 +1,23 @@
+[^7]6. Power to make orders in times of war or emergency.— 1) In the event of war or other emergency, or in the interests of public safety or tranquility, if the [^8][Federal Government] is of opinion that the issue of all or any of the following orders is expedient, it may, by notification in the official Gazette,—
+(a) cancel or suspend, either absolutely or subject to such conditions as it may think fit to specify in the order, all or any of the licences or certificates issued under this Ordinance or the rules;
+(b) prohibit, either absolutely or subject to such conditions as it may think fit to specify in the order, or regulate in such manner as may be specified in the order, the flight of all or any aircraft or class of aircraft over the whole or any part of Pakistan ;
+[^9](c) prohibit, either absolutely or conditionally, or regulate the construction, maintenance or use of any aerodrome or airport, aircraft factory, flying-school or club, or place where aircraft are manufactured, repaired or kept, or any class or description thereof; and
+(d) direct that any aircraft or class of aircraft or any aerodrome or airport, aircraft factory, flying-school or club, or place where aircraft are manufactured, repaired or kept, together with any machinery, plant, material or things used for the operation, manufacture, repair or maintenance of aircraft shall be delivered forthwith or within a specified time, for being placed at the disposal of the [^8][Federal Government] to such authority and in such manner as it may specify in the order.
+(2) Any person who suffers direct injury or loss by reason of any order made under clause (c) of sub-section (1) or by the delivery of any aircraft or class of aircraft in pursuance of clause (d) of that sub-section, shall be paid such compensation as may be determined by such authority as the [^8][Federal Government] may appoint in this behalf.
+(3) Any person interested in any such aerodrome or airport, aircraft factory, flying-school or club, or place where aircraft are manufactured, repaired or kept as is delivered in pursuance of clause (d) of sub-section (1) shall be paid compensation the amount of which shall be determined in the manner and in accordance with the principles hereinafter set out, that is to say,—
+(a) where the amount of compensation can be fixed by agreement, it shall be paid in accordance with such agreement;
+(b) where no such agreement can be reached, the [^8][Federal Government] shall appoint as arbitrator a person qualified for appointment as Judge of High Court;
+(c) the [^8][Federal Government] may, in any particular case, nominate a person having expert knowledge as to the nature of the property acquired, to assist the arbitrator, and where such nomination is made, the person to be compensated may also nominate an assessor for the said purpose;
+(d) at the commencement of the proceedings before the arbitrator, the [^10][Federal Government] and the person to be compensated shall state what in their respective opinions is a fair amount of compensation;
+(e) the arbitrator in making his award shall have regard to—
+(i) the provisions mutatis mutandis of sub-section (1) of section 23 of the Land Acquisition Act, 1894 (I of 1894); and
+(ii) the permanent or temporary nature of the acquisition;
+(f) an appeal shall lie to the High Court against the award of an arbitrator except in cases where the amount thereof does not exceed the amount prescribed in this behalf;
+(g) save as provided in this sub-section or the rules, nothing in any law for the time being in force shall apply to arbitrations under this sub-section.
+(4) The [^10][Federal Government] may authorize such steps to be taken to secure compliance with any order made under sub-section (1) as appear to it to be necessary.
+(5) Whoever knowingly disobeys, fails to comply with, or does any act in contravention of an order made under sub-section (1) shall be punishable with imprisonment for a term which may extend to three years, or with fine which may extend to five thousand rupees, or with both, and the court by which he is convicted may direct that the aircraft or thing, if any, in respect of which the offence has been committed, or any part of such thing, shall be forfeited to the [^10][Federal Government].
+
+[^7]: for order made under this section see Gaz. of P. 1965, Ext. pp 1117-1118.
+[^8]: Subs. by the Civil Aviation (Amdt.) Act, 1974 (46 of 1974),s.4, for “Central Government”.
+[^9]: For notification under this clause, see Gaz. of P.,1961, Ext., p.21.
+[^10]: Subs. by the Civil Aviation (Amdt.) Act, 1974 (46 of 1974),s.4, for “Central Government”.

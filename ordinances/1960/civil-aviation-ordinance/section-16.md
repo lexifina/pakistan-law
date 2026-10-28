@@ -1,0 +1,1 @@
+16. Penalty for abetment of offences and attempted offences. Whoever abets the commission of any offence under this Ordinance or the rules, or attempts to commit such offence and in such attempt does any act towards the commission of the offence, shall be liable to the punishment provided for the offence.
