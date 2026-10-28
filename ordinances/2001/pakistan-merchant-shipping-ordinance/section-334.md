@@ -1,0 +1,10 @@
+334. Stability information and damage control.—(1) There shall be carried on board every Pakistani ship such information in writing about the stability as may be prescribed for the guidance of the master in loading and ballasting the ship, and, also in maintaining sufficient stability to enable the ship to withstand damage.
+(2) The aforesaid information shall be in such form as may be approved by the Federal Government (which may approve the provision of the information in the form of a diagram or drawing only) and shall be based on the determination of the ship’s stability by means of an inclining test of the ship :
+Provided that the Federal Government may allow the information to be based on a similar determination of the stability of a sister ship :
+Provided further that in the case of a ship specifically designed for the carriage of liquids or ore in bulk, or of any class of such ships, the Federal Government may allow the inclining test to be dispensed with if it is satisfied from the information available in respect of similar ships that the ship’s proportions and arrangements are such as to ensure more than sufficient stability in all probable loading conditions.
+(3) Whenever the accuracy of the information provided under sub-section (1) is materially affected by alterations made to the ship, information shall be replaced by fresh information of the nature specified in that sub-section and, in any such case, the Federal Government may require a fresh inclining test of the ship.
+(4) When any information under this section is provided for any passenger ship the owner shall send a copy thereof to the officer appointed under section 258.
+(5) The requirements of sub-section (1) so far as they relates to the carriage of stability information shall be applicable to foreign ships when such ships are in a port or place in Pakistan.
+(6) If any such ship proceeds, or attempts to proceed, to sea without having on board such information as aforesaid, the owner or the master of the ship shall be liable to a fine which may extend to ten thousand rupees.
+__________
+CHAPTER 22. –– RADIO INSTALLATION, RADIO EQUIPMENT AND NAVIGATIONAL

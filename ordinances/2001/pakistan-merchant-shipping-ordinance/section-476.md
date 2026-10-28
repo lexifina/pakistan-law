@@ -1,0 +1,3 @@
+476. Assessors.—(1) The list of persons approved by the Federal Government as assessors for the purpose of formal inquiry into shipping casualties shall remain in force for three years only, but persons whose names are on any such list may be approved for any subsequent list.
+(2) The assessors shall attend during the inquiry and deliver their opinions in writing, to be recorded on the proceedings, but the exercise of all powers conferred on the Court by this Chapter or any other law for the time being in force shall rest with the Court.
+(3) The Federal Government may amend the list so to add any name thereto or omit any name therefrom.

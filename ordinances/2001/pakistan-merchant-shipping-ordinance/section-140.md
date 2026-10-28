@@ -1,0 +1,7 @@
+__________
+## CHAPTER 10. —DISCHARGE OF SEAMEN
+140. Discharge of seamen before Shipping Master.—(1) When a seaman serving in a foreign going ship or home trade ship is, on the termination of his engagement. discharged in Pakistan, he shall, whether the agreement with the crew be an agreement for the voyage or a running agreement, be discharged in the manner provided by this Ordinance in the presence of a Shipping Master.
+(2) The provisions of sub-section (I) shall apply in relation to the discharge of seamen serving in any Pakistani coasting ship for which an agreement is required under this Ordinance as they apply in relation to the discharge of seamen serving in a foreign going ship or home trade ship:
+Provided that this sub-section shall not apply where a seaman is discharged from a ship under an agreement made in accordance with section 128 for service in two or more ships for the purpose of being engaged in another ship to which the agreement relates.
+(3) If the master or owner of a Pakistani coasting ship for which an agreement with the crew is not required under this ordinance so desires, the seamen of that ship may be discharged in the same manner as seamen discharged from a foreign going ship or home trade ship.
+(4) If any master, or owner or owner’s agent acts in contravention of any of the provisions of this section, he shall, for each offence, be liable to a fine which may extend to five thousand rupees.

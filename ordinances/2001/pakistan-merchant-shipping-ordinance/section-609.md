@@ -1,0 +1,1 @@
+609. Power to make rules with respect to maritime international conventions.–– The Federal Government may, by notification in the official Gazette, make rules, not in-consistent with the provisions of this Ordinance, or the rules or regulations made thereunder, for implementing the provisions of the maritime international conventions ratified by Pakistan.

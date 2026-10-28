@@ -1,0 +1,2 @@
+5. Radio Inspectors.—(1) The Federal Government may, by notification in the official Gazette, appoint as many Radio Inspectors as it may consider necessary for the purpose of securing that the requirements of this Ordinance and the rules made thereunder relating to radio installation and radio service are complied with.
+(2) The radio inspector shall perform his function under this Ordinance under the general supervision and control of the Principal Officer.

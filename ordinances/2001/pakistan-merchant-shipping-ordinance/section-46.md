@@ -1,0 +1,1 @@
+46. Powers of mortgage and sale.––A registered owner, if desirous by way of mortgage or sale of the ship or share in respect which he is registered at any place out of the country in which the port of registry of the ship is situated, may apply to the registrar, and the registrar shall thereupon enable him to do so by granting a certificate of mortgage or a certificate of sale.

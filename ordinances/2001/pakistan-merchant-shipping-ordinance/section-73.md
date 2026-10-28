@@ -1,0 +1,1 @@
+73. Close of registry. The owner of a registered ship may sell, dispose of or dismantle the ship by following the prescribed procedure for closing the registry otherwise he shall be liable to a fine which may extend to one hundred thousand rupees.

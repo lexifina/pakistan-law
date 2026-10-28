@@ -1,0 +1,1 @@
+572. Conditions to permits.––When issuing a permit under sections 568 and 569, the Federal Government may attach such conditions and restrictions, as may be necessary for the protection of the marine environment or the safety and health of persons.

@@ -1,0 +1,1 @@
+216. Penalty for harboring deserters.––If a person wilfully harbours or secrets any officer, seaman or apprentice who has wilfully neglected or refused to join or has deserted from his ship, knowing or having reason to believe the officer, seaman or apprentice to have so done, he shall, for each offence, be liable to a fine which may extend to ten thousand.

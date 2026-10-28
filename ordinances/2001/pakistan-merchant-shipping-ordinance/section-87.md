@@ -1,0 +1,1 @@
+87. Power of Shipping Authority to enter ship.––Where, the Shipping Authority is of opinion that directions given under this Ordinance are not being compiled with, it may enter or authorize any other person to enter on board any ship and require relevant documents for examination.

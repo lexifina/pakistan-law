@@ -1,0 +1,3 @@
+107. Special provisions as to apprenticeship to sea service.—(1) The apprenticeship of any boy to the sea service shall be by contract in writing between the apprentice or, if he is a minor, his guardian on his behalf, and the persons taking the apprentice.
+(2) Every contract under sub-section (1) shall be executed in duplicate in such form and in such manner as may be prescribed.
+(3) Every such contract made in Pakistan and every assignment or cancellation thereof, and where the apprentice bound deserts or dies the fact of the desertion or death shall be recorded in the manner provided in section 108.

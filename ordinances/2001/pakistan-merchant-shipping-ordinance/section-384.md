@@ -1,0 +1,2 @@
+384. Penalty for misdescription of goods.—(1) No person shall knowingly send or attempt to send by or carry or attempt to carry in any vessel, Pakistani or foreign, dangerous goods under false description, nor shall falsely describe the sender or carrier thereof.
+(2) If any person contravenes the provisions of sub-section (1) he shall be liable to imprisonment for a term which shall not be less than three months and fine not exceeding five hundred thousand rupees.

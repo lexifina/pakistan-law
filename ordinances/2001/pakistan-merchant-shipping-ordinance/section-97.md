@@ -1,0 +1,1 @@
+97. Form of certificates.––Every certificate of competency granted under this Ordinance shall be in the prescribed form and shall be made in duplicate, and one copy shall be delivered to the person entitled to the certificate and the other shall be kept by the Federal Government and recorded in the prescribed manner.

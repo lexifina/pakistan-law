@@ -1,0 +1,1 @@
+98. Record of orders affecting certificates.––A note of all orders made under this Ordinance for suspending, canceling, altering or otherwise affecting any certificate of competency shall be entered on the copy of the certificate kept by the Federal Government.

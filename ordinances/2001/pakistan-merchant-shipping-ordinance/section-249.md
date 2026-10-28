@@ -1,0 +1,1 @@
+249. Powers of Federal Government to exempt certain ships.––The Federal Government may, by notification in the official Gazette, declare that all or any of the provisions of this Chapter relating to the survey of ships shall not apply in the case of any specified ship or class of ships, or shall apply thereto with such modifications as the Federal Government may direct.

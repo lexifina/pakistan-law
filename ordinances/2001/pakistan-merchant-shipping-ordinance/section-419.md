@@ -1,0 +1,6 @@
+419. Division of loss in case of collision.—(1) Whenever by the fault of two or more ships damage or loss is caused to one or more of them or to the cargo of one or more of them or to any property on board one or more of them, the liability to make good the damage or loss shall be in proportion to the degree in which each ship was at fault:
+Provided that—
+(a) if, having regard to all the circumstances of the case, it is not possible to establish different degrees of fault, the liability shall be apportioned equally;
+(b) nothing in this section shall operate so as to render any ship liable for any loss or damage to which her fault has not contributed; and
+(c) nothing in this section shall affect the liability of any person under any contract or shall be construed as imposing any liability upon any person from which he is exempted by any contract or by any provision of law, or as affecting the right of any person to limit his liability in the manner provided by law.
+(2) For the purposes of this Chapter, references to damage or loss by the fault of a ship shall be construed as including references to any salvage or other expenses, consequent upon that fault, recoverable in law by way of damages.

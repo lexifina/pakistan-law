@@ -1,0 +1,1 @@
+354. Delegation of powers to perform certain functions.––The Federal Government may, by order in writing, authorize any recognised organization to perform all or any of the functions under sections 342, 343, 345, 346 and 347 in respect of any ship or class of ships.

@@ -1,0 +1,3 @@
+376. Marking of deck line and load lines of ships other than Pakistani ships.––The provisions of section 360 shall apply to ships other than Pakistani ships proceeding or attempting to proceed to sea from ports or places in Pakistani as they apply to Pakistani ships subject to the following modifications, namely:—
+(a) the said section shall not apply if a valid international load line certificate or a valid international load line exemption certificate is produced in respect of the ship; and
+(b) subject to the provisions of clause (a), a ship which does not comply with the conditions of assignment to the extent required in her case by section 374 shall be deemed to be unsafe for the purpose of section 400.

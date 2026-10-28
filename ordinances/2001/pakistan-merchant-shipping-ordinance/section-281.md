@@ -1,0 +1,3 @@
+281. Discretion as to grant of certificate B.—(1) Save as provided in sub-sections (2) and (3), it shall be in the discretion of the certifying officer to grant or withhold certificate B and, when he withholds the certificate, he shall communicate the reasons thereof to the person concerned.
+(2) The certifying officer shall not grant certificate B if he has reason to believe that the weather conditions are likely to be adverse or that the ship has on board any cargo likely from its quality, quantity or of stowage to prejudice the health or safety of the special trade passengers.
+(3) In the exercise of his discretion, the certifying officer shall be subject to the control of the Federal Government and of any authority appointed by it in this behalf.

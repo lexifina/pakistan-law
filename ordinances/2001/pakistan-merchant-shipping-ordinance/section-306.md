@@ -1,0 +1,3 @@
+306. Death on voyage.––The master of every pilgrim ship shall note in writing on the copy of the statement returned to him under section 305, and on any additional statement to be made under section 307, the date and the supposed cause of death of any pilgrim who may die on the voyage, and shall when the pilgrim ship arrives at her port or place of destination or any port or place at which it may be intended to discharge pilgrims, and before any pilgrims disembark, produce the statement, with any additions made thereto––
+(a) where such port or place is in Pakistan, to the certifying officer or the officer of Customs; and
+(b) where such port or place is outside Pakistan, to the Pakistan consular officer.

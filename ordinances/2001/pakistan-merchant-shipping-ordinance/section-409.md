@@ -1,0 +1,2 @@
+409. Signalling lamps.—(1) Every Pakistani ship, being a ship of a gross tonnage of over one hundred and fifty, shall, when proceeding to sea from any port or place in Pakistan, be provided with a signalling lamp of the type approved by the Federal Government..
+(2) If any ship proceeds or attempts to proceed to sea in contravention of this section, the owner or master thereof shall, for each offence, be liable to a fine which may extend to five thousand rupees.

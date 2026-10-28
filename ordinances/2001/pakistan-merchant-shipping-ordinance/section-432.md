@@ -1,0 +1,1 @@
+432. Ascertainment of tonnage.–– For the purpose of this Chapter, the tonnage of fishing vessels shall be such as may be ascertained in accordance with rules made for the ascertainment of tonnage under Part II except that in the case of a power driven trawler such tonnage shall be her gross tonnage.

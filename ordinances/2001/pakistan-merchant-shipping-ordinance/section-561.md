@@ -1,0 +1,1 @@
+561. Cargo record book for chemical tankers.––Each chemical tanker to which this chapter applies shall maintain a cargo record book, whether as part of the ship’s official log-book or otherwise, in the prescribed form.

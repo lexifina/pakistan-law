@@ -1,0 +1,1 @@
+274. Power to enter on and inspect ship.—After receiving the notice under section 273, the officer or a person authorised by him may at all times enter on the ship and inspect her and her fittings and the provisions and stores on board.

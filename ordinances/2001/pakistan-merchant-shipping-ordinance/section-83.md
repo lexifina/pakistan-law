@@ -1,0 +1,1 @@
+83. Prohibition on compliance with disapproved agreement.––As soon as the Federal Government has notified disapproval of an agreement, or any part thereof, in accordance with sub-section (2) of section 82, the parties shall not comply with the agreement or, as the case may be, the disapproved part thereof.

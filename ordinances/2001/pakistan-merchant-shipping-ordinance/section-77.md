@@ -1,0 +1,1 @@
+77. Government cargo.––The carriage of Government cargo between a foreign and Pakistani port and vice versa may be reserved for Pakistani shipping operators provided Pakistani ships operate from such ports.

@@ -1,0 +1,1 @@
+532. Duty to co-operate.––The master and the owner of the ship and the persons rendering assistance shall carry out instructions issued pursuant to section 528 and shall co-operate with measures taken pursuant to section 529.

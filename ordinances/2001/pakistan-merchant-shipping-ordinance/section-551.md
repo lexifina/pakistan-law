@@ -1,0 +1,1 @@
+551. Priorities.––The seaman’s lien under section 549 shall have precedence over all other liens or charges on the ship, and the master’s lien under section 550 shall have precedence likewise except over that of a seaman.

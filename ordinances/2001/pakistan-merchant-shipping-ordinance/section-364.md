@@ -1,0 +1,2 @@
+364. Penalty for submersion of load lines and sub-division load lines.—(1) If any ship is loaded in contravention of section 362 or section 363 the owner and master thereof shall, for each offence, be liable to a fine which may extend to one hundred thousand rupees.
+(2) Without prejudice to any proceedings under this Ordinance, any ship which is loaded in contravention of section 366 or section 367 may be detained until the ship ceases to be so loaded.

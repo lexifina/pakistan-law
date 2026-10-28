@@ -1,0 +1,5 @@
+458. Detention of overloaded foreign sailing vessels.—(1) The provisions of sub-section (5) of section 454 shall apply to any sailing vessel registered in any country other than Pakistan which arrives in a port or place in Pakistan in an overloaded condition.
+(2) A sailing vessel shall be deemed to be in an over-loaded condition for the purposes of this section—
+(a) where the vessel is loaded beyond the limit specified in any certificate issued in the country in which she is registered ; or
+(b) in case where no such certificate has been issued in respect of the vessel where the actual free board of the vessel is less than the free board which would have been assigned to her had she been registered under this Chapter.
+(3) Any such vessel which is in an overloaded condition and is about to proceed from a port or place in Pakistan may be detained until she ceases to be in an overloaded condition; but nothing herein contained shall affect the liability of the person in charge of the vessel in respect of such overloading under any other provision of this Ordinance.

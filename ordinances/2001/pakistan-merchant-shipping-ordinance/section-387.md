@@ -1,0 +1,1 @@
+387. Saving for other enactments relating to dangerous goods.––The provisions of this Part of this Ordinance relating to the carriage of dangerous goods shall be in addition to, and not in derogation of, any other law for a time being in force.

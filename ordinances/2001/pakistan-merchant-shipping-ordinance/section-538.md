@@ -1,0 +1,1 @@
+538. Conduct barring limitation.––A person liable shall not be entitled to limit his liability if it is proved that the loss resulted from his personal act, or omission, committed with intent to cause such loss recklessly and with knowledge that such loss would probably result.

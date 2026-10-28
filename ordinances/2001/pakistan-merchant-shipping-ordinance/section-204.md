@@ -1,0 +1,5 @@
+204. Desertion and absence without leave.––(1) No officer, apprentice or seaman lawfully engaged shall—
+(a) desert his ship; or
+(b) neglect or refuse, without reasonable cause, to join the ship or to proceed to sea in his ship or be absent without leave at any time within twenty-four hours of the ship's sailing from a port either at the commencement or during the progress of a voyage, or be absent at any time without leave and without sufficient reason from his ship or from his duty.
+(2) For the purposes of sub-section (1), the fact that the ship on which an officer or the seaman or apprentice is engaged or to which he belongs is unseaworthy shall be deemed to be a reasonable cause
+Provided that the officer or seaman or apprentice has, before failing or refusing to join his ship of to proceed to sea in his ship or before absenting himself or being absent from the ship, as the case may be, complained to the master or a Shipping Master, Surveyor, Seamen's Welfare Officer, Port Health Officer, Pakistan consular officer or any other officer at any port duly authorised in this behalf by the Federal Government, that the ship is unseaworthy.

@@ -1,0 +1,1 @@
+573. Recognition of foreign permits.–– A permit for the dumping or wastes or other matter issued by a competent authority in a foreign country may be recognized by the Federal Government as permit deemed to have been issued in accordance with section 568.

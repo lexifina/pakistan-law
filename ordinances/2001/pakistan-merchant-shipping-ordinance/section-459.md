@@ -1,0 +1,2 @@
+459. Application to sailing vessels of certain provisions relating to ships and fishing vessels. —(1) The provisions of sections 427, 437, 438, 439, 440, 441, 445, 446, and 448 shall, mutatis mutandis, apply to sailing vessels as they apply to fishing vessels.
+(2) The Federal Government may, by notification in official Gazette, direct that any other provisions of this Ordinance which do not expressly apply to sailing vessels shall also apply to such vessels subject to such conditions, exceptions and modifications, if any, as may be specified in the notification.

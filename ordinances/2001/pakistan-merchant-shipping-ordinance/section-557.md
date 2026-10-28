@@ -1,0 +1,12 @@
+557. Special Powers.—(1) Any person specially authorised by the Federal Government, may order any vessel in a port or place in Pakistan, or in the navigable waters of Pakistan, to operate or anchor in such manner as he may direct if—
+(a) he has reasonable cause to believe such vessel does not comply with any regulation issued under this Ordinance, or any other law for the time being in force;
+(b) by reason of weather, visibility, sea conditions, port congestion, other hazardous circumstances, or the condition of such vessel, he is satisfied that such directive is justified in the interest of safety;
+(c) he determines that such vessel does not satisfy the conditions for entry in port if such—
+(i) vessel has a history of accident, pollution incidents, or serious repair problems which in the opinion of the Federal Government or person authorised by it, render such vessel unsafe or may create a threat to the marine environment; or
+(ii) vessel fails to comply with any regulation issued under this Ordinance, as amended, or under any other laws for the time being in force;
+(iii) vessel discharges oil or hazardous material in violation of any law of Pakistan or in a manner and quantities inconsistent with the provisions of any treaty or convention to which the Pakistan Government is a party;
+(iv) vessel does not comply with any applicable vessel traffic service requirements;
+(v) vessel is manned by one or more officers who are licensed or certificated by a certificating State which the Federal Government or person authorised by it, has determined, does not have standards for licensing and certification of seafarers which are comparable to or more stringent than Pakistan’s standards or international standards which are accepted by the Government of Pakistan;
+(vi) vessel is not manned in compliance with manning levels prescribed by the Federal Government, or person authorised by it to be necessary to ensure the safe navigation of the vessel; and
+(vii) vessel while underway, does not have at least one licensed or certificated Deck Officer on the navigation bridge capable of clearly understanding marine (nautical) terminology.
+(2) The Federal Government, or person authorised by it, may allow provisional entry of a vessel not in compliance with clause (c) of sub-section (1), if the owner or operator of such vessel proves, to the satisfaction of the Federal Government, or person authorised, that such vessel is not unsafe or a threat to the marine environment, and if such entry is necessary for the safety of the vessel or persons abroad.

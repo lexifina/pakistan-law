@@ -1,0 +1,1 @@
+282. Copy of certificate to be exhibited.––The master or owner of a special trade passenger ship shall post up in a conspicuous part of the ship, so as to be visible to persons on board thereof, a copy of each of the certificates granted under this Chapter in respect of the ship, and shall keep those copies so posted up throughout the voyage.

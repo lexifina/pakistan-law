@@ -1,0 +1,1 @@
+492. Suspended certificates not to be endorsed.––If the certificate of a master, mate or engineer is suspended under this Part by the Federal Government, or by a Maritime Board, no endorsement shall be made to that effect on the said certificate.

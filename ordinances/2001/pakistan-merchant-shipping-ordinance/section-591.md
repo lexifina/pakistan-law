@@ -1,0 +1,4 @@
+591. Service of documents.––Where for the purposes of this Ordinance any document is to be served on any person, that document may be served—
+(a) in any case, by delivering a copy thereof personally to the person to be served, or by leaving the same at his place of abode or by post;
+(b) if the document is to be served on the master of a ship, where there is one. or on a person belonging to a ship, by leaving the same for him on board that ship, with the person being or appearing to be in command or charge of the ship; and
+(c) if the document is to be served on the master of a ship where there is no master and the ship is in Pakistan, on the managing owner of the ship; or, if there is no managing owner, on some agent of the owner residing in Pakistan, or where no such agent is known or can be found, by affixing a copy thereof to the mast of the ship.

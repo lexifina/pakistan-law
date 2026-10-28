@@ -1,0 +1,2 @@
+390. Carriage of bulk cargoes other than grain, etc.—(1) The Federal government may, by notification in the official Gazette, make rules in relation to the loading of bulk cargoes, other than grain as defined in sub-section (8) of section 389 and oil in bulk, on any Pakistani ship or in any ship within any port or place in Pakistan.
+(2) The owner or master of a ship in respect of which the provisions of any of the rules made under sub-section (1) are contravened shall be liable to a fine which may extend to ten thousand rupees.

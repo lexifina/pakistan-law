@@ -1,0 +1,4 @@
+47. Requisites for certificates of mortgage and sale.––Before a certificate of mortgage or sale is granted, the applicant shall state to the registrar, and the registrar shall enter in the register book, the following particulars, namely:––
+(a) The name of the person by whom the power mentioned in the certificate is to be exercised, and in the case of a mortgage the maximum amount of charge to be created if it is intended to fix any such maximum; and in the case of a sale the minimum price at which a sale is to be made if it is intended to fix any such minimum;
+(b) the place where the power is to be exercised, or if no place is specified, a declaration that it may be exercised anywhere, subject to the provisions of this Ordinance; and
+(c) the limit of time within which the power may be exercised.

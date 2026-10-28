@@ -1,0 +1,1 @@
+224. Power of Collector to intervene in case of an unrepresented seaman.––If any Collector has reason to believe that any seaman who ordinarily resides or has property in his District, and who is party to any proceeding pending before any Court, is unable to appear therein or is a serving seaman, the Collector may certify the facts in the prescribed manner to the Court.

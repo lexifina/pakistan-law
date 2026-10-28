@@ -1,0 +1,6 @@
+515. Interfering with wrecked vessel or wreck.—(1) A person shall not, without the leave of the master, board or endeavour to board any vessel which is wrecked, stranded, or in distress, unless that person is, or acts by command of, the receiver or a person lawfully acting as such and, if he does so, shall be liable to be removed from the vessel or repelled by the master of the vessel by force.
+(2) No person shall—
+(a) impede or hinder, or endeavour in any way to impede or hinder, the saving of any vessel stranded or in danger of being stranded, or otherwise in distress on or near the coasts of Pakistan including the territorial waters thereof, or of any part of the cargo or equipment of the vessel, or of any wreck;
+(b) secret any wreck, or deface or obliterate any marks thereon; or
+(c) wrongfully carry away or remove any part of a vessel stranded or in danger of being stranded, or otherwise in distress, on or near such coasts or within those waters, or any part or the cargo of equipment of the vessel, or any wreck.
+(3) if any person acts in contravention of this section, he shall, for each offence, be liable to a fine which may extend to ten thousand rupees in addition to any other punishment to which he may otherwise be liable.

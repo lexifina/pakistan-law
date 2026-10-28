@@ -1,0 +1,4 @@
+108. Manner in which contract, etc. is to be recorded.—(1)The person to whom an apprentice to the sea service is bound for the purpose of the record, shall—
+(a) transmit to the Shipping Master both copies of the contract within seven days of the execution thereof and the Shipping Master shall record one copy and endorse the fact that it has been so recorded on the other and return the same to such person; and
+(b) notify to the Shipping Master any assignment or cancellation of the contract and the desertion or death of the apprentice, within seven days of its occurrence, if it occurs within Pakistan, or as soon as circumstances permit, if it occurs elsewhere.
+(2) If any person fails to comply with any of the requirements of sub-section (1) he shall, for each offence, be liable to a fine which may extend to five thousand rupees.

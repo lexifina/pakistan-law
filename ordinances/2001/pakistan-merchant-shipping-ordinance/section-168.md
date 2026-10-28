@@ -1,0 +1,3 @@
+168. Stipulations as to allotment notes.—(1) Any stipulation made by a seaman at the commencement of a voyage for the allotment of any part of his wages during his absence shall be inserted in the agreement with the crew, and shall state the amounts and times of the payments to be made.
+(2) A seaman may require that a stipulation be inserted in the agreement for the allotment, by means of an allotment note, of any part, not exceeding two-thirds, of his wages in favour either of a relative of the seaman, or some member of his family, or a Saving Bank or a fund approved by the Federal Government, to be named in the note.
+(3) Allotment notes shall be in the form as the Federal Government may prescribe.

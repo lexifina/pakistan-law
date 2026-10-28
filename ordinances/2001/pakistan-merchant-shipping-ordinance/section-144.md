@@ -1,0 +1,2 @@
+144. Transmission of documents on transfer of seaman from one ship to another.—(1) Where a seaman is transferred under his agreement from one ship to another the master of the ship from which the seaman is transferred shall, as soon as practicable, transmit to the master of the other ship all documents in his possession relating to the seaman.
+(2) If the master fails, without reasonable cause, to comply with sub-section (1) he shall, for each offence, be liable to a, fine which may extend to five thousand rupees.

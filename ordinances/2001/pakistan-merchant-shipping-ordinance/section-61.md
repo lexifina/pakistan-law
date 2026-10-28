@@ -1,0 +1,2 @@
+61. National character of ship to be declared before clearance.—(1) An officer of customs, or appropriate designated authority for this purpose, shall not grant a clearance or transire for any ship until the master of such ship has declared to that officer the name of the country to which he claims that she belongs, and that officer shall thereupon inscribe that name on the clearance or transire.
+(2) If a ship attempts to proceed to sea without such clearance or transire, she may be detained until the declaration is made.

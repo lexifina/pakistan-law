@@ -1,0 +1,6 @@
+188. Allowance for short or bad provisions.—(1) In either of the following cases.—
+(a) if, during the voyage, the allowance of any of provisions for which a seaman has by his agreement stipulated is reduced, or
+(b) if it is shown that any of those provisions are or have during the voyage been bad in quality or unfit for use;
+the seaman shall receive by way of compensation for that reduction or bad quality according to the time of its continuance such sums as may be prescribed, to be paid to him in addition to, and to be recoverable as, wages.
+(2) If it is shown to the satisfaction of the Court before which the case is tried that any provisions, the allowance of which has been reduced, could not be procured or supplied in proper quantity and equivalent substitutes were supplied in liue thereof, the Court shall take those circumstances into consideration and modify or refuse the compensation as the justice of the case requires:
+Provided that, if the amount of compensation claimed does not exceed five hundred rupees in respect of any one seaman, the Shipping Master may, on application of either party settle the compensation as if it were a dispute submitted to him under section 156 and the decision of the Shipping Master in the matter shall be final.

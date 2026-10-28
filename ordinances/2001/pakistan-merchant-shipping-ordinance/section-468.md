@@ -1,0 +1,1 @@
+468. Application of certain section to or in relation to certain certificates under section 462.––The provisions of section 263 to 266 (inclusive) shall, so far as may be, apply to and in relation to every certificate issued by the Federal Government under section 462 in the same manner as they apply to and in relation to a certificate of survey.

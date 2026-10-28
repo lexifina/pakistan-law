@@ -1,0 +1,1 @@
+22. Certificate of Registry.––On completion of the registry of a Pakistani ship, the registrar shall grant a certificate of registry containing the particulars respecting her entered in the register book with the name of her master.

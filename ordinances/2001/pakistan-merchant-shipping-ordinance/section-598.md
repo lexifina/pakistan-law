@@ -1,0 +1,2 @@
+598. No person to practise as surveyor unless qualified.––No person shall practise the profession of a surveyor in any port in Pakistan unless he holds a certificate granted under section 597:
+Provided that nothing herein contained shall prevent any person employed by a classification society which the Federal Government may, by notification in the official Gazette, specify in this behalf, from discharging any of the duties of such employment. or apply to any person specially exempted by the Federal Government from the operation of this section.

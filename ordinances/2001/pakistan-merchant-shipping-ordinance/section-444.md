@@ -1,0 +1,1 @@
+444. Port clearance not to be given.––No officer of customs shall grant a port clearance to any fishing vessel until after the production of certificate of inspection, if applicable and also the fishing vessel safety certificate or, as the case may be, fishing vessel exemption certificate in respect of a fishing vessel of twenty-four meters in length and over.

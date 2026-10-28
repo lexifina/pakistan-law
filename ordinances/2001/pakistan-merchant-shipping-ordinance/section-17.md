@@ -1,0 +1,6 @@
+17. Provisions for entries in register book.–– Every registrar of Pakistani ships shall keep a book to be called the register book and entries in that book shall be made in accordance with the following provisions, namely:—
+(a) The property in a ship shall be divided into sixty-four shares;
+(b) subject to the provisions of this Ordinance with respect to joint owners or owners by transmission, not more than sixty-four individuals shall be entitled to be registered at the same time as owners of any one ship; but this rule shall not affect the beneficial title or any number of persons or of any company represented by or claiming under or through any registered owner or joint owner;
+(c) a person shall not be entitled to be registered as owner of a fractional part of a saher in a ship; but any number of persons not exceeding five may be registered as joint owners of a ship or of any shares therein;
+(d) joint owners shall be considered as constituting one person only as regards the persons entitled to be registered, and shall not be entitled to dispose in severely of any interest in a ship or in any share therein in respect of which they are registered; and
+(e) a company may be registered as owner by its name.

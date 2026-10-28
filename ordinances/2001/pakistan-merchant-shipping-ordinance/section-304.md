@@ -1,0 +1,1 @@
+304. Hospital accommodation.––There shall be a regularly appointed hospital on board every pilgrim ship, offering such conditions of security, health and space, and capable of accommodating such number, not exceeding five per cent of the pilgrims embarked as may be prescribed.

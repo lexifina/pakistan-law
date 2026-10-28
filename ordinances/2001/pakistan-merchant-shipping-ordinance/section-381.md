@@ -1,0 +1,7 @@
+______________
+## CHAPTER 27. — CARRIAGE OR SPECIAL CARGOES
+381. Power to make rules in respect of timber cargo.—(1) The Federal Government may, by notification in the official Gazette, make rules as to the conditions on which timber may be carried as cargo in any uncovered space on the deck of any Pakistani ship or any other ship within any port or place in Pakistan, hereinafter referred to as the timber cargo rules, and as to the conditions on which any other cargo may be carried.
+(2) The timber cargo rules may prescribe a special load line to be used only when the ship is carrying timber as cargo on deck and the conditions on which such special load line may be assigned and may further prescribe, either generally or with reference to particular voyages or seasons, the manner and position in which such timber is to be towed and the provisions which are to be made for the safety of the crew.
+(3) Any surveyor authorised in this behalf by the Federal Government may, at any reasonable time, inspect any ship carrying timber as cargo in any uncovered space on her deck for the purpose of seeing whether the timber cargo rules have been complied with.
+(4) The owner or master of a ship who contravenes any provisions of the rules made under the preceding sub-sections shall be liable to a fine which may extend to fifty thousand rupees.
+(5) The foregoing provisions of this section and the timber cargo rules shall apply to ships other than Pakistani ships while they are within Pakistani jurisdiction as they apply to Pakistani ships.

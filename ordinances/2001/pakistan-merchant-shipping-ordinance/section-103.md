@@ -1,0 +1,2 @@
+103. Power to cancel or suspend certificates.––If it appears to the Federal Government that the holder of a certificate of competency granted under this Ordinance has obtained it on false or erroneous information, it may, without prejudice to any other penalty to which such holder may be liable, cancel or suspend such certificate:
+Provided that no order under this section shall be passed by the Federal Government unless the person concerned has been given an opportunity of making a representation against the proposed order.

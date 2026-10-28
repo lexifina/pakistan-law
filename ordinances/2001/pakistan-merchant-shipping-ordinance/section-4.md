@@ -1,0 +1,2 @@
+4. Surveyors.—(1) The Federal Government may, by notification in the official Gazette, appoint for each office established under section 3 as many persons, as it may think fit, possessing such qualifications as may be prescribed in this behalf, to be surveyors for the purposes of this Ordinance
+(2) The surveyor shall perform his functions under this Ordinance under the general supervision and control of the Principal Officer.

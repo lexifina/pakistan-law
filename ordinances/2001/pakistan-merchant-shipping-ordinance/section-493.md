@@ -1,0 +1,3 @@
+493. Power of Federal Government to cancel or suspend other certificates.—(1) Notwithstanding anything contained in this Ordinance, the Federal Government may after making an inquiry, cancel or suspend any certificate granted by it under this Ordinance, if, in its opinion, the holder is, or has become unfit to act in the grade for which the certificate was granted to him:
+Provided that no order under this section shall be passed by the Federal Government unless the person concerned has been given an opportunity of making a representation against the order proposed.
+(2) The provisions of clause (b) of sub-section (1) and sub-section (2) of section 481 shall apply to certificates cancelled or suspended under this section.

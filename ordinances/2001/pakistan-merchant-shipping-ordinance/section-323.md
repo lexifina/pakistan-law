@@ -1,0 +1,1 @@
+323. Sanitary taxes payable by the master.––The master of every pilgrim ship shall be bound to pay the whole amount of the sanitary taxes imposed by lawful authority at the ports visited and such amount shall be included in the cost of the tickets issued to the pilgrims.

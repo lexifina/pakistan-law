@@ -1,0 +1,1 @@
+25. Power to grant duplicate certificate.––The registrar of the port of registry of a Pakistani ship may, on the delivery up to him of the defaced or multilated certificate of registry of a ship, grant a duplicate certificate in lieu thereof.

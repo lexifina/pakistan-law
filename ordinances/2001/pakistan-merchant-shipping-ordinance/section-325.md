@@ -1,0 +1,1 @@
+325. Appointment of officers.–– The Federal Government shall appoint such persons as it thinks fit to exercise the powers and perform duties which are conferred and imposed by this Chapter or may be conferred and imposed thereunder.

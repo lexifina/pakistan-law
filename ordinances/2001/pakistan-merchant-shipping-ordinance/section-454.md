@@ -1,0 +1,9 @@
+454. Prevention of overloading or overcrowding —(1) The Federal Government may, by notification in the official Gazette, make rules to regulate the carriage of cargo or passengers in sailing vessels and the protection of life and property on board such vessels.
+(2) In particular, and without prejudice to the generality of the foregoing power, such rules may provide for all or any of the following matters, namely:—
+(a) the assignment of freeboard to sailing vessels ;
+(b) the marking of such free board on such vessels and the maintenance of such markings ;
+(c) the survey of the space allotted to passengers on board such vessels ; and
+(d) the scale and type of accommodation to be provided for each passenger.
+(3) Any sailing vessel attempting to ply or proceed to sea without free board markings or any sailing vessel which has been so loaded as to submerge such markings may be detained by the Principal Officer, surveyor or officer of Customs until free board makings are made in accordance with the rules made under sub-section (1) or the vessel is so loaded that such markings are not submerged.
+(4) Nothing in this section relating to survey of spaces allotted to passengers or the scale or type of accommodation to be provided for each passenger shall apply to any sailing vessel which has been surveyed under Part V, nor shall anything in this section relating to free board apply to any sailing vessel in respect of which a load line has been assigned under Part VI.
+(5) If any sailing vessel arrives at a port or place in Pakistan with a number of passengers in excess of the number which the vessel is certified to carry, or arrives at such port or place with the free board markings submerged, the owner and nakhuda shall, for each offence, be liable to a fine which may extend to ten thousand rupees.

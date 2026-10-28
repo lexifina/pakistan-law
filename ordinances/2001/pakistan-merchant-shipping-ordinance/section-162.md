@@ -1,0 +1,1 @@
+162. Wages not to accrue during refusal or imprisonment.–– A seaman or apprentice shall not be entitled to wages for any time during which he unlawfully refuses or neglects to work when so required nor, unless the Court hearing the case otherwise directs, for any period during which he is lawfully imprisoned for any offence committed by him.

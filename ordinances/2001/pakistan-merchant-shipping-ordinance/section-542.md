@@ -1,0 +1,4 @@
+542. Limit for passenger claims.—(1) In respect of claims arising on any distinct occasion for loss of life or personal injury to passengers of a ship, the limit of liability of the ships owner thereof shall be in the amount of 46,666 units of accounts multiplied by the number of passenger which the ship is authorised to carry according to the passenger ship safety certificate issued in accordance with this Ordinance but not exceeding twenty-five million units of account.
+(2) For the purpose of this section “claims for loss of life or personal injury to passengers on a ship” means any such claims brought by or on behalf of any person carried, in that ship,—
+(a) under a contract of carriage of passengers by sea; or
+(b) who, with the consent of the carrier, is accompanying a vehicle, live animals or other goods which are covered by a contract for the carriage of goods.
