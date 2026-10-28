@@ -1,0 +1,1 @@
+38. First statutes and regulations.____Notwithstanding anything to the contrary contained in this Act, the Senate shall make the first statutes and regulations which shall be deemed to have been made under sections 25 and 26 of this Act.
