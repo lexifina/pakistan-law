@@ -1,0 +1,1 @@
+16. Public servants.___A person appointed, acting or purporting to act in pursuance of any provision of this Act, shall be deemed to be public servant within the meaning of section 21 of the Pakistan Penal Code, 1860 (XLV of 1860).
