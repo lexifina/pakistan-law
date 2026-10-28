@@ -1,0 +1,1 @@
+34. Savings.—Save as otherwise provided in this Act, noting in this Act shall curtail or deemed to affect or curtail the powers of the force under the Anti-Narcotics Act, 1997 (III of 1997) and the Control of Narcotic Substances Act, 1997 (XXV of 1997) or any other law for the time being in force.

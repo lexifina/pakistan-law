@@ -1,0 +1,1 @@
+19. Bank Accounts.—Subject to the Public Finance Management Act, 2019, the Authority may open and maintain it’s accounts in rupees or in any foreign currency at such scheduled banks as it may from time to time determine.

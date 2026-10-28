@@ -1,0 +1,1 @@
+25. Application of Act No. XXV of 1997.—For trial of criminal offences committed under this Act, the provisions of Control of Narcotic Substances Act, 1997 (XXV of 1997), and any other law for the time being in force shall apply mutatis mutandis.

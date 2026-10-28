@@ -1,0 +1,2 @@
+17. Annual report.—(1) Within ninety days from the end of each financial year, the Authority shall cause a report to be prepared on the activities of the Authority including inspections made by the Authority under this Act during that financial year and release to the public and simultaneously send a copy of the report to the Federal Government.
+(2) The Authority shall furnish report for national and international forums, organizations or agencies as required under any international obligations or existing laws.
