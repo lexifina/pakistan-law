@@ -1,0 +1,1 @@
+9. Resignation by a member of the Board of Governors. A member of the Board of Governors, other than an ex-officio member, may, at any time, resign his office by letter addressed to the Chairperson provided that no resignation shall take effect until it has been accepted by the Federal Government.

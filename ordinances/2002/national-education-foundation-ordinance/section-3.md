@@ -1,0 +1,11 @@
+3. Establishment of the Foundation.― (1) As soon as may be after the commencement of this Ordinance, the Federal Government shall, for the purpose of carrying out the objectives of this Ordinance, by notification in the official Gazette, establish a Foundation to be known as the National Education Foundation.
+(2) The Foundation shall be a body corporate having perpetual succession and a common seal with power to acquire, hold and dispose of property, both movable and immovable, and shall by the said name sue and be sued.
+(3) The Foundation shall be guided by following:―
+(i) Vision:
+(a) Providing quality enabling education through public private partnerships for disadvantaged groups.
+Explanation I― “enabling” means, increasing capabilities for improving well-being and entitlements; ability to keep pace with changing times; problem solving and skills to access official procedures, institutions and potential resources; and enabling both individual and societal dimensions;
+Explanation II―“education” means early childhood education, focus on elementary education, special needs within Education For All secondary and technical, integrated literacy programme for disadvantaged groups under EFA, Information Technology (IT) literacy,(EFA areas), welfare activities for Federal Government teachers and their families, post secondary with specific reference to teacher education [all subjects] education research, management, policy and planning.
+Explanation III―“disadvantaged” means population living below poverty line, girls and women in rurla areas and urban slums, child labour, children in prison, minorities, nomads, slum dwellers, people in under-served areas including revering communities, children with special needs, Gender equality and not gender equity is seen as a measure of overcoming disadvantaged status for girls and women.
+(ii) Mission
+To become a vibrant catalyst for quality enabling education through support to private and non-governmental sectors by mobilizing sufficient resources as an effective self sustaining organization.
+Explanation―“private” signifies to private sector capped at tuition fee schedules of Rs. 200 per month for elementary education, Rs. 600 per month for secondary and technical and Rs. 1500 per month for tertiary or special education or as may be notified by the Federal Government from time to time.

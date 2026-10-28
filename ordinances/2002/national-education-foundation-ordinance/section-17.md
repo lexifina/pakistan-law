@@ -1,0 +1,1 @@
+17. Indemnity. No suit, prosecution or other proceedings shall lie against any officer or employee of the Foundation or any other person exercising any power or performing any function under this Ordinance or the rules or regulations made thereunder for anything which is done in good faith.

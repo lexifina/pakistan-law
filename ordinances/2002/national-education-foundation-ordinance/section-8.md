@@ -1,0 +1,1 @@
+8. Filling in casual vacancy. Any casual vacancy caused due to the permanent absence of a member, other than ex-officio members, shall be filled by a person nominated by the Federal Government and the person so nominate shall hold office for the un-expired period of the term of his predecessor.
