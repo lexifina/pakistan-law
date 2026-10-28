@@ -1,0 +1,5 @@
+3. Establishment of the Board.―(1) As soon as may be, after commencement of this Act, the Federal Government shall, by notification in the Official Gazette, establish for carrying out the purposes of this Act, a Heavy Industries [^1][Taxila] Board consisting of a Chairman and [^1][five] members to be appointed by it.
+(2) The Chairman shall be appointed by the Federal Government on recommendation of the Chief of Army Staff.
+(3) Out of the [^1][five] members to be appointed by the Federal Government, one shall be appointed as member finance in consultation with the Ministry of Finance, the second to be as the member Ministerial Co-ordination, [^1][third member shall be appointed from the corporate sector, to be called the Member (Private), on the recommendation of the Secretary, Defense Production Division] and the remaining two to be the technical members as members production Control and Project Planning to be appointed from within the existing strength of the Board.
+
+[^1]: Ins. and subs. by Ordinance XLVII of 2000, by ss.2-5.
