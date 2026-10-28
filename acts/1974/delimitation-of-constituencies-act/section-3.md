@@ -1,0 +1,2 @@
+3. Commission to delimit constituencies. The Commission shall delimit territorial constituencies for elections to the National Assembly and to each Provincial Assembly in accordance with the provisions of the Constitution and this Act.
+1["3A. Delimitaion of constituences for local government election. The Commission shall also delimit territoral constituencies for elections to the local governments in accordance with the provisions of the local government Law and the rules made thereunder of each Province."]
