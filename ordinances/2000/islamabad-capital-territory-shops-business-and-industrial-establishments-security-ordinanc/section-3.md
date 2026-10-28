@@ -1,0 +1,1 @@
+3. Security of Establishment:___ The Government may by order, published in the official Gazette, provide for the regulation and enforcement of measures for the security of the property and persons connected with any establishment.
