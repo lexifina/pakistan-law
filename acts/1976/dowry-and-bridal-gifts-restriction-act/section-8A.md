@@ -1,0 +1,1 @@
+8A. Complaints against violation of the Act. If any person attending a marriage ceremony is satisfied that the provisions of this Act or the rules made thereunder have been contravened in respect of such ceremony, he may submit a complaint, giving full particulars of the contravention, to the Deputy Commissioner].

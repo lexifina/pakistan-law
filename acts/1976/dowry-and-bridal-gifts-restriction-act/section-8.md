@@ -1,0 +1,4 @@
+[^4][8. Declaration regarding expenditure to be submitted to Registrar.—(1) The father of the bridegroom or any other person who arranges the marriage shall, within fifteen days of the expiry of the period fixed under sub-section (2) of section 3 for giving dowry, bridal gifts and presents, submit a declaration to the Registrar solemnly affirming that the total expenditure oh the marriage including dowry, bridal gifts, presents and-entertainments did not exceed the limits laid down in this Act.
+(2) The Registrar shall forward the declaration submitted under sub-section (1) to the Deputy Commissioner within fifteen days of receipt of such declaration.
+
+[^4]: Subs. by the Dowry and Bridal Gifts (Restriction) (Amdt.) Ordinance, 1980 (36 of 1980), s. 4.

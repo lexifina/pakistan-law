@@ -1,0 +1,9 @@
+9. Penalty and procedure.—(1) Whoever contravenes, or fails to comply with, any provision of this Act or the rules made thereunder shall be punishable with imprisonment of either description for a term which may extend to six months, or with fine [^5][which shall not be less than the amount proved to have been spent in excess of the maximum limits laid down in this Act], or with both, and the dowry, bridal gifts or presents given or accepted in contravention of the provisions of this Act shall be forfeited to the Federal Government to be utilized for the marriage of poor girls in such a way as may be prescribed by rules made under this Act:
+))) Provided that if both the parents of a party to the marriage contravene, or fail to comply with, any provision of this Act or the rules made thereunder, action under this section shall be taken only against the father:
+Provided further that if the parent who contravenes, or fails to comply with, any provision of this Act or the rules made thereunder is a female, shall be punishable with fine only.
+(2) Any offence punishable under this Act shall be triable only by a Family Court established under the West Pakistan Family Courts Act, 1964(W.P. Act No. XXXV of 1964).
+(3) No Family Court shall take cognizance of an offence punishable under this Act except upon a complaint in writing made by, or under the authority of, the Deputy Commissioner within [^6][three] months from the date of nikah, and if rukhsati takes place some time after nikah, from the date of such rukhsati.
+(4) While trying an offence punishable under this Act, a Family Court shall follow the procedure prescribed by the Code of Criminal Procedure, 1898 (Act V of 1898), for the trial of offences by Magistrates.
+
+[^5]: Subs. ibid., s.5.
+[^6]: Subs. by the Dowry and Bridal Gifts (Restriction) (Amdt.) Ordinance, 1980 (36 of 1980), s. 5.
