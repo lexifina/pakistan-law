@@ -1,0 +1,3 @@
+5. Organization of the Board.—(1) The Board may, for carrying out its functions for promotion of energy conservation and efficiency, development of energy efficient technologies, certification of energy efficient products and projects and project management, may establish one or more organizations as it may consider necessary.
+(2) The organization established under sub-section (1) shall be subject to control and supervision of the Board and shall function within the framework of this Act.
+(3) An organization established under sub-section (1) shall perform such business as may be prescribed by regulations by the Board for the purpose.

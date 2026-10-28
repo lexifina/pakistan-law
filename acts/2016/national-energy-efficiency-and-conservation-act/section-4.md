@@ -1,0 +1,4 @@
+4. Functions and powers of the Board.—(1) The supervision, management of the affairs, and policy direction of the Authority shall vest with the Board.
+(2) The Board may, exercise all powers and do all acts which may be exercised or done by the Authority.
+(3) The Board, or a Provincial Government with the concurrence of the Board, may establish any suitable structure or mechanism for enforcement of this Act in consultation with National Standards Body including energy efficiency standards, labeling, incentives, fines and other related requirements under this Act with effect from the date to be determined by the Board.
+(4) The Board may approve appropriate strengthening, restructuring, capacity building, terms and conditions of employees and compensation or protection of service benefits for NEECA and its employees, to effectively carry out the functions under the provisions of this Act.

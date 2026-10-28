@@ -1,0 +1,1 @@
+12. Powers of the Federal Government to specify value of energy. The Federal Government may, in consultation with Authority, prescribe the value of per metric ton of oil equivalent of energy consumed for the purpose of this Act.
