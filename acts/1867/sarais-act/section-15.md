@@ -1,0 +1,1 @@
+15. Conviction for third offence to disqualify persons from keeping sarais. Where a keeper of a sarai is convicted of a third offence under this Act, he shall not afterwards act as keeper of a sarai without the license in writing of the Magistrate of the District, who may either withhold such license or grant the same on such terms and conditions as he may think fit.
