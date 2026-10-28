@@ -1,0 +1,13 @@
+## PART-IX
+## Domestic and International Assistance by the Commission
+51. Powers in relation to assistance by the Commission.__ In addition to the powers conferred by other parts of this Act, the Commission may provide any other form of assistance in relation to the resolution of any trade dispute within the scope of application of his Act as set out in section 3. Such assistance may include, without limitation,__
+(a) maintaining and publishing a list of black-listed parties on its website, comprising those parties who have failed to comply with the findings made by the Commission pursuant to a final determination. The Commission shall remove the name of the Party upon redressal and compliance with the findings made in the final determination. Such black-list may be circulated amongst all relevant chambers of commerce locally as well as abroad and these foreign chambers may be requested to share they black-list, or, its equivalent, if any, with the Commission so that the same may also be uploaded on the website;
+(b) maintaining a database of high-risk places, being international locations with a high prevalence of disputes, or fraud or other lack of security in their domestic or international markets along with unsatisfactory dispute resolution mechanisms;
+(c) intervention before other forums, whether as amicus curiae or otherwise, in any proceedings concerning a trade dispute to expedite the same or to provide expertise or for any other reason;
+(d) taking any available step before any forum or with any agency, including but not limited to the entering into bilateral agreements with other governments to secure the enforcement of any agreement, award, judgment, order, direction or adjudication;
+(e) assisting with the service of documents including in foreign jurisdictions through embassies, missions or other agencies abroad;
+(f) assisting with the taking of evidence abroad whether through embassies or missions or otherwise;
+(g) making representations to, seeking assistance from or liaising with any governmental department, division, institution or agency;
+(h) publishing any allegations, orders or findings in the official Gazette or any local newspapers and the website;
+(i) cooperating with any authority or international organization in Pakistan or abroad in any program or agreement for the resolution of trade disputes or related issues; and
+(j) ensuring that for the promulgation of better trade relations with other countries, the Commission shall conduct regular meetings with other WTO member countries to ensure that all forms of facilitation and assistance is provided, if so required.

@@ -1,0 +1,2 @@
+26. Delegation of powers.__ The Commission may, by general or special order in writing subject to such limitations, restrictions or Conditions as may be specified therein, delegate all or any of its powers and functions to one or more of its members or one or more of the officers, employees, experts, consultants or agents of the Commission and the Commission may at any time revoke such authority at its own discretion:
+Provided that powers conferred under sections 60, 61 and 62 shall not be delegated under this section.

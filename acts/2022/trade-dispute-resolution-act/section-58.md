@@ -1,0 +1,2 @@
+58. Power to make rules and regulations.__ (1) The Federal Government may, by notification in the official Gazette, make in respect of external matters rules for carrying out the purposes of this Act.
+(2) The Commission shall, by notification in the official Gazette, make in respect of its internal matters regulations in consultation with the division concerned for carrying out the purposes of this Act.

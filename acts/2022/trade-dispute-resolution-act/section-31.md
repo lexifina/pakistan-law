@@ -1,0 +1,3 @@
+31. Notice to appear.__ (1) Upon acceptance of the application, the Commission shall give prompt notice to the party against whom the complaint has been filed in respect of the trade dispute, to appear before the Commission so that an allocation may be made in accordance with section 33.
+(2) The Commission shall also inform the relevant government of the country to which the party or parties belong, with a request that the copy of the complaint be also forwarded to the party to the dispute.
+(3) Any person duly authorized by a party shall be entitled to appear, plead and act on behalf of such party before the Commission.

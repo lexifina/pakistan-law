@@ -1,0 +1,1 @@
+38. Extent of powers.__ The powers provided for in this part may be exercised within Pakistan and, in so far as permitted by local law, in any foreign jurisdiction, with or without the assistance of any Pakistan embassy or mission abroad.

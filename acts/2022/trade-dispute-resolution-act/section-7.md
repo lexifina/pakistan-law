@@ -1,0 +1,2 @@
+7. Exclusive jurisdiction of the Commission.__ (1) Within Pakistan, the Commission as constituted under this Act shall have exclusive jurisdiction over all matters with respect to this Act, including all issues concerning its interpretation and application.
+(2) Where parties have agreed that disputes between them in respect of a defined legal relationship, whether contractual or not, shall be referred to the Commission under this Act, then such disputes shall be settled in accordance with the provisions of this Act.

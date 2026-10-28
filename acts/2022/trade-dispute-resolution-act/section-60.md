@@ -1,0 +1,1 @@
+60. Removal of difficulties.__ If a difficulty arises in giving effect to any provisions of this Act, the Commission may make such order, not inconsistent with the provisions of this Act, as may appear to it to be necessary for the purpose of removing the difficulty.

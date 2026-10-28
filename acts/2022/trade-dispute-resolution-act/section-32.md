@@ -1,0 +1,2 @@
+32. Withdrawal of application.__ (1) An application made under section 29 may be withdrawn at any time before an allocation has been made pursuant to section 33 and section 34, in which case it shall be considered not to have been made:
+Provided that upon the withdrawal of an application any fee paid along with the application pursuant to clause (a) of sub-section (2) of section 29, shall stand forfeited in favour of the Commission.

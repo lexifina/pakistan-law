@@ -1,0 +1,1 @@
+61. Authorities to assist and aid Commission.__ All law enforcement agencies and authorities in the Federation and the Provinces shall be under an obligation to provide and render full and complete assistance to the Commission as and when the secretariat thereof may require such assistance.
