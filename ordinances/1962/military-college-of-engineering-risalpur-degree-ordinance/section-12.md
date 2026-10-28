@@ -1,0 +1,1 @@
+12. Bar of Jurisdiction.___No order made under this Ordinance or the rules or regulations made thereunder shall be called in question in any court, and no suit, prosecution or other legal proceedings shall lie against any person for anything in good faith done or intended to be done under this Ordinance or the rules or regulations.
