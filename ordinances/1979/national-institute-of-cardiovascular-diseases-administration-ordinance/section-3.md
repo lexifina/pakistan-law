@@ -1,0 +1,1 @@
+3. Ordinance to override other laws. This Ordinance shall have effect notwithstanding anything contained in any other law for the time being in force, or in the Trust Deed of the National Institute of Cardiovascular Diseases Trust, Karachi, dated the 8th May 1976.

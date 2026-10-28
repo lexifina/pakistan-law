@@ -1,0 +1,1 @@
+12. Setting up of working groups and Committees. The Governing Body may from time to time appoint such working groups or committees from amongst its members as it may consider necessary to assist it in the performance of its functions and to discharge such of its functions as it may assign to them.

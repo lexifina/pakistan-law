@@ -1,0 +1,1 @@
+15. Appointments of officers, etc. The Governing Body may appoint, subject to such general or special orders as the Federal Government may give from time to time, such officers in Grade-18 and above, and engage such consultants or expects, as it may consider necessary for the efficient performance of the functions of the Institute, on such terms and conditions as it may deem fit.
