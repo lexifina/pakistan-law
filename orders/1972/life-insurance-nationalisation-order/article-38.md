@@ -1,0 +1,4 @@
+38. Application of the Insurance Act.___(1) The following sections of the Act shall, so far as may be, apply to a Corporation as they apply to any other insurer, namely, sections 3B (in so far as it relates to reinsurance), 3BB, 3D, 3E, 10, 11, 12A, 13, 14, 15, 20, 21, 22, 23, 25, 27, 28, 29, 30, 33, 34, 35, 36, 37, 38, 39, 40, 40A, 40B, 42, 42A, 43, 44, 45, 46, 47A, 47B, 47C to 47L and where the [^14][Federal Government] has also entrusted to the claims Settlement Board the settlement of disputes relating to life insurance claims, sections 50A, 102 to 110, 110C, 111, 113, 114 and 116A.
+(2) The [^14][Federal Government] may, by notification in the official Gazette, direct that all or any of the provisions of the Act other than those specified in clause (1) shall apply to a Corporation subject to such conditions and modifications as may be specified in the notification.
+
+[^14]: Subs. and added by Act No. LXVII of, 1973, ss. 2 and 4.

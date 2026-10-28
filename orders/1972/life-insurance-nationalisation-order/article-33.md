@@ -1,0 +1,2 @@
+33. Power of Corporation to have official seal.___(1) A Corporation may have an official seal, as distinguished from its common seal, and whenever a divisional, zonal or any other office is authorised the use of the official seal a facsimile thereof shall have the name of the zonal, divisional or other office added to its face.
+(2) The official seal may be affixed to such deed or document which is incomplete without that seal or to such other documents as may be authorised by the Corporation.

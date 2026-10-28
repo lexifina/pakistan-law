@@ -1,0 +1,1 @@
+9. Directors, etc., not to withhold assets. No director or officer of an insurer nor any other person, shall retain or fail to deliver to the trustee any assets of which the trustee is required to take possession under Article 6.

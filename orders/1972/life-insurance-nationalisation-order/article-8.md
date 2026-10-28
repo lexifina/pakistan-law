@@ -1,0 +1,1 @@
+8. Power of trustee to recover certain property. A trustee appointed in respect of an insurer shall have all the powers which an Administrator has under sections 52C and 52D of the Act, as if he were an Administrator appointed under section 52A of the Act in respect of that insurer.
