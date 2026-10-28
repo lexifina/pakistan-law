@@ -1,0 +1,2 @@
+20. Responsibility of a registered person:—Every person registered under this Act shall notify any transfer of the place of his residence, employment or practice to the Council with thirty day of such transfer.
+21 Prohibition against use of unregistered veterinary qualification:— No person shall use or publish with his name any title, abbreviate description or symbol, indicating or calculated to lead people to infer that possess any veterinary qualification unless the same is recognized and conferred upon him under this Act.

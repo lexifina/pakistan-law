@@ -1,0 +1,3 @@
+19. Privileges of registered members:—(1) Notwithstanding anything to the contrary contained in any other law for the time being in force no person other than a registered veterinary practitioner shall hold any veterinary position in private or public sector.
+(2) Note understanding anything to the contrary contained in any other law for the time being in force, not certificate required to be obtained from a veterinary practitioner shall be valid unless in issued by a person who is registered with the Council.
+(3) No person shall be entitled to recover any charge in any count of law for any vetro-legal advice or attendance, or for the performance of any oration, or for any medicine prescribed or supplied unless he is a registered veterinary practitioner.

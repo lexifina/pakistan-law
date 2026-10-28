@@ -1,0 +1,1 @@
+10. Non Pakistan veterinary qualifications in Second Schedule to be recognized:—The veterinary qualification granted by veterinary institutions outside Pakistan which are included in the Second Schedule shall be recognized veterinary qualifications for the proposes of this Act.

@@ -1,0 +1,5 @@
+SECOND SCHEDULE
+(See Section 10)
+RECOGNIZED VETERINARY QUALIFICATION GRANTED BY THE VETERINARY
+INSTITUTIONS ABROAD
+S.# Institutions Recognized Qualification Abbreviation For Registration 1. All state Universities of Doctor of Veterinary Medicine D.V.M America, Australia and Master of Sciences in Animal Health. MS (A.H.) Provincial University Canada Master of Animal Sciences M.S. (A.S.) Doctor of Philosophy in Animal Health. Ph.D. (A.H.) Doctor of Philosophy in Animal Sciences. Ph.D. (A.S.) 2. The College of Master of Science in Animal Health. M. Sc. (A.H) Veterinary surgeons, Member of Royal College of Surgeon. M.R.C.V.S London Fellow Royal College of Veterinary Surgeon F.R.C.V.S 3. Edinburgh University Master of Science in Tropical Animal Health. M. Sc. (T.A.H.) Centre of Tropical Diploma in Tropical Animal Health. D.T.A.H. Veterinary Medicine 4. James Cook University, Master of Science in Tropical Veterinary M. Sc. (T.V.Sc) Department of Tropical Veterinary Science. Science Townsvillce, Australia. 5. Facility of Veterinary Fellow Royal College of Veterinary M. Sc. (T.A.H) Science University of Agriculture, Surgeons. F.R.C.V.S. UPSSALA, Sweden.

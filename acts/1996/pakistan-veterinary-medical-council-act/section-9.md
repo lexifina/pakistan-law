@@ -1,0 +1,4 @@
+9. Recognition of Veterinary and Animal Husbandry qualifications granted by
+Veterinary Institutions in Pakistan:—(1) The qualifications granted by Veterinary Institutions in Pakistan which are included in the first Schedule shall be recognized Veterinary and Animal Husbandry qualifications for the purpose of this Act.
+(2) Any veterinary institution in Pakistan which grants a veterinary qualification not included in the First Schedule may apply to the Federal Government to have such qualification recognized, and the Federal Government after consulting the Council by notification in the official Gazette amend the First Schedule so as to include such qualification therein.
+(3) The notification referred to in sub-section (2) may also direct that an entry shall be made in the last column of the First Schedule against the veterinary qualification declaring that it shall be a recognized qualification only when granted after a specified date.

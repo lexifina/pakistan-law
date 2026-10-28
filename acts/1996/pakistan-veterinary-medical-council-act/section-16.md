@@ -1,0 +1,4 @@
+16. Maintenance of register:—(1) The Council shall maintain in the prescribe manner a register in which shall be entered the names and other particulars of persons possessing recognized veterinary qualifications whose applications for registration as veterinarian are from time to time granted by the Council.
+(2) Every application for registration under this Act shall be made to the Council in the prescribed from and be accompanied by the prescribed fee.
+(3) Every veterinarian registered under this Act shall be entitled to receive a certificate of registration from the Council.
+(4) A certificate of registration issued under sub-section (3) shall, subject to the provisions of this Act, remain in force until the thirty first day of December of the year in which it is issued and shall thereafter be renewable annually upon payment of the prescribed fee.
