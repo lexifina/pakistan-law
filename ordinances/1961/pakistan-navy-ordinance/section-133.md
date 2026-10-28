@@ -1,0 +1,4 @@
+133. Power of confirming authority to return the finding and sentence to the Court
+for revision. (1) Any finding or sentence of a court-martial may be revised by it by order of the confirming authority but only once ; and in the course of such revision, the court, if so directed by the confirming authority, may take additional evidence.
+(2) Except for the unavoidable absence of any of its members, the court, sitting in revision, shall consist of the same members as were present at the time of arriving at the finding or passing the sentence.
+(3) In the case of unavoidable absence of any of its members the cause whereof shall be duly recorded in the proceedings, the court shall proceed with the revision, unless the president himself is absent or the number of member present is less than the minimum required to constitute the Court under section 99 in which case the court shall be dissolved and the accused may be tried by a court-martial constituted afresh.

@@ -1,0 +1,1 @@
+156. Orders pending suspension. A confirming officer or an officer exercising powers of summary trial may, when a person has been sentenced to imprisonment or detention, direct that the offender be not committed to prison or to custody until the orders of the authority or officer specified in section 155 have been obtained.

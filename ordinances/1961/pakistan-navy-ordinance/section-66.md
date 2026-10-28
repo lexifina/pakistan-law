@@ -1,0 +1,2 @@
+## (xii) Miscellaneous offences
+66. Unauthorised disclosure of information. Every person subject to this Ordinance who without lawful authority wilfully discloses or purports to disclose whether orally, in writing, by signal or by any other means whatsoever, any information which has been entrusted in confidence to him or to which he has access owing to his position shall be liable to suffer short imprisonment.

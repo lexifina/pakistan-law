@@ -1,0 +1,3 @@
+134. Remedy against an order of court-martial before confirmation of finding or
+sentence. (1) Any person subject to this Ordinance who consider himself aggrieved by any order passed by a court-martial may at the conclusion of the trial and before confirmation of the finding of the sentence, present a petition to the confirming authority.
+(2) Before confirming any finding or sentence of a court-martial, the confirming authority shall take such steps as it considers necessary to satisfy itself of the correctness, legality and propriety of the order passed and of the regularity of the proceedings in which it was passed.

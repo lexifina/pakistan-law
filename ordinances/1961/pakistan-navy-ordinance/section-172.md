@@ -1,0 +1,2 @@
+172. Property in the hands of the Committee or the prescribed person not to be
+assets at the place where the Committee or the prescribed person is stationed. Any property coming under section 168 into the hands of the Committee or the prescribed person shall not, by reason of so coming, be deemed to be assets or effects at the place in which that Committee or the prescribed person is stationed and it shall not be necessary by reason thereof that representation be taken out in respect of that property for that place.

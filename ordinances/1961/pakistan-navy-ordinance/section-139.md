@@ -1,0 +1,1 @@
+139. Saving of functions of Judge Advocate-General. Nothing in this Chapter shall affect the powers and functions of the Judge Advocate-General in relation to the naval tribunals including his functions of considering and reporting on the proceedings of such tribunals.

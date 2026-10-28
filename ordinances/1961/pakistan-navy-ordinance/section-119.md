@@ -1,0 +1,2 @@
+119. Enrolment paper. (1) Any enrolment paper purporting to be signed by an enrolling officer shall, in any proceedings under this Ordinance, be evidence that the person enrolled gave the answer which he is therein represented to have given.
+(2) The enrolment of such person may be proved by the production of the original or a copy of his enrolment paper purporting to be certified to be a true copy by the officer having the custody of the enrolment paper.

@@ -1,0 +1,5 @@
+101. Quorum and dissolution of courts-martial. (1) If at any time after a court-martial has been sworn and before the president has signed the finding and sentence, if any, the president or the judge advocate dies or is otherwise unable to attend, the court shall be dissolved.
+(2) The proceedings of a court-martial shall be valid notwithstanding the absence of one or more of the members other than the president, so long as the number of members present throughout the proceedings is not reduced below the minimum required by this Ordinance to constitute the court; otherwise the court shall be dissolved.
+(3) Where any member is absent the court shall be adjourned, unless it is allowed to proceed without such member by the convening authority, in which case such member shall not at any subsequent stage sit on that court.
+(4) The officer who convened a court-martial may dissolve such court-martial, if it appears to him that the exigencies of the service or the necessities or discipline render it impossible or inexpedient to continue the trial.
+(5) Where a court-martial is dissolved under this section the accused may be tried by a court-martial constituted afresh.

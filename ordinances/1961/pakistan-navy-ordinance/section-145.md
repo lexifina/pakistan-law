@@ -1,0 +1,7 @@
+145. Interim custody of persons under sentence of [^112][stoning to death or] death,
+imprisonment or detention. (1) When a person is sentenced by a court-martial to suffer [^112][stoning to death or] death and the sentence has been confirmed, the commanding officer of such person, or such officer as may be prescribed may, if he thinks fit, by warrant in the prescribed form, commit the said person to safe custody in a civil prison pending the execution of the sentence, and may similarly, by warrant in the prescribed form direct that the person so committed be re-delivered to naval custody, or that he be released or confined in accordance with any order duly made under this Ordinance setting aside or varying the sentence of [^113][stoning to death or] death.
+(2) Any such warrant as aforesaid shall be sufficient authority for the execution of the orders contained therein.
+(3) A person sentenced under this Ordinance to imprisonment or detention may, until he reaches the prison or detention barracks in which he is to undergo his sentence, be kept in naval custody or in civil custody, or partly in one description of custody and partly in the other, and may, by order of such officer as may be prescribed, from time to time, be transferred from one to the other, as occasion may require.
+
+[^112]: Ins. by the Pakistan Navy (Amdt.) Ordinance, 1984 (37 of 1984), s. 24.
+[^113]: Subs. and ins. by the Pakistan Navy (Amdt.) Ordinance, 1984 (37 of 1984) s s. 25 and 26, for “imprisonment or detention”.

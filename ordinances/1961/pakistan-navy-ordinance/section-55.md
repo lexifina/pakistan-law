@@ -1,0 +1,2 @@
+## (viii) Other offences in respect of Ships and Aircraft
+55. Inaccurate certification. Every person subject to this Ordinance who makes or signs, without having ensured its accuracy, a certificate relating to any matter effecting the sea going or fighting efficiency of any of the naval ships or naval vessels, or any certificate relating to any of the Government’s aircraft or aircraft material, shall be liable to suffer short imprisonment.

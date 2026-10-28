@@ -1,0 +1,2 @@
+163. Effect of suspension and remission on dismissal. (1) Where in addition to any other sentence the punishment of dismissal has been awarded by a court-martial, and such other sentence is suspended under section 155, then, such dismissal shall not take effect until so ordered by the authority or officer specified in that section.
+(2) If such other sentence is remitted under section 159, the punishment of dismissal shall also be remitted.

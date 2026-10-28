@@ -1,0 +1,1 @@
+70. Unbecoming conduct by officers. Every officer subject to this Ordinance who behaves in a manner unbecoming his position and the character expected of him, shall be liable to be dismissed from the service.

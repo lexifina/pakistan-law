@@ -1,0 +1,1 @@
+41. Insubordinate behaviour. Every person subject to this Ordinance who uses threatening or insulting language to, or behaves with contempt to, his superior officer, shall, if such officer is at the time in the execution of his office or, if the offence is committed on active service, be liable to suffer long imprisonment, and in any other case to suffer short imprisonment.

@@ -1,0 +1,2 @@
+100. Judge Advocate.__(1) Every general court-martial shall, and every district or summary general court-martial may, be attended by a judge advocate, who shall be either an officer belonging to the department of the judge advocate General, or if no such officer is available, a fit person appointed by the convening officer.
+(2) No general court-martial, and no district or summary general court-martial to which a judge advocate has been appointed shall proceed with the trial in the absence of the judge advocate.
