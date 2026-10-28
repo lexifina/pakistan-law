@@ -1,0 +1,1 @@
+30. Offences to be non-cognizable.— Notwithstanding anything contained in the Code of Criminal Procedure, 1898,( Act V of 1898), every offence under this Act shall for the purposes of the said Code, be deemed to be non-cognizable.

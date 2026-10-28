@@ -1,0 +1,1 @@
+29. Cognizance of offences by courts.—No court or authority or officer shall take cognizance of any offence punishable under this Act or any regulations or under any bye-laws made thereunder, save on a complaint made in writing by the Authority.

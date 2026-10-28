@@ -1,0 +1,2 @@
+24. Handing book-entry securities without authority.—(1) A participant shall not handle or authorise or permit any handling of book-entry securities entered in the sub-accounts maintained under his account without authority of the sub-account holder.
+(2) A participant shall not, except with the authority of his clients, handle or authorise or permit any handling of book-entry securities beneficially owned by such clients and entered in his account.

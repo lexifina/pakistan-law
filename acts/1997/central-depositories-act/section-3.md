@@ -1,0 +1,1 @@
+3. Overriding effect.—The provisions of this Act shall have effect notwithstanding anything contained in the Companies Ordinance, 1984, or in any other law or in any charter, statute or memorandum or articles of association or in any applicable document or resolution.

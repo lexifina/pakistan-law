@@ -1,0 +1,1 @@
+36. Removal of difficulties.—If any difficulty arises in giving effect to any provisions of this Act, the Authority may by notification in the official gazette, make such provisions as may appear to it to be necessary for the purpose of removing such difficulty.

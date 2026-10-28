@@ -1,0 +1,2 @@
+6. Transfers under book‑entry system.—(1) Subject to the provisions of this Act, a transfer of book‑entry securities from accounts or sub‑accounts to other accounts or sub‑accounts shall be made in such manner as may be prescribed and shall be effected by making of an appropriate entry in the central depository register in accordance with such regulations.
+(2) A transfer of book‑entry securities in the manner set out in subsection (1) shall be valid and effective transfer of title to the securities represented by the book‑entry securities.
