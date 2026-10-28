@@ -1,0 +1,4 @@
+19G. Executors, etc., not paying full court-fee on probates, etc., within six months
+after discovery of underpayment. Where too low a court-fee has been paid on any probate or letters of administration in consequence of any mistake, or of its not being known at the time that some particular part of the estate belonged to the deceased, if any executor or administrator acting under such probate or letters does not, within six months [^32][***] after the discovery of the mistake or of any effects not known at the time to have belonged to the deceased, apply to the said Authority and pay what is wanting to make up the court-fee which ought to have been paid at first on such probate or letters, he shall forfeit the sum of one thousand rupees and also a further sum at the rate of ten rupees per cent. on the amount of the sum wanting to make up the proper court-fee.
+
+[^32]: Rep. by the Amending Act, 1891 (XII of 1891), s. 2 and 1st Sch.

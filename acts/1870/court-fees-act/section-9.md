@@ -1,0 +1,2 @@
+9. Power to ascertain net profits or market-value. If the Court sees reason to think that the annual net profits or the market-value of any such land, house or garden as is mentioned in section 7, paragraphs 5 and 6, have or has been wrongly estimated, the Court may, for the purpose of computing the fee payable in any suit therein mentioned, issue a commission to any proper person directing him to make such local or other investigation as may be necessary, and to report thereon to the Court.
+________________________________________________________________________________
