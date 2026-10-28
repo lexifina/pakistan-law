@@ -1,0 +1,1 @@
+6. Entries in the service book. The employer shall at the commencement of the employment and during the continuance of the same make such entries therein from time to time as are required by this Act and the rules made thereunder and he and the employee shall sign the entries as they are made.

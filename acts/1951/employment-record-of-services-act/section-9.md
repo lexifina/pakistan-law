@@ -1,0 +1,1 @@
+9. Cognizance of offences. No court shall take cognizance of an offence punishable under this Act unless previous sanction for prosecution has been accorded on the prescribed form by the Labour Commissioner and except upon complaint by any public servant or by a person authorised in this behalf by the Labour Commissioner in writing on the said form.
