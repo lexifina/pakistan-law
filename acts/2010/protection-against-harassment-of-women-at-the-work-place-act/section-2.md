@@ -1,0 +1,31 @@
+2. Definitions. In this Act, unless there is anything repugnant in the subject or context—
+(a) “accused” means an employee or employer of an organization against whom complaint has been made under this Act;
+(b) “CBA” means Collective Bargaining Agent as provided in the Industrial Relations Act, 2008 (IV of 2008) or any other law for the time being in force.
+(c) “Code” means the Code of Conduct as mentioned in the Schedule to this Act;
+(d) “Competent Authority” means the authority as may be designated by the management for the purposes of this Act;
+(e) “complainant” means [^1][any person] who has made a complaint to the [^1][Ombudsperson] or to the Inquiry Committee on being aggrieved by an act of harassment [^1][and shall include a former employee who has been removed or dismissed from service or has resigned, and a parent or guardian where the complainant is a minor];
+[^1][(f) “employee” includes a regular, contractual, piece-rate, gig, temporary, part-time, freelance employee whether employed through express or implied contract on daily, weekly, monthly or hourly basis, and shall include a student, a performer, an artist, a sportsperson, an intern, trainee, a domestic worker, a home-based worker or an apprentice whether working for remuneration or not, or whether working on a voluntary basis or otherwise;]
+(g) “employer” in relation to an organization, means any person or body of persons whether incorporated or not, who or which employs workers in an organization under a contract of employment or in any other manner whosoever and includes—
+(i) an heir, successor or assign, as the case may be, of such person or, body as aforesaid;
+(ii) any person responsible for the direction, administration, management and control of the management;
+(iii) the authority, in relation of an organization or a group of organizations run by or under the authority of any Ministry or department of the Federal Government or a Provincial Government, appointed in this behalf or, where no authority is appointed, the head of the Ministry or department as the case may be;
+(iv) the office bearer, in relation to an organization run by or on behalf of the local authority, appointed in this behalf, or where no officer is so appointed, the chief executive officer bearer of that authority;
+(v) the proprietor, in relation to any other organization, of such organization and every director, manager, secretary, agent or office bearer or person concerned with the management of the affairs thereof;
+(vi) a contractor or an organization of a contractor who or which undertakes to procure the labour or services of employees for use by another person or in another organization for any purpose whatsoever and for payment in any form and on any basis whatsoever; [^2][*]
+(vii) Office bearers of a department or a Division of a Federal or a Provincial or local authority who belong to the managerial, Secretarial or directional cadre or categories of supervisors or agents and those who have been notified for this purpose in the official Gazette;
+[^2][(viii) person discharging any contractual obligations with respect to his employees and expressly or impliedly procures the services or labour of persons whether as freelancers or part-time employees;
+(ix) a person who owns or manages an online or customer to customer or business to customer or any other virtual or remote business; and
+(x) in relation to a dwelling place or house, a person or a household who employs or benefits from the employment of home-based workers, irrespective of the number, time period or type of such worker employed, or the nature of the employment or activities performed by the home-based worker;]
+[^2][(h) “harassment” means:—
+(i) any unwelcome sexual advance, request for sexual favours, stalking or cyber stalking or other verbal, visual or written communication or physical conduct of a sexual nature or sexually demeaning attitudes, including any gestures or expression conveying derogatory connotation causing interference with work performance or creating an intimidating, hostile or offensive work environment, or the attempt to punish the complainant for refusal to comply to such a request or is made a condition for employment; or
+(ii) discrimination on basis of gender, which may or may not be sexual in nature, but which may embody a discriminatory and prejudicial mind set or notion, resulting in discriminatory behavior on basis of gender against the complainant;]
+(i) “Inquiry Committee” means the Inquiry Committee established under subsection (1) of section 3;
+(j) “management” means a person or body of persons responsible for the management of the affairs of an organization and includes an employer;
+[^3][(k) “Ombudsperson” means the Ombudsperson appointed under Section 7;]
+(1) “organization” means a Federal or Provincial Government Ministry, Division or department, a corporation or any autonomous or semi autonomous body, Educational Institutes, Medical facilities established or controlled by the Federal or Provincial Government or District Government or registered civil society associations or privately managed a commercial or an industrial establishment or institution, a company as defined in the [^3][Companies Act, 2017 (Act No. XIX of 2017)] and includes any other registered private sector organization or institution [^3][or online business];
+(m) “Schedule” means Schedule annexed to this Act; and
+[^3][(n) “workplace” means the place of work or any place where services are rendered or performed by professionals, including educational institutions, gigs, concerts, studios, performance facilities, courts, highways, sporting facilities and gymnasiums, and shall include any building, factory, open area or a larger geographical area, where the activities of the organization or of employer are carried out and includes any situation that is linked to work or activity outside the office.]
+
+[^1]: Subs. and Ins. by Protection against Harassment of women at the Workplace (Amendment) Act, 2022 (V of 2022), s. 2
+[^2]: Omitted, Added and Subs. by Protection against Harassment of women at the Workplace (Amendment) Act, 2022 (V of 2022), s. 2
+[^3]: Subs. and Ins. by Protection against Harassment of women at the Workplace (Amendment) Act, 2022 (V of 2022), s. 2
