@@ -1,0 +1,1 @@
+30D. Extension of affiliation. Where an educational institution desires to add to the courses of instruction in respect of which it is affiliated, the procedure prescribed for affiliation of educational institutions shall, so far as may be, be followed.

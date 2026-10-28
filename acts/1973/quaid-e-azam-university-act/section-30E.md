@@ -1,0 +1,3 @@
+30E. Inspection and report.—(1) Every educational institution affiliated to the University shall furnish such reports, returns and other information as the University may require to enable it to judge the efficiency of the educational institution.
+(2) The University shall cause every such educational institution to be inspected from time to time by one or more competent persons authorized by it in this behalf.
+(3) The University may call upon any educational institution affiliated to it to take, within a specified period, such action as may appear to the University to be necessary in respect of any of the matters referred to in sub-section (1) of section 30B.
