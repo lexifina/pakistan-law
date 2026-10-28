@@ -1,0 +1,1 @@
+11. Ordinance to override other laws, etc.____This Ordinance, shall have effect notwithstanding anything contained in any other law for the time being in force, or in any agreement, contract, decree, order or any other instrument whatsoever.

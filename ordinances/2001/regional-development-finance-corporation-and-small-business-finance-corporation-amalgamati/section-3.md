@@ -1,0 +1,1 @@
+3. Amalgamation of the RDFC and SBFC—Within ninety days of the promulgation of this Ordinance, the Federal Government shall, in consultation with the R.D.F.C. and S.B.F.C: and their shareholders, prepare a scheme for the amalgamation of the R.D.F.C. and S.B.F.C. into a company.

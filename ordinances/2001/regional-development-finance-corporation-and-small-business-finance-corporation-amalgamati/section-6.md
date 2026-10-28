@@ -1,0 +1,3 @@
+6. Continuation of taking deposits and other business.___(1) Notwithstanding anything contained in any other law for the time being in force, the company shall take and maintain existing deposits, continue, lending and any other business which were being undertaken by the R.D.F.C. and S.B.F.C., respectively, without prejudice to its application to the State Bank of Pakistan for a licence to transact banking business.
+(2) The company shall be authorised to use the word “bank” or any of its derivatives as a part of its name.
+Explanation.—For the purposes of this section the expression “existing deposits” means deposits received by the company as part of the transfer.
