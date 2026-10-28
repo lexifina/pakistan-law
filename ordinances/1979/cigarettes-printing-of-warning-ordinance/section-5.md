@@ -1,0 +1,2 @@
+5. Penalties.—(1) Whoever contravenes any provision of Section 4 shall be punishable with imprisonment for a term which may extend to two years, or with fine which may extend to ten thousand rupees, or with both.
+(2) Where a Court convicts a person of an offence punishable under sub-section (1), it shall direct that the packets of cigarettes and the cigarettes in respect of which the offence has been committed be forfeited to the Federal Government.

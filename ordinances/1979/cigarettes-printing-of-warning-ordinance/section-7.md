@@ -1,0 +1,2 @@
+7. Cognizance of offences.—(1) No Court inferior to that of a Magistrate of the First Class shall try any offence punishable under this Ordinance.
+(2) No Court shall take cognizance of an offence punishable under this Ordinance except on a complaint made in writing by a police officer not below the rank of an Assistant Sub-Inspector or an Excise Officer not below the rank of an Sub-Inspector or any other officer authorised in this behalf by the Federal Government.
