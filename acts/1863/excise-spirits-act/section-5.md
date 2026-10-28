@@ -1,0 +1,1 @@
+5. Penalty how levied. Any penalty imposed under either of the last two preceding sections may in case of non-payment be levied by distress and sale of the goods and chattels of the offender, by warrant under the hand of the officer by whom such penalty was imposed.

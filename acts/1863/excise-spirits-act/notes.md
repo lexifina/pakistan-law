@@ -1,0 +1,5 @@
+[^1]: Short title given by the Short Titles Act, 1897 (14 of 1897). For Statement of Objects and Reasons, see Calcutta Gazette, 1862, p. 4063, and for Proceedings in Council relating to the Bill, see ibid., Supplement, p. 449; and ibid., 1863, p. 106. The Act was declared to be in force in all the Provinces and the Capital of the Federation, except the Scheduled Districts, by the Laws Local Extent Act, 1874 (15 of 1874), s. 3. The Act was repealed:— in Bombay by the Bombay Abkari (Amdt.) Act, 1912 (Bom. 12 of 1912); in the Punjab, by the Punjab Excise Act, 1914 (Pun. 1 of 1914). This Act has been extended and shall be deemed to have been so extended to the whole of Pakistan on the 14th day of October, 1955, by Ord. 21 of 1960, s. 3 and 2nd Sch.
+[^2]: Subs. ibid., for “the Province and the Capital of the Federation”, which was subs. for “British India” by A. O., 1949, Arts. 3(2) and 4.
+[^3]: Subs. for “calculated at ten” by s. 6 of Act 8 of 1894.
+[^4]: Ins. By A.O., 1937.
+[^5]: The words “Central Government”, which were previously subs. by A.O., 1937 for “L.G.”, have been subs. by F.A.O., 1975 (4 of 1975), Art.2 and Sch., to read as above.

@@ -1,0 +1,1 @@
+3. Penalty for breach of such rules. Every person who shall willfully contravene any rule prescribed by the Board of Revenue, or other authority as aforesaid, under the last preceding section of this Act, shall be liable on conviction before any officer exercising the powers of a Magistrate to a penalty not exceeding five hundred rupees for every such offence.

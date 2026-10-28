@@ -1,0 +1,2 @@
+6. In case of non-payment of penalty, offender may be detained pending return to
+distress warrant. In case any such penalty shall not be forthwith paid, any such officer may order the offender to be apprehended and detained in safe custody, until the return can be conveniently made to such warrant of distress, unless the offender shall give security to the satisfaction of such officer for his appearance at such place and time as shall be appointed for the return of the warrant of distress.
