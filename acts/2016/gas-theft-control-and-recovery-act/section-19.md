@@ -1,0 +1,1 @@
+19. Penalty for maliciously wasting gas or injuring works.—Whoever maliciously causes gas to be diverted or, with intent to cut off the supply of gas, cuts or injures or attempts to cut or injure any pipeline or works shall be punishable with imprisonment for a term which may extend to seven years or with a fine which may extend to five million rupees, or with both.
