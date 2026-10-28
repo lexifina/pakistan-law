@@ -1,0 +1,1 @@
+3. Interpretation clause. In this Act the word “ferry” includes also a bridge of boats, pontoons or rafts, a swing-bridge, a flying-bridge and a temporary bridge, and the approaches to, and landing-places of, a ferry.

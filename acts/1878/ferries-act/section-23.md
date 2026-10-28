@@ -1,0 +1,1 @@
+23. Penalty for breach of rule made under sections 12 and 19. Every person breaking any rule made under section 12 or section 19 shall be punished with imprisonment for a term which may extend to six months, or with fine which may extend to two hundred rupees, or with both.

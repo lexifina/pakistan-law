@@ -1,0 +1,1 @@
+9. Recovery of arrears from lessee. All arrears due by the lessee of the tolls of a public ferry on account of his lease may be recovered from the lessee or his surety (if any) by the Magistrate of the district in which such ferry is situate as if they were arrears of land-revenue.

@@ -1,0 +1,5 @@
+33. Similar power in cases of emergency.- When any boats or their equipment or any materials or appliances suitable for setting up a ferry, are emergently required for facilitating the transport of officers, or troops of [^42][Pakistan] on duty, or of any other persons on the business of [^42][Government], or of any animals, vehicles or baggage belonging to such officers, troops or persons or of any property of [^42][Government], the Magistrate of the district may take possession of and use the same (paying such compensation for the use thereof as [^43][the [^44][Federal Government], where the transport is in connection with the affairs of the [^44][Federal Government] and the Provincial Government in other cases], may in each case direct) until such transport is completed.
+
+[^42]: Subs. by A.O., 1961, Art. 2 and Sch. for “Her Majesty” (with effect from the 23rd March, 1956).
+[^43]: Subs. by A.O., 1937, for “the LG.”.
+[^44]: Subs. by F.A.O., 1975, Art. 2 and Table, for “Central Government”.

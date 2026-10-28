@@ -1,0 +1,1 @@
+27. Fines payable to lessee. Where the tolls of any public ferry have been let under the provisions herein before contained, the whole or any portion of any fine realised under section 25 or section 26 may, notwithstanding anything contained in section 17, be at the discretion of the convicting Magistrate or Bench of Magistrates, paid to the lessee.
