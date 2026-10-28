@@ -1,0 +1,1 @@
+13. Power to make rules.- The Federal Government may, on recommendations of the central authority and by notification in the official Gazette, make rules for the purpose of implementation of this Act.
