@@ -1,0 +1,1 @@
+6. Board of Governors.__ The general direction and superintendence of the affairs of the Institute shall vest in the Board constituted under this Act, which may exercise all powers and do all acts and things which may be exercised or done by the Institute.
