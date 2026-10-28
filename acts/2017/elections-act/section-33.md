@@ -1,0 +1,2 @@
+33. Enquiry into claims and objections.—(1) Except where a claim or objection or an application for correction is rejected under section 30 or is decided without further enquiry being valid prima facie, the Revising Authority shall give its decision after holding a summary enquiry into each claim, objection or application, after giving notice to the parties concerned.
+(2) The decision of the Revising Authority under sub-section (1) shall be final and shall be communicated to the appropriate Registration Officer.

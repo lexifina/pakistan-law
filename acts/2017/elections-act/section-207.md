@@ -1,0 +1,2 @@
+207. Functioning of a political party.—(1) A political party shall have an elected general council at the Federal, Provincial and local levels, wherever applicable, and by whatever name it may be referred.
+(2) A political party shall, at least once in a year, convene a general meeting at the Federal, Provincial and local level of a political party, wherever applicable, and shall invite the members of the political party or their delegates to participate in the general meeting.

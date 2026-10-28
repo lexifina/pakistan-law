@@ -1,0 +1,2 @@
+229. Application of provisions to local government election.—(1) Subject to this Chapter and the Rules relating to conduct of local government elections, election disputes, election offences and allocation of symbols, the provisions of Chapter V, Chapter IX, Chapter X and Chapter XII of this Act, as nearly as possible, shall apply to the conduct of local government election.
+(2) The qualifications and disqualification of a candidate in a local government election or a Member of a local government shall be decided under the applicable local government law.

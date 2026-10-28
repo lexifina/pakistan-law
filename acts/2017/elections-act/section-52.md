@@ -1,0 +1,1 @@
+52. Dates of appointments.— The Commission shall make appointments under sections 50 and 51 at least sixty days prior to the issuance of Election Programme save for bye-elections or in exceptional circumstances for reasons to be recorded, in which cases the Commission shall make the appointments simultaneously with the issuance of the Election Programme.

@@ -1,0 +1,2 @@
+49. Departure from normal procedure in exceptional circumstances.— (1)Where the Commission is satisfied that it is not possible to follow the procedure laid down for the preparation or revision of an electoral roll in respect of any electoral area, the Commission may, after recording the exceptional circumstances necessitating deviation from the laid down procedure, direct that an electoral roll for such electoral area shall be prepared in such manner as it deems fit.
+(2) The Commission shall immediately publish the direction issued under sub-section (1) on its website.

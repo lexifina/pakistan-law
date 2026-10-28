@@ -1,0 +1,3 @@
+227. Notification of election and a vacancy.—(1) The Commission shall notify every election or a vacancy occurred due to death, resignation, disqualification, and removal of a Member of a local government and publish the same in the official Gazette.
+(2) Any Government, under whom a vacancy of a Member of a local government occurs due to any cause, shall immediately inform the Commission about occurrence of the vacancy.
+Explanation.—For purposes of this section, the elected Member also includes Chairman, Vice- Chairman, Mayor, Deputy Mayor or, as the case may be, Nazim or Naib Nazim of a local government.

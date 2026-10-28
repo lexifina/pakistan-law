@@ -1,0 +1,1 @@
+28. Preliminary publication.—The preliminary electoral rolls prepared under section 26, together with a notice inviting claims, objections and applications for corrections, if any, with respect thereto, shall be published and displayed by the Registration Officer for a period of not less than thirty days, in such manner and form as may be prescribed.

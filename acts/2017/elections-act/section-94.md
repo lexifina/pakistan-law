@@ -1,0 +1,4 @@
+94. Voting by Overseas Pakistanis.— [^29][(1) The Commission may conduct pilot projects for voting by Overseas Pakistanis in Bye-elections to ascertain the technical efficacy, secrecy, security and financial feasibility of such voting and shall share the results with the Government, which shall, within fifteen days from the commencement of a session of a House after the receipt of the report, lay the same before both Houses of Majlis-e-Shoora (Parliament).]
+(2) In this section, ‘Overseas Pakistani’ means a citizen of Pakistan under the Pakistan Citizenship Act, 1951 (II of 1951) or holder of National Identity Card for Overseas Pakistanis under the National Database and Registration Authority ordinance, 2000 (VIII of 2000) who is working or residing abroad permanently or temporarily for not less than six months.
+
+[^29]: Subs. by Act No. X of 2022, s. 3.

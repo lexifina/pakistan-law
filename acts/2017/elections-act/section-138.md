@@ -1,0 +1,1 @@
+138. Publication of statement of assets and liabilities.—The Commission shall publish in the official Gazette the statements of assets and liabilities received by it under section 137 and any person may obtain copies of a statement of assets and liabilities on payment of prescribed fee.

@@ -1,0 +1,2 @@
+41. Maintenance of electoral rolls.— (1) An electoral roll as revised and corrected shall be maintained by the Registration Officer in the prescribed manner and shall be kept open to public inspection; and any person, on payment of prescribed fee, may obtain copies of the electoral roll.
+(2) A candidate or an election agent may obtain a hard and searchable soft copy of the final electoral roll with photographs of the voters in accordance with section 79.

@@ -1,0 +1,4 @@
+58. Alteration in Election Programme.— [^16][(1) Subject to the Constitution, Notwithstanding anything contained in section 57, the Commission may, at any time after the issuance of the notification under sub-section (1) of that section, make such alterations in the election programme announced in that notification for different stages of the election or may issue a fresh election programme with fresh poll date or dates as may, in its opinion to be recorded in writing, be necessary for the purposes of this Act.]
+(2) Save as otherwise provided by law, if a candidate has already submitted his nomination papers before the notification under sub-section (1), he shall not be required to again submit his nomination papers under the fresh Election Programme.
+
+[^16]: Subs. by Act No. XXXV of 2023, s. 3.

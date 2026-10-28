@@ -1,0 +1,3 @@
+91. Statement about turnout of women voters.— (1) The Presiding Officer shall prepare a gender disaggregated statement of voters showing total number of men and women voters at the polling station and the total votes cast by men and women voters.
+(2) The Presiding Officer shall send the gender disaggregated statement of voters to the Returning Officer and to the Commission at the time of communication of result to the Returning Officer and the Commission.
+(3) The Presiding Officer may, at any stage on the polling day during or after the polling, prepare and send a special report to the Returning Officer and to the Commission if he has reason to believe that women voters have been restrained from exercising their right to vote based on any express or implied agreement.

@@ -1,0 +1,1 @@
+235. Absence of candidates not to invalidate acts.—Where any act or thing is required or authorized by this Act to be done in the presence of the candidate, an election agent or a polling agent, the failure of such person to attend at the time and place fixed for the purpose shall not invalidate any act or thing otherwise validly done.

@@ -1,0 +1,18 @@
+99. Documents to be retained by the Commission.— (1) The Returning Officer shall seal the tamper-evident bags provided to him for the purpose after putting in the bags the following documents—
+(a) the packets containing the ballot papers each of which shall be sealed with the seal of the Presiding Officer or, if opened by the Returning Officer, with the seal of the Returning Officer;
+(b) the packets containing the counterfoils of issued ballot papers;
+(c) the packets containing the marked copies of the electoral rolls used in the poll;
+(d) the packets containing the Ballot Paper Account;
+[^32][(da) the packets containing results of the count, provisional and final consolidated statement of results of the count and final consolidated results;]
+(e) the packets containing the Tendered Ballot Papers included in the count; the Tendered Ballot Papers excluded from the count; the Tendered Votes List, and the Challenged Ballot Papers included in the count; the Challenged Ballot Papers excluded from the count; the Challenged Votes List; and the Spoilt Ballot Papers; and
+(f) such other papers as the Commission may direct.
+Explanation.―“Tamper-evident bag” means a specially designed bag approved by the Commission, having one or more indicators which, if breached, can reasonably be expected to provide visible evidence that tampering has occurred.
+(2) The Returning Officer shall, in accordance with such procedure as may be prescribed, before sealing the bags under sub-section (1), endorse in each packet the description of its contents, the date of the election to which the contents relate and the name and number of the constituency for which the election was held and shall furnish a certificate to the Commission that the provisions of sub-sections (1) and (2) have been complied with in respect of packets relating to all polling stations of the constituency.
+(3) The Commission shall arrange storage space under its control at appropriate places for safe custody of tamper-evident sealed bags containing the documents specified in sub-section (1) pertaining to all constituencies.
+(4) Till arrangements of storage space are made, the sealed bags shall be deposited in the Treasury or Sub-Treasury and the Treasury Officer or, as the case may be, Sub-Treasury Officer shall ensure safety and security of these bags and if any of the bags in his custody is subsequently found damaged or tampered with, the Commission shall order an enquiry against the Treasury Officer or Sub-Treasury Officer to determine the causes of damage or tampering.
+(5) If as a result of enquiry held under sub-section (4), the Treasury Officer or Sub-Treasury Officer is found guilty of negligence or a willful act, the competent authority on complaint of the Commission shall proceed against the Treasury Officer or Sub-Treasury Officer for breach of official duty.
+(6) If upon opening of the tamper-evident sealed bag under the order of the Commission, or as the case may be, the Election Tribunal, any of the packets containing documents specified in sub-section (1) is found to have been tampered with, the Returning Officer, or, the Presiding Officer with whose seal the packet was sealed shall be dealt with in accordance with the provisions relating to breach of official duty.
+(7) The Commission shall retain the documents contained in the packets deposited under sub-section (4) for a period of one year from the date of their deposit and shall thereafter, subject to any order of the Tribunal or other Court, cause them to be destroyed:
+Provided that the documents of a constituency where election petition has been filed by a candidate shall be retained till final disposal of the election petition.
+
+[^32]: Ins. by Act No. XLIV of 2023, s. 23.

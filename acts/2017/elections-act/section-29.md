@@ -1,0 +1,1 @@
+29. Appointment of Revising Authorities.—The Commission shall appoint a Revising Authority for any electoral area or group of electoral areas, for the purpose of receiving and deciding claims, objections and applications for correction of the preliminary electoral rolls.

@@ -1,0 +1,17 @@
+## CHAPTER VI
+## ELECTION TO RESERVED SEATS IN AN ASSEMBLY
+104. Party lists for reserved seats.—(1) [^34][Notwithstanding anything contained in this Act or any other law for the time being in force or any judgement, decree or order of any court including the Supreme Court and a High Court, for the] purpose of election to seats reserved for women and non- Muslims in an Assembly, the political parties contesting election for such seats shall, within the period fixed by the Commission for submission of nomination papers, file separate lists of their candidates in order of priority for seats reserved for women and non-Muslims with the Commission or, as it may direct, with the Provincial Election Commissioner or other authorized officer of the Commission, who shall forthwith cause such lists to be published for information of the public:
+Provided that the list submitted by a political party shall not be subject to change or alteration either in the order of priority or through addition of new names in the list or omission of any name after expiry of the date of submission of nomination papers [^34][:]
+[^34][Provided further that if any political party fails to submit its list for reserved seats within the aforesaid prescribed time period, it shall not be eligible for the quota in the reserved seats at later stage.]
+(2) The parties’ lists referred to in sub-section (1) may contain as many names of additional candidates as a political party may deem necessary for contesting seats reserved for women and non- Muslims, to provide for any disqualification of candidates during scrutiny of nomination papers or for filling of any vacant seats during the term of an Assembly.
+(3) A candidate to a seat reserved for women or non-Muslims shall file the nomination papers on the Form on or before the last date fixed for filing of nomination papers for the election and the nomination papers shall, as nearly as possible, be scrutinized in the same manner as nomination papers of candidates on general seats are scrutinized under section 62.
+(4) If, at any time, the party list is exhausted, the political party may submit a name for any vacancy which may occur thereafter and the provisions of sub-sections (1), (2) and (3) shall, as nearly as possible, apply to fill such vacancy.
+(5) Where a seat reserved for women or non-Muslims in an Assembly falls vacant as a result of death, resignation or disqualification of a Member, it shall be filled in by the next person in order of precedence from the party‘s list of candidates submitted to the Commission under sub-section (1).
+(6) Before notifying the name of the next person in order of priority from the party list, such person shall submit a declaration on oath that since the filing of his nomination paper, he has not become subject to any disqualification contained in Article 63.
+(7) A candidate contesting election on a seat reserved for women or non-Muslims shall, along with the nomination papers and its annexures, submit to the Returning Officer appointed by the Commission in this behalf—
+(a) a copy of the party list of the candidate’s political party for such seats;
+(b) declarations and statements in support of the nomination; and
+(c) proof of deposit of the fee required for filing nomination papers.
+(8) Where there is equality of share on a reserved seat between two or more political parties, the Returning Officer shall declare the returned candidate by drawing of lots.
+
+[^34]: Subs. and added by Act No. XV of 2024, s. 3.

@@ -1,0 +1,3 @@
+116. Death of a candidate after nomination.—(1) If a validly nominated candidate who has not withdrawn his candidature dies before the day for taking of the poll, the Returning Officer shall, by public notice, terminate the proceedings for election to the category of seats for which he had filed the nomination papers and make a report to the Commission.
+(2) Where the proceedings relating to an election have been terminated under sub-section (1), proceedings for fresh election shall be commenced in accordance with the provisions of this Act as if for a new election:
+Provided that it shall not be necessary for other contesting candidates who have already filed nomination papers to file fresh nomination papers or make a further deposit under section 111.

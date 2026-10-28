@@ -1,0 +1,5 @@
+106. Functions of Returning Officer.—(1) A Returning Officer shall effectively conduct an election under this Act and the Rules.
+(2)A Returning Officer shall exercise all necessary powers for maintaining order at the polling station and shall report to the Commission any fact or incident which may affect the conduct or fairness of the poll.
+(3)The Returning Officer may, during the course of the poll, entrust to a Polling Officer such of his functions as may be specified by him; and it shall be the duty of the Polling Officer to perform the functions so entrusted.
+(4)The Returning Officer shall authorize one of the Polling Officers to act in his place if he is, at any time during the poll by reason of illness or other cause, not present at the polling station or is unable to perform his functions.
+(5)The Returning Officer may, at any time during the poll and, for reasons to be recorded in writing, suspend any Polling Officer and make such arrangements as he may consider necessary for the performance of the functions of the Polling Officer so suspended.

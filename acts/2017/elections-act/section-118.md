@@ -1,0 +1,6 @@
+118. Uncontested election.—[^39][(1) Where, after scrutiny of nomination papers or withdrawal under section 115, the number of validly nominated candidates or, as the case may be, the contesting candidates from a Province or Islamabad Capital Territory is less than or equal to the number of seats to be filled for that Province or Islamabad Capital Territory, as the case may be, the Returning Officer shall, by public notice, declare such candidates to be elected to the seats and send a return of election to the Commission.]
+(2) The Returning Officer shall not declare any candidate elected uncontested under sub-section (1) until the period appointed for filing of appeal against the decision of scrutiny of nomination papers has expired and where an appeal is filed, until the disposal of the appeal.
+(3) The Commission shall publish in the official Gazette the names of the returned candidates.
+(4) Where the number of candidates declared elected under sub-section (1) is less than the number of seats to be filled, fresh proceedings shall be commenced in accordance with the provisions of this Act, as if for a new election, to fill the vacant seat or seats.
+
+[^39]: Subs. by Act No. XLIV of 2023, s. 29.

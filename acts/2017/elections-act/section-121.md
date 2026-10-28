@@ -1,0 +1,3 @@
+121. Adjourned poll.—(1) If at any time the poll is interrupted or obstructed for reasons beyond the control of the Returning Officer, he may stop the poll and shall inform the Commission of his having done so.
+(2) Where a poll is stopped under sub-section (1), the Returning Officer shall immediately report the circumstances to the Commission and appoint, with the approval of the Commission, a day for a fresh poll and fix the place at which, and the hours during which such fresh poll shall be taken.
+(3) All voters shall be allowed to vote at the fresh poll taken under sub-section (2) and a vote cast at the poll stopped under sub-section (1) shall not be counted.

@@ -1,0 +1,2 @@
+222. Appointment of Delimitation Committee.—(1) The Commission shall appoint a Delimitation Committee for each district for delimitation of constituencies of the local governments in the district, including union councils, wards within a union council, or wards in municipal committees.
+(2) Revenue or other executive officers posted in the district shall provide necessary assistance to the Delimitation Committee in carrying out delimitation of constituencies of the local governments in the district.

@@ -1,0 +1,3 @@
+223. Appointment of Delimitation Authority.—(1) The Commission shall appoint from amongst its own officers or from the officers of the subordinate judiciary a Delimitation Authority for each district to hear and decide the objections against the delimitation carried out by the Delimitation Committee.
+(2) An officer of the subordinate judiciary shall be appointed as Delimitation Authority in consultation with the Chief Justice of the High Court concerned.
+(3) A voter may, within fifteen days of the delimitation of constituencies by the Delimitation Committee, file objections against the delimitation before the Delimitation Authority which shall decide the objections within thirty days from the date of delimitation of constituencies by the Delimitation Committee.

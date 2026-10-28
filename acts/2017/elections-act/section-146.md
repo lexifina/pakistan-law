@@ -1,0 +1,3 @@
+146. Appearance before Election Tribunal.—(1) Any appearance, application or act before an Election Tribunal may be made or done by a party in person or by an advocate or any other person entitled or allowed to plead in a civil court and duly appointed to act on his behalf:
+Provided that the Tribunal may, where it considers it necessary, direct any party to appear in person.
+(2) If a respondent fails to appear before the Election Tribunal on a date of hearing despite service of notice through any one of the modes mentioned in section 145, the Tribunal shall proceed against the respondent ex-parte.

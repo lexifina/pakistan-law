@@ -1,0 +1,1 @@
+237. Protection of actions taken in good faith.—No suit, prosecution or other legal proceeding shall lie against the Commission, the Commissioner or an election official or other person in respect of anything which is done in good faith or intended to be done under or in pursuance of this Act or of any rule or order made or any direction given under the law.

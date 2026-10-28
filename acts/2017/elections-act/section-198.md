@@ -1,0 +1,1 @@
+198. Punishment not in derogation of any other liability.—Any punishment imposed on any person for an offence punishable under this Chapter shall be in addition to, and not in derogation of, any liability incurred by such person under any other provision of this Act.

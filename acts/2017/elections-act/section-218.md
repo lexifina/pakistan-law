@@ -1,0 +1,4 @@
+218. Symbol disputed by a political party.—(1) If a political party fulfils the requirement of sections 208, 209 and 210 and a symbol is allocated to it by the Commission, the Returning Officer shall allocate such symbol to the candidate nominated by that political party.
+(2) A political party shall have the right to claim the allocation of the same symbol as allocated to it in any previous election.
+(3) A political party shall also be given preference for allocation of a particular symbol if such symbol was allocated to it in a previous election before entering into an alliance with other political parties.
+(4) In case the same symbol was allocated to a combination of political parties at the last election and two or more component political parties apply for the same symbol for the next election, the allocation of that symbol to any one political party shall be decided by drawing of lots.

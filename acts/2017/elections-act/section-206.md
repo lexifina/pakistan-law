@@ -1,0 +1,1 @@
+206. Selection for elective offices.—A political party shall make the selection of candidates for elective offices, including membership of the Majlis-e-Shoora (Parliament) and Provincial Assemblies, through a transparent and democratic procedure and while making the selection of candidates on general seats shall ensure at least five per cent representation of women candidates.

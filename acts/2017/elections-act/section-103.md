@@ -1,0 +1,3 @@
+[^33][103. Electronic voting and biometric verification.—The Commission may conduct pilot projects for utilization of electronic voting machines and biometric verification system in Bye-elections in addition to the existing manual procedures for voter verification, casting and counting of votes to assess the technical efficacy, secrecy, security and financial feasibility of the electronic voting machines and biometric verification system and shall share the results with the Government, which shall, within fifteen days from the commencement of a session of a House after the receipt of the report, lay the same before both Houses of Majlis-e-Shoora (Parliament).]
+
+[^33]: Subs. by Act No. X of 2022, s. 4.

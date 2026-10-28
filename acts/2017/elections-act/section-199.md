@@ -1,0 +1,1 @@
+199. Provisions of the Code to apply.—In the matters relating to reporting, investigation, summons, warrants, enquiry, trial of an offence or other ancillary matters where any provision or any sufficient provision does not exist in this Act or the Rules, the provisions of the Code shall apply in the matter.

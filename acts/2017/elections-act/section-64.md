@@ -1,0 +1,3 @@
+64. Publication of list of candidates.— (1) The Returning Officer shall, after the scrutiny of nomination papers, prepare and display in the prescribed manner a list of validly nominated candidates.
+(2) In case an appeal against the decision of the Returning Officer is accepted by the Appellate Tribunal, the Returning Officer shall revise the list of validly nominated candidates accordingly.
+(3) The Returning Officer shall, on the second day following the last date for decision of appeals by the Appellate Tribunal, prepare and display in the prescribed manner the revised list of validly nominated candidates.
