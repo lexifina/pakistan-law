@@ -1,0 +1,6 @@
+[^9][4. Penalty for practising phooka.___(1) If any person performs upon any cow or other milch animal the operation called phooka or doom dev, or permits such operation to be performed upon any such animal in his possession or under his control, he shall be punished with fine which may extend to [^13][three hundred thousand rupees, but shall not be less than fifty thousand rupees], or with imprisonment for a term which may extend to two years, or with both, and the animal on which the operation was performed shall be forfeited to Government:
+Provided that in the case of a second or subsequent conviction of a person under this section he shall be punished with fine which may extend to [^13][five hundred thousand rupees, but shall not be less than fifty thousand rupees] and with imprisonment for a term which may extend to two years.
+(2) A Court may order payment out of any fine imposed under this section of an amount not exceeding one-tenth of the fine to any person other than a police officer or officer of a society or institution concerned with the prevention of cruelty to animals who has given information leading to the conviction.]
+
+[^9]: Subs. by the Prevention of Cruelty to Animals (Amdt.) Act, 1938 (25 of 1938). s. 5, for the original section 4.
+[^13]: Subs. by the Prevention of Cruelty to Animals (Amendment) Act, 2018 (XVI OF 2018), ss. 4 to 7.

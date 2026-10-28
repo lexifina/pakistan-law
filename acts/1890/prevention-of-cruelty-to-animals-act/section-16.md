@@ -1,0 +1,1 @@
+16. Persons authorised under section 14 to be public servants. Every person authorised by the Provincial Government under section 14 shall be deemed to be a public servant within the meaning of section 21 of the Pakistan Penal Code (XLV of 1860).
