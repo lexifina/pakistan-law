@@ -1,0 +1,1 @@
+11. Protection of action taken under the Act. No suit, prosecution or legal proceeding shall lie against any person in respect of anything in good faith done or intended to be done under this Act or the rules made thereunder.
