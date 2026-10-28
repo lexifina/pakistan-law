@@ -1,0 +1,3 @@
+6. Oath of allegiance.—(1) Every member of the Agency shall, as soon as possible after appointment or enrolment to the Agency, make and subscribe before his Commanding Officer or any other officer appointed by the Commanding Officer in this behalf, an oath in the form set out in the Schedule.
+(2) The oath referred to in sub-section (1) shall be read out and, if necessary, explained to him who shall, in acknowledgement, of the oath having been so read out to him, put his signature to it.
+(3) When the oath set out in the Schedule is read out, it shall be repeated by the person taking oath before he signs it.
