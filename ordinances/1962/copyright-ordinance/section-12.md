@@ -1,0 +1,2 @@
+12. Provision as to designs registerable under Act II of 1911.__ (1) Copyright shall not subsist under this Ordinance in any design which is registered under the Patents and Designs Act, 1911 (II of 1911).
+(2) Copyright in any design which is capable of being registered under the Patents and Designs Act, 1911 (II of 1911), but which has not been so registered, shall cease as soon as any article to which the design has been applied has been reproduced more than fifty times by an industrial process by the owner of the copyright or, with his licence, by any other person.

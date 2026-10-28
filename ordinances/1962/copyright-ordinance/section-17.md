@@ -1,0 +1,3 @@
+17. Right of owner to relinquish copyright.__ (1) The owner of the copyright in a work may relinquish all or any of the rights comprised in the copyright by giving notice in the prescribed form to the Registrar and thereupon such rights shall, subject to the provisions of sub-section (3), cease to exist from the date of the notice.
+(2) On receipt of a notice under sub-section (1), the Registrar shall cause it to be published in the official Gazette and in such other manner as he may deem fit.
+(3) The relinquishment of all or any of the rights comprised in the copyright in a work shall not affect any rights subsisting in favour of any person on the date of the notice referred to in sub-section (1).

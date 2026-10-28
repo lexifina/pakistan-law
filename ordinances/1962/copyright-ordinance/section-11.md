@@ -1,0 +1,2 @@
+11. Work of joint authors.__ Where, in the case of a work of joint authorship, some one or more of the joint authors do not satisfy the conditions conferring copyright laid down by this Ordinance, the work shall be treated for the purposes of this Ordinance as if the other author or authors had been the sole author or authors thereof:
+Provided that the term of the copyright shall be the same as it would have been if all the authors had satisfied such conditions.

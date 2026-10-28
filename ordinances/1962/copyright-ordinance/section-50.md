@@ -1,0 +1,3 @@
+50. Penalty.__ Any publisher who contravenes any provision of this Chapter or of any rule made thereunder shall be punishable with fine which may extend to [^26][five hundred] rupees and, if the contravention is in respect of a book [^26][or periodical], shall also be punishable with fine which shall be equivalent to the value of the book; [^26][or periodical] and the Court trying the offence may direct that the whole or any part of the fine realised from him shall be paid, by way of compensation, to the public library to which the book [^26][, periodical] or newspaper, as the case may be, ought to have been delivered.
+
+[^26]: Ins. and subs. by Act No. XX of 1992, ss. 10-14.

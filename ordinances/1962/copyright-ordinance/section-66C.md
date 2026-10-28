@@ -1,0 +1,2 @@
+66C. Penalty for exploitation and appropriation of recording or audio-visual work
+intended for private use.__ Any person who for the purpose of business, profit or gain, exploits or appropriates any sound recording or audio-visual work intended for private use, shall be punishable with imprisonment which may extend to three years, or with fine which may extend to one hundred thousand rupees, or with both.

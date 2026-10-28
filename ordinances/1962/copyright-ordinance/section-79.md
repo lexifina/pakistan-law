@@ -1,0 +1,2 @@
+79. Order for payment of money passed by Registrar or Board to be executable as a
+decree.__ Every order made by the Registrar or the Board under this ordinance for the payment of any money or by the High Court in any appeal against any such order of the Board shall, on a certificate issued by the Registrar, the Board or the Registrar or the High Court, as the case may be, be deemed to be a decree of a civil court and shall be executable in the same manner as a decree of such court.

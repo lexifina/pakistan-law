@@ -1,0 +1,3 @@
+77. Appeals against orders of the Board.__ (1) Any person aggrieved by any final decision or order of the Board, not being the decision or order made in an appeal under section 76 may, within three months from the date of such decision or order, appeal to the High court within whose jurisdiction the appellant actually and voluntarily resides or carries on business or personally works for gain:
+Provided that no such appeal shall lie against a decision of the Board under sub-section (2) of section 4 and sub-section (2) of section 6.
+(2) In calculating the period of three months provided for an appeal under section 76 and sub-section (1), the time taken in granting a certified copy of the order or record of the decision appealed against shall be excluded. ___________

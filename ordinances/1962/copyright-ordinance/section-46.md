@@ -1,0 +1,7 @@
+46. Powers and procedure of the Board.__ (1) The Board shall, subject to any rules that may be made under this Ordinance, have power to regulate its own procedure, including the fixing of places and times of its sittings.
+(2) If there is a difference of opinion among the members of the Board in respect of any matter coming before it for decision under this Ordinance, the opinion of the majority shall prevail:
+Provided that where there is no such majority the opinion of the Chairman shall prevail.
+(3) The Board may authorize any of its members to exercise any of its powers under section 78 and any order made or act done in exercise of any such power by the member so authorized shall be deemed to be the order or act, as the case may be, of the Board.
+(4) No act done or proceeding taken by the Board under this Ordinance shall by questioned on the ground merely of the existence of any vacancy in, or defect in the constitution of, the Board.
+(5) The Board shall be deemed to be a civil court for the purposes of sections 480 and 482 of the Code of Criminal Procedure, 1898 (Act V of 1898), and all proceedings before the Board shall be deemed to be judicial proceedings within the meaning of sections 193 and 228 of the Pakistan Penal Code (Act XLV of 1860).
+(6) No member of the Board shall take part in any proceedings before the Board in respect of any matter in which he has a personal interest.

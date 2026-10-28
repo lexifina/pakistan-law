@@ -1,0 +1,4 @@
+63. Rights of owner against persons possessing or dealing with infringing copies.__ All infringing copies of any work in which copyright subsists, and all plates used or intended to be used for the production of such infringing copies, shall be deemed to be the property of the owner of the copyright, who accordingly may take proceedings for the recovery of possession thereof or in respect of the conversion thereof:
+Provided that the owner of the copyright shall not be entitled to any remedy in respect of the conversion of any infringing copies, if the opponent proves__
+(a) that he was not aware that copyright subsisted in the work and he had reasonable ground for believing that copyright did not subsist in the work of which such copies are alleged to be infringing copies; or
+(b) that he has reasonable ground for believing that such copies or plates do not involve infringement of the copyright in any work.
