@@ -1,0 +1,1 @@
+10. Connected offences not in the Schedules.— The investigation officer or the joint investigation team (JIT), as the case may be, under section 9, may also take cognizance of offences, not listed in the schedules, committed in connection with the scheduled offences, as if those offences were scheduled offences.

@@ -1,0 +1,1 @@
+28. Overriding effect.— In respect of offences mentioned in Schedule-II, the provisions of this Act shall have effect notwithstanding anything inconsistent contained in any other law for the time being in force.

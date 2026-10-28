@@ -1,0 +1,2 @@
+26. Non-disclosure of identity of victims, etc.— (1) No person shall disclose or reveal the identity of any victim or victim’s family in respect of the scheduled offences, without prior written permission of the victim or victim’s guardian where the victim is a minor or the victim’s family, as the case may be.
+(2) Any person contravening the provisions of sub-section (1) shall be guilty of an offence punishable in the same manner and to the same extent as provided under section 376A of the Pakistan Penal Code, 1860 (Act XLV of 1860).

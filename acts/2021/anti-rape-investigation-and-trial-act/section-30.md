@@ -1,0 +1,1 @@
+30. Amendment in the Schedule.— The ministry of law and justice may, by notification in the official Gazette, amend the Schedules under this Act so as to include or exclude any offence or explanation.

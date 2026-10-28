@@ -1,0 +1,1 @@
+27. Act not to derogate from other law.—In respect of offences mentioned in Schedule- I, the provisions of this Act shall be in addition to and not in derogation of any other law for the time being in force.

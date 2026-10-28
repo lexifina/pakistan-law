@@ -1,0 +1,3 @@
+14. Statement under section 164 of the Code.— (1) Notwithstanding anything contained in any other law for the time being in force, as soon as practicable, a statement of the victim shall be recorded under section 164 of the Code only once.
+Explanation:— The statement under this sub-section shall be video-recorded, preserved and reduced in writing.
+(2) An opportunity of cross examining the victim shall be given to the counsel for the accused and not the accused himself, or the Court may itself put questions to the victim or any questions framed by the accused may be given to the presiding officer of the Court who may put such questions, as found appropriate by him, to the victim.
