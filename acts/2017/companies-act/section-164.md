@@ -1,0 +1,2 @@
+164. Nominee directors.—(1) In addition to the directors elected or deemed to have been elected by shareholders, a company may have directors nominated by the company’s creditors or other special interests by virtue of contractual arrangements.
+(2) A body corporate or corporation owned or controlled by the Federal Government or as the case may be, a Provincial Government may also have directors nominated on the board to whom such corporation or company has extended credit facilities.

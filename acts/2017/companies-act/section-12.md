@@ -1,0 +1,2 @@
+12. Change of name by a company.—A company may, by special resolution and with approval of the registrar signified in writing, change its name:
+Provided that no approval under this section shall be required where the change in the name of a company is only the addition thereto, or the omission therefrom, of the expression “(Private)” or “(SMC- Private)” or “(Guarantee) Limited” or “Limited” or “Unlimited”, as the case may be, consequent upon the conversion of the status of a company in accordance with the provisions of sections 46 to 49.

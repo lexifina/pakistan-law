@@ -1,0 +1,2 @@
+20. Consequences of non-compliance of section 19.—(1) If any company starts its business operations or exercises borrowing powers in contravention of section 19, every officer or other person who is responsible for contravention shall without prejudice to other liabilities be liable to a penalty not exceeding level 2 on the standard scale.
+(2) Any contract made by a company before the date at which it is entitled to commence business shall be provisional only and shall not be binding on the company until that date and on that date it shall become binding.

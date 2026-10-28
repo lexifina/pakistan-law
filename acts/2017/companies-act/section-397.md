@@ -1,0 +1,7 @@
+## OFFENCES ANTECEDENT TO OR IN COURSE OF WINDING UP
+397. Power of Court to assess damages against delinquent directors.—(1)If in the course of winding up a company it appears that any person who has taken part in the promotion or formation of the company or any past or present director, liquidator or officer of the company-
+(a) has misapplied or retained or become liable or accountable for any money or property of the company; or
+(b) has been guilty of any misfeasance or breach of trust in relation to the company;
+the Court may, on the application of the official liquidator or the liquidator or of any creditor or contributory, made within the time specified in that behalf in sub-section (2), examine into the conduct of the person, director, liquidator or officer aforesaid, and compel him to repay or restore the money or property or any part thereof respectively, with surcharge at such rate as the Court thinks just, or to contribute such sum to the assets of the company by way of compensation in respect of the misapplication, retainer, misfeasance or breach of trust as the Court thinks just.
+(2) An application under sub-section (1) shall be made within five years from the date of the order for winding up, or of the first appointment of the liquidator in the winding up, or of the misapplication, retainer, misfeasance or breach of trust, as the case may be, whichever is longer.
+(3) This section shall apply notwithstanding that the matter is one for which the person concerned may be criminally liable.

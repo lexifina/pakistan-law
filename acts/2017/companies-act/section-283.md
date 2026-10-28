@@ -1,0 +1,1 @@
+283. Notice to be given to registrar for applications under section 279 and 282.−The Commission shall give notice of every application made to it under sections 279 to 282 to the registrar and shall take into consideration the representation if any, made to it by the registrar before passing any order under any of these sections.

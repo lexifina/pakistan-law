@@ -1,0 +1,7 @@
+59. Variation of shareholders’ rights.—(1) The variation of the right of shareholders of any class shall be effected only in the manner laid down in section 38.
+(2) Not less than ten percent of the class of shareholders who are aggrieved by the variation of their rights under sub-section (1) may, within thirty days of the date of the resolution varying their rights, apply to the Court for an order cancelling the resolution:
+Provided that the Court shall not pass such an order unless it is shown to its satisfaction that some facts which would have had a bearing on the decision of the shareholders were withheld by the company in getting the aforesaid resolution passed or, having regard to all the circumstances of the case, that the variation would unfairly prejudice the shareholders of the class represented by the applicant.
+(3) An application under sub-section (2) may be made on behalf of the shareholders entitled to make it by such one or more of their number as they may authorise in writing in this behalf.
+(4) The company shall, within fifteen days of the service on the company of any order made on any such application, forward a copy of the order to the registrar and, if default is made in complying with this provision, the person making the default shall be guilty of an offence under this section and be liable to a penalty not exceeding of level 1 on the standard scale.
+(5) The expression “variation” under this section includes abrogation, revocation or enhancement.
+SHARE CAPITAL AND NATURE, NUMBERING AND CERTIFICATE OF SHARES

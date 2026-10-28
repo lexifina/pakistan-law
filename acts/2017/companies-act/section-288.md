@@ -1,0 +1,1 @@
+288. Interim order.—Pending the making by it of a final order under section 286 the Court may, on the application of any party to the proceedings, make such interim order as it thinks fit for regulating the conduct of the company’s affairs, upon such terms and conditions as appear to it to be just and equitable.

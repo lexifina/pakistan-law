@@ -1,0 +1,3 @@
+480. Appeal against order passed by officer of the Commission.—Any person aggrieved by any order passed under this Act may, within thirty days of such order, except as otherwise provided in this Act, prefer an appeal to—
+(a) the registrar designated by the Commission against the order passed by an additional registrar, a joint registrar, an additional joint registrar, a deputy registrar or an assistant registrar or such other officer as may be designated by the Commission; and
+(b) officer authorized by the Commission where the order has been passed or upheld by the registrar designated under clause (a) by the Commission.

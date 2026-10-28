@@ -1,0 +1,2 @@
+157. First directors and their term.—(1) The number of directors and the names of the first directors shall be determined by the subscribers of the memorandum and their particulars specified under section 197 shall be submitted along with the documents for the incorporation of the company.
+(2) The number of first directors may be increased by appointing additional directors by the members in a general meeting. The first directors shall hold office until the election of directors in the first annual general meeting of the company.

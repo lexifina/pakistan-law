@@ -1,0 +1,2 @@
+239. Rights of debenture-holders to obtain copies of financial statements.—(1) The holders of debentures, including the trustees for holders of debentures, of a company shall be entitled to have copies of financial statements of the company and other reports on payment of such fee as may be fixed by the company.
+(2) Any contravention or default in complying with requirements of this section shall be an offence liable to a penalty of level 1 on the standard scale.

@@ -1,0 +1,2 @@
+472. Destruction of physical record.—The record of the companies including the statutory returns and applications, maintained by the registrar and the Commission under this Act or the company law shall be preserved for such period as the Commission may determine and may be destroyed in the manner as may be specified:
+Provided further that the physical record converted into electronic form in terms of first proviso, shall be admissible as an evidence in all legal proceedings and for all purposes.

@@ -1,0 +1,3 @@
+4. Act to override.—Save as otherwise expressly provided herein—
+(a) the provisions of this Act shall have effect notwithstanding anything contained in any other law or the memorandum or articles of a company or in any contract or agreement executed by it or in any resolution passed by the company in general meeting or by its directors, whether the same be registered, executed or passed, as the case may be, before or after the coming into force of the said provisions; and
+(b) any provision contained in the memorandum, articles, contract, agreement, arrangement or resolution aforesaid shall, to the extent to which it is repugnant to the aforesaid provisions of this Act, become, or be, void, as the case may be.

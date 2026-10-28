@@ -1,0 +1,1 @@
+103. Index to register of mortgages and charges.—The registrar shall keep a chronological index, in the form, containing such particulars, as may be specified, of the mortgages or charges registered with him under the company law.

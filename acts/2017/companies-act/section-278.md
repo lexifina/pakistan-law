@@ -1,0 +1,3 @@
+278. Power for companies to refer matter to arbitration.— (1) A company may by written agreement refer any existing or future difference between itself and any other company or person to arbitration, in accordance with the Arbitration Act, 1940 (X of 1940).
+(2) Companies, parties to the arbitration, may delegate to the arbitrator power to settle any term or to determine any matter capable of being lawfully settled or determined by the companies themselves, or by the board or other managing body.
+(3) The provisions of the Arbitration Act, 1940 (X of 1940), shall apply to all arbitrations between companies and persons in pursuance of this Act.

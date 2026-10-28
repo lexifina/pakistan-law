@@ -1,0 +1,5 @@
+180. Liabilities of directors and officers.— Any provision, whether contained in the
+articles of a company or in any contract with a company or otherwise, for exempting any officer or auditor of the company, from, or indemnifying him against, any liability which by virtue of any law would otherwise attach to him in respect of any negligence, default, breach of duty or breach of trust of which he may be guilty in relation to the company, shall be void except as otherwise specified for:
+(a) provisions of insurance undertaken by a company on behalf of such officers of the company; or
+(b) qualifying third party indemnity provisions undertaken by a company on behalf of such officers of the company:
+Provided that, notwithstanding anything contained in this section, a company may, in pursuance of any such provision as aforesaid, indemnify any such director, chief executive, officer against any liability incurred by him in defending any proceedings, whether civil or criminal, in which judgment is given in his favour or in which he is acquitted, or in connection with any application under section 493 in which relief is granted to him.

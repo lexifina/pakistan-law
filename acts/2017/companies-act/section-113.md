@@ -1,0 +1,5 @@
+## RECEIVERS AND MANAGERS
+113. Registration of appointment of receiver or manager.—(1) Where in order to ensure enforcement of security of a company’s property, a person obtains an order for the appointment of a receiver or manager, or appoints such a receiver or manager under any powers contained in any instrument, he shall within seven days of the order or of the appointment under the powers contained in the instrument, file a notice of the fact with the registrar.
+(2) Where a person appointed as a receiver or manager under this section ceases to act as such, the person who had obtained the order or appointed such a receiver or manager pursuant to the powers contained in any instrument shall on ceasing of the receiver or manager, give the registrar a notice to that effect within seven days.
+(3) The registrar shall enter the fact of which he is given notice under this section in the register of mortgages and charges.
+(4) Any violation of sub-sections (1) and (2) shall be an offence liable to a penalty of level 1 on the standard scale.

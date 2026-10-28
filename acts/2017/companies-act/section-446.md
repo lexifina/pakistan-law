@@ -1,0 +1,2 @@
+## PROSPECTUS
+446. Issue of prospectus.—No person shall issue, circulate or distribute in Pakistan any prospectus offering for subscription securities of a foreign company or soliciting deposits of money, whether the company has or has not established, or when formed will or will not establish, a place of business in Pakistan unless authorised to do so by the Commission under the relevant law or as may be specified.

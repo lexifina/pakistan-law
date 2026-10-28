@@ -1,0 +1,4 @@
+110. Power of registrar to make entries of satisfaction and release in absence of intimation from company.—The registrar may, on evidence being given to his satisfaction with respect to any registered charge-
+(a) that the debt for which the charge was given has been paid or satisfied in whole or in part; or
+(b) that part of the property or undertaking charged has been released from the charge or has ceased to form part of the company’s property or undertaking;
+enter in the register of charges a memorandum of satisfaction in whole or in part, or of the fact that part of the property or undertaking has been released from the charge or has ceased to form part of the company’s property or undertaking, as the case may be, and inform the parties concerned, notwithstanding the fact that no intimation has been received by him from the company.

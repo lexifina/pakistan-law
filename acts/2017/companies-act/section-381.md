@@ -1,0 +1,2 @@
+## WINDING UP SUBJECT TO SUPERVISION OF COURT
+381. Power to order winding up subject to supervision.— When a company has passed a resolution for voluntary winding up, the Court may of its own motion or on the application of any person entitled to apply to the Court for winding up a company, make an order that the voluntary winding up shall continue, but subject to such supervision of the Court, and with such liberty for creditors, contributories or others to apply to the Court, and generally on such terms and conditions, as the Court thinks just.

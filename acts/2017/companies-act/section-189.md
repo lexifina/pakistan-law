@@ -1,0 +1,1 @@
+189. Restriction on appointment of chief executive.—No person who is ineligible to become a director of a company under section 153 or disqualified under sections 171 or 172 shall be appointed or continue as the chief executive of any company.

@@ -1,0 +1,1 @@
+78. Transfer to successor-in-interest.—The shares or other securities of a deceased member shall be transferred on application duly supported by succession certificate or by lawful award, as the case may be, in favour of the successors to the extent of their interests and their names shall be entered in the register of members.

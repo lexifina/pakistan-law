@@ -1,0 +1,4 @@
+163. Removal of directors.—A company may by resolution in general meeting remove a director appointed under sections 157, 161 or section 162 or elected in the manner provided for in section 159:
+Provided that a resolution for removing a director shall not be deemed to have been passed if the number of votes cast against it is equal to, or exceeds—
+(a) the total number of votes for the time being computed in the manner laid down in sub-section (5) of section 159 divided by the number of directors for the time being, if the resolution relates to removal of a director appointed under sections 157, 161 or section 162 or where the directors were elected unopposed; or
+(b) the minimum number of votes that were cast for the election of a director at the immediately preceding election of directors, if the resolution relates to removal of a director elected in the manner provided in sub-section (5) of section 159.

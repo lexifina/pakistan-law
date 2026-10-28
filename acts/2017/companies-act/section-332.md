@@ -1,0 +1,1 @@
+332. Regulation of account with Court.−All moneys, bills, notes and other securities paid and delivered into the scheduled bank where the official liquidator of the company may have his account, in the event of a company being wound up by the Court, shall be subject in all respect to the orders of the Court.

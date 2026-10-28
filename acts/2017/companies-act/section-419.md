@@ -1,0 +1,4 @@
+419. Application of provisions relating to audit.—The provisions of this Act relating to audit of accounts, rights, powers, duties, liabilities and report of auditors of companies and the duties of companies and their officers as applicable to companies shall apply mutatis mutandis to companies being wound up, books of account and books and papers kept by the liquidator and his statements of accounts subject as follows—
+(a) all reference therein to officers of the company shall include references to the liquidator;
+(b) the appointment of auditor shall be made by the Court, members or creditors, as the case may be, who appointed the liquidator, who shall also fix his remuneration which shall be paid by the liquidator from the funds of the company:
+Provided that if no appointment of auditor is made by the members or creditors, as the case may be, the liquidator shall apply to the Commission who shall make the appointment and fix his remuneration.

@@ -1,0 +1,1 @@
+177. Ineligibility of bankrupt to act as director.—If any person being an undischarged insolvent acts as chief executive or director of a company, he shall be liable to imprisonment for a term not exceeding two years or to a fine not exceeding one hundred thousand rupees, or to both.

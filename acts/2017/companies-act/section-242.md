@@ -1,0 +1,3 @@
+242. Dividend not to be paid except to registered shareholders.—Any dividend declared by a company must be paid to its registered shareholders or to their order within such period and in such manner as may be specified:
+Provided that any dividend payable in cash may be paid by cheque or warrant or in any electronic mode to the shareholders entitled to the payment of the dividend, as per their direction:
+Provided further that in case of a listed company, any dividend payable in cash shall only be paid through electronic mode directly into the bank account designated by the entitled shareholders.

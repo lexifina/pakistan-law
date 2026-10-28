@@ -1,0 +1,3 @@
+391. Avoidance of transfers. ___Except when an order to the contrary is passed by the court.___
+(a) every transfer of shares and alteration in the status of a member made after the commencement of winding up shall, unless approved by the liquidator, be void;
+(b) any transfer or disposition of property, including actionable claims of the company, not being a transfer or delivery made in the ordinary course of its business or in favour of a purchaser or encumbrancer in good faith and for valuable consideration, if made within a period of one year before the presentation of a petition for winding up by the Court or the passing of a resolution for voluntary winding up of the company, shall be void.

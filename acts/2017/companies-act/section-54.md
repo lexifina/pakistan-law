@@ -1,0 +1,1 @@
+54. Service of documents on Commission or the registrar.—A document or information may be served on the Commission or the registrar against an acknowledgement or by post or courier service or through electronic means or in any other manner as may be specified.

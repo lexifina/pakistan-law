@@ -1,0 +1,3 @@
+191. Chief executive not to engage in business competing with company’s business.— (1) A chief executive of a public company shall not directly or indirectly engage in any business which is of the same nature as and directly competes with the business carried on by the company of which he is the chief executive or by a subsidiary of such company.
+Explanation.—A business shall be deemed to be carried on indirectly by the chief executive if the same is carried on by his spouse or any of his minor children.
+(2) Every person who is appointed as chief executive of a public company shall forthwith on such appointment disclose to the company in writing the nature of such business and his interest therein.

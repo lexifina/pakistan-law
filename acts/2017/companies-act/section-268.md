@@ -1,0 +1,5 @@
+## POWERS OF COURT HEARING APPLICATION
+268. Application for winding up of company or an order under section 286.—If any company or other body corporate the affairs of which have been investigated by inspectors is liable to be wound up under this Act, and it appears to the Commission from any report made under section 262 that it is expedient so to do by reason of any such circumstances as are referred to in sub-clause (i) or sub-clause (ii) or sub-clause (iii) or sub-clause (iv) or sub-clause (vii) of clause (b) of sub-section (1) of section 257, the Commission may, unless the company or other body corporate is already being wound up by the Court cause to be presented to the Court by the registrar or any person authorised by the Commission in this behalf—
+(a) a petition for the winding up of the company or body corporate, on the ground that it is just and equitable that it should be wound up;
+(b) an application for an order under section 286; or
+(c) both a petition and an application as aforesaid.

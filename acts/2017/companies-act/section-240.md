@@ -1,0 +1,4 @@
+## DIVIDENDS AND MANNER AND TIME OF PAYMENT THEREOF
+240. Certain restrictions on declaration of dividend.—(1) The company in general meeting may declare dividends; but no dividend shall exceed the amount recommended by the board.
+(2) No dividend shall be declared or paid by a company for any financial year out of the profits of the company made from the sale or disposal of any immovable property or assets of a capital nature comprised in the undertaking or any of the undertaking of the company, unless the business of the company consists, whether wholly or partly, of selling and purchasing any such property or assets, except after such profits are set off or adjusted against losses arising from the sale of any such immovable property or assets of a capital nature:
+Provided that no dividend shall be declared or paid out of unrealized gain on investment property credited to profit and loss account.

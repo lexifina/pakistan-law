@@ -1,0 +1,7 @@
+505. Application of Act to companies governed by special enactments.—(1) The provisions of this Act shall apply—
+(a) to insurance companies, except in so far as the said provisions are inconsistent with the provisions of the Insurance Ordinance, 2000 (XXXIX of 2000);
+(b) to banking companies, except in so far as the said provisions are inconsistent with the provisions of the Banking Companies Ordinance, 1962 (LVII of 1962);
+(c) to modaraba companies and modarabas, except in so far as the said provisions are inconsistent with the provisions of the Modaraba Companies and Modaraba (Floatation and Control ) Ordinance, 1980 (XXXI of 1980);
+(d) to any other company governed by any special enactment for the time being in force, except in so far as the said provisions are inconsistent with the provisions of such special enactments.
+(2) The provisions of sections 130, 132, 220 to 239, 247 to 267, 270 and 271 shall mutatis mutandis apply to listed companies or corporations established by any special enactment for the time being in force whose securities are listed and in the said sections the expression “company” shall include a listed company so established:
+Provided that the Commission may, by notification in the official Gazette, direct that the provisions of any of the aforesaid sections specified in the notification shall, subject to such conditions, if any, as may be so specified, not apply to any listed company or securities so specified.

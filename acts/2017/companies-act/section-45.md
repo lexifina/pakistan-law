@@ -1,0 +1,4 @@
+45. Provision as to companies limited by guarantee.—(1) A company limited by guarantee may have share capital.
+(2) In the case of a company limited by guarantee and not having a share capital, every provision in the memorandum or articles or in any resolution of the company purporting to give any person a right to participate in the divisible profits of the company otherwise than as a member shall be void.
+(3) For the purpose of the provisions of this Act relating to the memorandum of a company limited by guarantee and of sub-section (2), every provision in the memorandum or articles, or in any resolution, of a company limited by guarantee purporting to divide the undertaking of the company into shares or interests shall be treated as a provision for a share capital, notwithstanding that the nominal amount or number of the shares or interests is not mentioned thereby.
+CONVERSION OF A COMPANY OF ANY CLASS INTO A COMPANY OF OTHER CLASS

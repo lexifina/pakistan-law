@@ -1,0 +1,1 @@
+33. Powers of Commission when confirming alteration.—The Commission may make an order confirming the alteration on such terms and conditions as it thinks fit and make such order as to costs as it thinks proper.

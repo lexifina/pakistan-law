@@ -1,0 +1,5 @@
+440. Service on foreign company.—Any process, notice or other document required to be served on such company as is referred to in this Part shall be deemed to be sufficiently served if addressed to any person whose name has been so filed with the registrar as aforesaid and left at or sent by post to the address which has been so filed:
+Provided that—
+(a) where any such company makes default in delivering to the registrar the name and address of a person resident in Pakistan who is authorised to accept on behalf of the company service of process, notices or other documents; or
+(b) if at any time all the persons whose names and addresses have been so filed are dead or have ceased to so reside, or refuse to accept service on behalf of the company or for any reason cannot be served;
+a document may be served on the company against an acknowledgement or by post or courier service to, any place of business established by the company in Pakistan or through electronic means or in any other manner as may be specified.

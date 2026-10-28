@@ -1,0 +1,5 @@
+232. Approval and authentication of Financial Statements.—(1) The financial statements, including consolidated financial statement, if any, must be approved by the board of the company and signed on behalf of the board by the chief executive and at least one director of the company, and in case of a listed company also by the chief financial officer:
+Provided that when the chief executive is for the time being not available in Pakistan, then the financial statements may be signed by at least two directors:
+Provided further that in case of a private company having a paid up capital not exceeding one million rupees, the financial statements shall also be accompanied by an affidavit executed by the chief executive if the accounts are signed by him or by any of the directors if the accounts has been signed by two directors, as the case may be, that the financial statements have been approved by the board.
+(2) The financial statements of a single member company shall be signed by one director.
+(3) Any contravention or default in complying with requirements of this section shall be an offence liable to a penalty of level 1 on the standard scale.

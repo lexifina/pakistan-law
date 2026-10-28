@@ -1,0 +1,7 @@
+317. Remuneration of official liquidator.—(1) The terms and conditions of appointment of a provisional manager or official liquidator and the fee payable to him shall be fixed by the Court on the basis of task required to be performed, experience, qualification of such liquidator and size of the company.
+(2) An official liquidator, shall also be entitled to such remuneration by way of percentage of the amount realised by him by disposal of assets as may be fixed by the Court having regard to the amount and nature of the work actually done and subject to such limits as may be prescribed:
+Provided that different percentage rates may be fixed for different types of assets and items.
+(3) In addition to the remuneration payable under sub-section (2), the Court may permit payment of a monthly allowance to the official liquidator for meeting the expenses of the winding up for a period not exceeding one year from the date of the winding up order.
+(4) The remuneration fixed as aforesaid shall not be enhanced subsequently but may be reduced by the Court at any time.
+(5) If the official liquidator resigns, is removed from office or otherwise ceases to hold office before conclusion of the winding up proceedings, he shall not be entitled to any remuneration and the remuneration already received by him, if any, shall be refunded by him to the company.
+(6) No remuneration shall be payable to official liquidator who fails to complete the winding up proceedings within the prescribed period or such extended time as may be allowed by the Court.

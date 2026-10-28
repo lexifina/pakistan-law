@@ -1,0 +1,1 @@
+107. Copy of instrument creating mortgage or charge to be kept at registered office.— Every company shall cause a copy of every instrument creating any mortgage or charge requiring registration under this Part and of every instrument evidencing modification of the terms or conditions thereof, to be kept at the registered office of the company.

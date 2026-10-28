@@ -1,0 +1,1 @@
+458. Power to give exemptions by the Federal Government.—Notwithstanding anything contained in this Act or any other law, the concerned Minister-in-Charge of the Federal Government may, by notification in the official Gazette exempt companies under sections 454, 456 and 457 from any provisions of law for the time being in force.

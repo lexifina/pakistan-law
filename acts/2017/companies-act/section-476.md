@@ -1,0 +1,2 @@
+## LEGAL PROCEEDINGS, OFFENCES
+476. Offences to be cognizable.—Notwithstanding anything contained in the Code of Criminal Procedure, 1898 (V of 1898) or any other law, save as expressly provided otherwise in this Act or in the Eighth Schedule, any offence in which punishment of imprisonment is provided under this Act shall be cognizable by the Commission only and shall be proceeded in accordance with section 38 of the Securities and Exchange Commission of Pakistan Act, 1997 (XLII of 1997) and this Act.

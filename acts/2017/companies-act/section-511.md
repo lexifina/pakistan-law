@@ -1,0 +1,1 @@
+511. Power of the Commission to permit use of Urdu words of abbreviations.— The Commission may, by notification in the official Gazette, permit use of an Urdu equivalent of any English word or term required to be used pursuant to or for the purposes of this Act or an abbreviation of any such word or term instead of such word or term.

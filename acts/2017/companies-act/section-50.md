@@ -1,0 +1,4 @@
+50. Issue of certificate and effects of conversion.—(1) The registrar upon registration of the memorandum and articles of association as altered by the company upon conversion under sections 46 to 49, shall issue a certificate to that effect.
+(2) The conversion of status of a company under sections 46 to 49 shall not affect—
+(a) any debts, liabilities, obligations or contracts incurred or entered into, by or on behalf of the company before conversion and such debts, liabilities, obligations and contracts may be enforced in the manner as if such registration had not been done; and
+(b) any rights or obligations of the company or render defective any legal proceedings by or against the company and any legal proceedings that might have been continued or commenced against the company before conversion may be continued or commenced upon its conversion.

@@ -1,0 +1,1 @@
+219. Penalty for contravention of section 217 or 218.—Any contravention or default in complying with requirements of sections 217 or 218 shall be an offence liable to a penalty of level 1 on the standard scale and shall also be liable to pay the loss suffered by the depositor of security or the employee, on account of such contravention.

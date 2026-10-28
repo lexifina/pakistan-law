@@ -1,0 +1,1 @@
+352. Distinction between members and creditors voluntary winding up.—A winding up in the case of which a declaration under section 351 has been made is a members’ voluntary winding up and a winding up in the case of which such a declaration has not been made is a creditors’ voluntary winding up.

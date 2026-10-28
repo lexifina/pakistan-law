@@ -1,0 +1,6 @@
+319. General provisions as to liquidators.—(1) The official liquidator shall conduct the proceedings in winding up the company and perform such duties in reference thereto as the Court may impose.
+(2) The acts of a liquidator shall be valid, notwithstanding any defect that may afterwards be discovered in his appointment or qualification:
+Provided that nothing in this sub-section shall be deemed to give validity to acts done by a liquidator after his appointment has been shown to be invalid.
+(3) The winding up proceedings shall be completed by the official liquidator within a period as determined by the Court under section 322.
+(4) If an official liquidator is convicted of misfeasance, or breach of duty or other lapse or default in relation to winding up proceedings of a company, he shall cease to be the official liquidator of the company and shall also become disqualified, for a period of five years from such conviction, from being the liquidator or to hold any other office including that of a director, in any company and if he already holds any such office he shall forthwith be deemed to have ceased to hold such office.
+(5) The registrar or the Commission shall take cognizance of any lapse, delay or other irregularity on the part of the official liquidator and may, without prejudice to any other action under the law, report the same to the Court.

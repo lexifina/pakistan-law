@@ -1,0 +1,4 @@
+309. Copy of winding up order to be filed with registrar.—(1) Within fifteen days from the date of the making of the winding up order, the petitioner in the winding up proceedings and the company shall file a certified copy of the order with the registrar.
+(2) If default is made in complying with the foregoing provision, the petitioner or, as the case may require, the company, and every officer of the company who is in default, shall be liable to a penalty of level 1 on the standard scale.
+(3) On the filing of a certified copy of a winding up order, the registrar shall forthwith make a minute thereof in his books relating to the company, and shall simultaneously notify in the official Gazette that such an order has been made.
+(4) Such order shall be deemed to be notice of discharge to the employees of the company, except when the business of the company is continued.

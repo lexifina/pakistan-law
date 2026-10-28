@@ -1,0 +1,1 @@
+466. Jurisdiction in the disputes relating to shareholding and directorship.— The registrar shall have no jurisdiction to determine the rights of the parties relating to shareholding and directorship.

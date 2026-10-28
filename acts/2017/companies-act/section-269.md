@@ -1,0 +1,5 @@
+269. Proceedings for recovery of damages or property.—(1) If from any report referred to in sub-section (1) of section 262 it appears to the Commission that proceedings ought, in the public interest, to be brought by the company or any body corporate whose affairs have been investigated in pursuance of section 260—
+(a) for the recovery of damages in respect of any fraud, misfeasance, breach of trust or other misconduct in connection with the promotion or formation, or the management of the affairs, of such company or body corporate; or
+(b) for the recovery of any property of such company or body corporate which has been misapplied or wrongfully retained;
+the Commission may itself bring proceedings for that purpose in the name of such company or body corporate.
+(2) The Commission shall be indemnified by such company or body corporate against any costs or expenses incurred by it in, or in connection with, any proceedings brought by virtue of sub-section (1) and the Court or other authority before which proceedings are brought shall pass an order accordingly.

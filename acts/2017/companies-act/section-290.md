@@ -1,0 +1,1 @@
+290. Application of certain sections to proceedings under this Part.— In relation to an application under section 286, sections 395 to 400 shall mutatis mutandis apply as they apply in respect of winding up.

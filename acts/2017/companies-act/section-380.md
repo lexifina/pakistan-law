@@ -1,0 +1,1 @@
+380. Power of Court to adopt proceedings of voluntary winding up.—Where a company is being wound up voluntarily, and an order is made for winding up by the Court, the Court may, if it thinks fit by the same or any subsequent order, provide for the adoption of all or any of the proceedings in the voluntary winding up.

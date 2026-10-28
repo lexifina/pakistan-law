@@ -1,0 +1,2 @@
+99. Special resolution of limited company making liability of directors unlimited.—A limited company, if so authorised by its articles, may, by special resolution, alter its memorandum so as to render unlimited the liability of its directors or of any director:
+Provided that an alteration of the memorandum making the liability of any of the directors unlimited shall not apply, without his consent, to a director who was holding the office from before the date of the alteration, until the expiry of the term for which he was holding office on that date.

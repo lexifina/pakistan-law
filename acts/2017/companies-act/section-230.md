@@ -1,0 +1,2 @@
+230. Rights of holding company’s representatives and members.—(1) A holding company may, by resolution, authorise representatives named in the resolution to inspect the books of account kept by any of its subsidiaries; and the books of account of any such subsidiary shall be open to inspection by those representatives at any time during business hours.
+(2) The rights conferred by section 256 upon members of a company may be exercised, in respect of any subsidiary, by members of the holding company as if they also were members of the subsidiary.

@@ -1,0 +1,6 @@
+448. Registration of charges.—(1) The provision of sections 100 to 112 both inclusive, shall extend to charges on properties in Pakistan which are created, and to charges on property in Pakistan which is acquired, by a foreign company which has an established place of business in Pakistan:
+Provided that references in the said sections to the registered office of the company shall be deemed to be reference to the principal place of business in Pakistan of the company:
+Provided further that, where a charge is created outside Pakistan or the completion of the acquisition of property takes place outside Pakistan, clause (a) of the proviso to sub-section (1) and sub-section (4) of section 100 shall apply as if the property wherever situated were situated outside Pakistan.
+(2) Where a company to which this section applies creates, or has created at any time before establishing a place of business in Pakistan, a charge on any property otherwise registerable under this Act it shall register the same with the registrar in accordance with the provisions of this Act—
+(a) within thirty days of the establishment of a place of business in Pakistan; or
+(b) if the charge was created before the commencement of this Act and subsisted immediately before such commencements, within ninety days thereof.

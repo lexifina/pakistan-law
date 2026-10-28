@@ -1,0 +1,27 @@
+272. Imposition of restrictions on shares and debentures and prohibition of transfer of shares or debentures in certain cases.—(1) Where it appears to the Commission in connection with any investigation that there is good reason to find out the relevant facts about any shares, whether issued or to be issued, and the Commission is of the opinion that such facts cannot be found out unless the restrictions specified in sub-section (2) are imposed, the Commission may, by order, direct that the shares shall be subject to the restrictions imposed by sub-section (2) for such period not exceeding one year as may be specified in the order:
+Provided that, before making an order under this sub-section, the Commission shall provide an opportunity of showing cause against the proposed action to the company and the persons likely to be affected by the restriction.
+(2) So long as any shares are directed to be subject to the restrictions imposed by this sub-section—
+(a) any transfer of those shares shall be void;
+(b) where those shares are to be issued, they shall not be issued; and any issue thereof or any transfer of the right to be issued therewith, shall be void;
+(c) no voting right shall be exercisable in respect of those shares;
+(d) no further shares shall be issued in right of those shares or in pursuance of any offer made to the holder thereof; and any issue of such shares or any transfer of the right to be issued therewith, shall be void;
+(e) except in a liquidation, no payment shall be made of any sums due from the company on those shares, whether in respect of dividend, capital or otherwise; and
+(f) no change other than a change by operation of law shall be made in the directors or the chief executive.
+(3) Where a transfer of shares in a company has taken place and as a result thereof a change in the directors of the company is likely to take place and the Commission is of opinion that any such change will be prejudicial to the public interest, the Commission may, by order, direct, that—
+(a) the voting rights in respect of those shares shall not be exercisable for such period not exceeding one year as may be specified in the order; and
+(b) no resolution passed or action taken to effect a change in the directors before the date of the order shall have effect unless confirmed by the Commission.
+(4) Where the Commission has reasonable ground to believe that a transfer of shares in a company is likely to take place as a result of which a change in the directors of the company will follow and the Commission is of opinion that any such change will be prejudicial to the public interest, the Commission may, by order, prohibit any transfer of shares in the company during such period not exceeding one year as may be specified in the order.
+(5) The Commission may, by order, at any time, vary or rescind any order made by it under sub-section (1) or sub-section (3) or sub-section (4).
+(6) Where the Commission makes an order under sub-section (1) or sub-section (3) or sub-section (4) or sub-section (5) or refuses to rescind any such order, any person aggrieved thereby may apply to the Court and the Court may, if it thinks fit, by order, vacate any such order of the Commission:
+Provided that no order, whether interim or final shall be made by the Court without giving the Commission an opportunity of being heard.
+(7) Any order of the Commission rescinding an order under sub-section (1), or any order of the Court vacating any such order, which is expressed to be made with a view to permitting a transfer of any shares, may continue the restrictions mentioned in clauses (d) and (e) of sub-section (2), either in whole or in part, so far as they relate to any right acquired, or offer made, before the transfer.
+(8) Any order made by the Commission under sub-section (5) shall be served on the company within fourteen days of the making of the order.
+(9) Any person who—
+(a) exercises or purports to exercise any right to dispose of any shares or of any right to be issued with any such shares, when to his knowledge he is not entitled to do so by reason of any of the restrictions applicable to the case under sub-section (1); or
+(b) votes in respect of any shares, whether as holder or proxy, or appoints a proxy to vote in respect thereof, when to his knowledge he is not entitled to do so by reason of any of the restrictions applicable to the case under sub-section (2) or by reason of any order made under sub-section (3); or
+(c) transfers any shares in contravention of any order made under sub-section (4); or
+(d) being the holder of any shares in respect of which an order under sub-section (2) or sub-section (3) has been made, fails to give notice of the fact of their being subject to any such order to any person whom he does not know to be aware of that fact but whom he knows to be otherwise entitled to vote in respect of those shares, whether as holder or a proxy;
+shall be punishable with imprisonment for a term which may extend to one year, or with fine which may extend to one million rupees, or with both.
+(10) Any contravention or default in complying with requirements of sub-section (2) shall be an offence liable to a penalty of level 2 on the standard scale.
+(11) A prosecution shall not be instituted under this section except by or with the consent of the Commission.
+(12) This section shall also apply in relation to debentures as it applies in relation to shares.

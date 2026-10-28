@@ -1,0 +1,2 @@
+170. Restriction on director’s remuneration.—(l) The remuneration of a director for performing extra services, including the holding of the office of chairman, shall be determined by the board or the company in general meeting, as the case may be, in accordance with the provisions in the company’s articles.
+(2) The remuneration to be paid to any director for attending the meetings of the board or a committee of directors shall not exceed the scale approved by the company or the board, as the case may be, in accordance with the provisions of the articles.

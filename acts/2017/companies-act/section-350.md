@@ -1,0 +1,3 @@
+350. Notice of resolution to wind up voluntarily.__(1) Notice of any resolution for winding up a company voluntarily shall be given by the company within ten days of the passing of the same by advertisement in a newspaper in English and Urdu languages at least in one issue each of a daily newspaper of respective language having wide circulation and a copy thereof shall be sent to the registrar immediately thereafter.
+(2) Any contravention or default in complying with requirement of this section shall be an offence liable to a daily penalty of level 1 on the standard scale.
+(3) For the purpose of this section, a liquidator of a company shall be deemed to be an officer of the company.

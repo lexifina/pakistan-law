@@ -1,0 +1,1 @@
+343. Saving of other proceedings.—Any powers conferred on the Court by this Act shall be in addition to, and not in derogation of, any existing power of instituting proceedings against any contributory or debtor of the company, or the estate of any contributory or debtor, for the recovery of any call or other sums.

@@ -1,0 +1,4 @@
+3. Application of Act to non-trading companies with purely provincial objects.—(1) The powers conferred by this Act on the concerned Minister-in-Charge of the Federal Government or the
+Commission, in relation to companies which are not trading corporations and the objects of which are confined to a single Province, may be exercised by the Minister-in-Charge of the Provincial Government:
+Provided that where the licence is issued by the Provincial Government or, as the case may be, its concerned Minister-in-Charge, in exercise of the powers conferred by this section, the company shall mention this fact in all its documents.
+(2) A non-trading corporation formed under sub-section (1) extending its operational activities beyond the territorial limits of its respective province shall be liable to a penalty of level 3 on the standard scale and be wound up on the application by the Commission.

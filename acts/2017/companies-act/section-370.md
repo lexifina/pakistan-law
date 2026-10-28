@@ -1,0 +1,2 @@
+## PROVISIONS APPLICABLE TO EVERY VOLUNTARY WINDING UP
+370. Distribution of property of company.—Subject to the provisions of this Act as to preferential payments, the property of a company shall, on its winding up, be applied in satisfaction of its liabilities pari passu and, subject to such application shall, unless the articles otherwise provide be distributed among the members according to their rights and interests in the company.
