@@ -1,0 +1,1 @@
+2. Persons subject to this Act.⎯ (1) Every person enrolled in the Mujahid Force or the Janbaz Force and every person who was subject to the Mujahid Force Ordinance, 1965 (XXII of 1965), immediately before the commencement of this Act, shall be subject to this Act wherever he may be and shall remain so subject until his discharge in accordance with this Act.

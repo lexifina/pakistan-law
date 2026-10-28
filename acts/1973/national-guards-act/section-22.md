@@ -1,0 +1,3 @@
+22. Treatment of period spent in training service, etc. — (1) The period spent in embodied service or training by any person enrolled shall count towards increment of pay, seniority, pension and gratuity or bonus, and shall be treated by his employer as period spent on duty.
+(2) A person enrolled shall on embodiment be entitled to draw his pay and allowances from the Federal Government and to opt to draw these at the rates to which he was entitled immediately before his enrolment.
+(3) The pay and allowances admissible to a person enrolled while he is on embodied service shall in no case be less favourable to him than those to which he was entitled during his training.
