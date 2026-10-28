@@ -1,0 +1,4 @@
+7. Tolls may be leased.__ (1) Government may, from time to time, lease out the tolls of a bridge or road, by public auction or private contract for any period not exceeding five years, on such terms and conditions, as Government may consider desirable.
+(2) When the tolls are put up to auction, the Officer conducting the auction may, for reasons to be recorded in writing, refuse to accept the offer of the highest bidder, and may accept any other bid, or may withdraw the tolls from the auction.
+(3) The acceptance of any bid at an auction conducted under the provisions of sub-section (2) by the officer conducting the auction shall be subject to confirmation by Government.
+(4) All arrears due from the lessee on account of the lease of the tolls may be recovered from him or from his surety, if any, as if they were arrears of land-revenue.

@@ -1,0 +1,1 @@
+9. Lease may surrender lease.__ The lessee of the tolls of any bridge or road may surrender his lease on the expiration of one month’s notice in writing to Government of his intention to do so, on payment of such compensation as Government may direct.

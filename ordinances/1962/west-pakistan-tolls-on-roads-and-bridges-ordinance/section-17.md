@@ -1,0 +1,1 @@
+17. Jurisdiction of Courts barred.__ No proceeding shall lie in any Court in respect of the amount of compensation payable under section 8 or 9 or the abatement of any rent or lease-money payable under this Ordinance.

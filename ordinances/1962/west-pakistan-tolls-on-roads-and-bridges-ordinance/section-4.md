@@ -1,0 +1,1 @@
+4. Power to Government to set up toll gates and stations.__ When the rates of tolls to be levied upon any bridge or road have been notified, Government may set up or cause to be set up at or near such bridge or road, toll-gate or stations for the collection of tolls.
