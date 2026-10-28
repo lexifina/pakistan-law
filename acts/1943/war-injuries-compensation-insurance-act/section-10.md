@@ -1,0 +1,6 @@
+10. Prohibition of certain insurance business.⸻(1) After the date on which the Scheme is put into operation no person shall, except as a person authorised by the [^23][Federal Government] as its agent to issue policies in pursuance of the Scheme, carry on the business of insuring employers in [^24][Pakistan] against the liabilities for insurance against which the Scheme provides.
+(2) Nothing in sub-section (1) applies to any policy of insurance entered into before the date on which the Scheme is put into operation and current after that date or to any policy of insurance covering liabilities undertaken in excess of the liabilities imposed by this Act.
+(3) Whoever contravenes the provisions of sub-section (1) shall be punishable with fine which may extend to five thousand rupees and with a further fine which may extend to one thousand rupees for every day after the first on which the contravention continues.
+
+[^23]: Subs. by F. A.O., 1975, Art. 2 and Sch., for “Provincial Government”.
+[^24]: Subs. by the Central Laws (Statute Reform) Ordinance, 1960 (XXI of 1960), s. 3 and 2nd Sch. (with effect from the 14th October, 1955), for “the Provinces and the Capital of the Federation” which had been subs. by A. O., 1949, for “British India”.
