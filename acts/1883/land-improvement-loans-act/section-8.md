@@ -1,0 +1,4 @@
+8. Order granting loan conclusive on certain points. A written order under the hand of an officer empowered to make loans under this Act granting a loan to, or with the consent of, a person mentioned therein, for the purpose of carrying out a work described therein, for the benefit of land specified therein, shall, for the purposes of this Act, be conclusive evidence-
+(a) that the work described is an improvement within the meaning of this Act;
+(b) that the person mentioned had at the date of the order a right to make such an improvement; and
+(c) that the improvement is one benefiting the land specified.
