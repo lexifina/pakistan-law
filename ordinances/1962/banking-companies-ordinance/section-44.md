@@ -1,0 +1,1 @@
+44. High Court defined.—In this Part and in Part IV “High Court”, in relation to a banking company, means the High Court exercising jurisdiction in the place where the registered office of the banking company is situated or, in the case of a banking company incorporated outside Pakistan, where its principal place of business in Pakistan is situated.

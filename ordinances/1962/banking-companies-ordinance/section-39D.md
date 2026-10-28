@@ -1,0 +1,2 @@
+39D. Relationship between an Islamic banking institution or Islamic financial institution
+and its customers.__ The relationship between an Islamic banking institution or Islamic financial institution and its customers with regard to any transactions or arrangements that are in conformity with the Principles of Shariah shall be determined in accordance with the contractual terms governing such transactions or arrangements.

@@ -1,0 +1,5 @@
+[^115][41C. Limitations.__ (1) No decision or order under section 41A, section 41B, clause (q) of sub-section (2) of section 42, clause (i) and (iv) of sub-section(1) of section 42C, section 42D, and sub-section (1) of section 42E shall be made except by the Executive Committee. Provided that an order under section 41A, section 41B, clause (q) of sub-section (2) of section 42 and section 42D shall be made by the Executive Committee on a report by the standing committee set up by the State Bank for the purpose. All orders on decisions of the Executive Committee under this sub-section shall be signed by the Chairman of the Executive Committee.
+(2) Any person or banking company aggrieved by any decision or order of the Executive Committee under sub-section (1) may make an appeal to the Board of Directors of the State Bank whose decision shall be final.
+(3) No action taken under sections 41A, 41B, sub-section (2) or part II-C shall be called in question by or before any court, tribunal or other authority.]
+
+[^115]: Subs., and ins. by Act No. XXIX of 2024, ss. 22-24.

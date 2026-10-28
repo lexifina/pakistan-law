@@ -1,0 +1,9 @@
+[^197][93CA. Co-operation with other authorities.__ (1) Notwithstanding anything contained in any other law for the time being in force, the State Bank may enter into any agreement or memorandum of understanding or any reciprocal arrangement with other central banks, domestic or foreign regulatory, supervisory or Resolution authority for the purpose of sharing and obtaining public or non- public confidential information or cooperating and coordinating actions relevant to the supervisory and Resolution objectives as provided in this Ordinance, subject to such measures that the State Bank may consider appropriate to protect the confidentiality of any non-public information:
+Provided that any agreement or memorandum of understanding or any reciprocal arrangement, with any foreign regulatory, supervisory or Resolution authority shall be carried out subject to the prior approval of the Federal Government.
+(2) Subject to sub-section (1) the State Bank may, upon a request from the foreign Resolution authority, make an order that the effects of a Resolution measure taken by a foreign Resolution authority be fully or partially applicable to the banking company concerned:
+Provided that, no such order shall be made, unless the State Bank is satisfied that__
+(i) in terms of its objective and anticipated results, the foreign measure is comparable to the exercise of Resolution powers under this Ordinance;
+(ii) the relevant foreign authority’s laws allow for the recognition of State Bank Resolution actions, if requested; and
+(iii) recognizing a foreign measure would contribute to the achievement of Resolution objectives under this Ordinance, or creditors of the bank or branch in Pakistan would be treated equitably under the foreign Resolution proceedings, or such recognition would have no fiscal implications in Pakistan, or not contravene the public policy of Pakistan.]
+
+[^197]: Ins. by Act No. XXIX of 2024, s.38.

@@ -1,0 +1,2 @@
+39J. Penalties.__ The State Bank shall impose separate penalties on Islamic banking institutions and Islamic financial institutions, specifically with reference to non-compliance with the Principles of Shariah. Further, the State Bank may take penal action against members of Board of
+Directors, management, and personnel of other organs of governance, including Shariah governance, for violation of their fiduciary duties and other obligations.

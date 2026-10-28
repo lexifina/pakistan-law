@@ -1,0 +1,17 @@
+42I. Temporary Public Funding for Resolution.__ (1) Where an order has been made under section 42D and in the opinion of the State Bank, public funding is required for the orderly Resolution of the banking company or a bridge bank, the Federal Government, upon a recommendation of the State Bank, may provide temporary financing for__
+(a) contributing to the capital of the banking company or the bridge bank, whether in the form of share capital to take a controlling interest or debt that meets the conditions to qualify as regulatory capital as per the requirements specified by the State Bank;
+(b) paying consideration, if any, to acquire shares of the banking company under Resolution;
+(e) making of a loan, advance, or financing to the banking company or the bridge bank;
+(d) guaranteeing the assets and liabilities of the banking company or the bridge bank;
+(e) paying for any cost incurred on Resolution of a banking company or establishment and operationalization of a bridge bank and any other cost incidental thereto;
+(f) Paying for the compensation, if any, under sub-section (7) of section 42E; or
+(g) any other financing as deemed necessary to support the orderly Resolution:
+Provided that, actions referred to in clauses (c) and (d) can also be taken with respect to the transferee bank in the context of a scheme of amalgamation prepared under section 42G of this ordinance.
+(2) No financing under sub-section (1) shall be provided by the Federal Government unless the following conditions are met:__
+(a) the orderly and timely Resolution of the banking company is necessary for maintaining the stability of the financial system;
+(b) the amount of funding available from the Deposit Protection Corporation to finance Resolution, as permitted under the Deposit Protection Corporation Act, 2016 (XXXVII of 2016), or any private sector funding would be insufficient, is not available within a reasonable timeframe;
+(c) at a minimum, holders of all classes of share capital or any sub-ordinated debt have absorbed or will absorb any losses that existed immediately before an order is made under section 42D; and
+(d) the State Bank is of the opinion that the banking company or the bridge bank will become viable with the implementation of a restructuring plan to the satisfaction of the State Bank.
+(3) Where the Federal Government becomes an owner of a controlling interest under sub-section (1), the banking company under Resolution or the bridge bank shall be managed on a commercial and professional basis and shall be subject to enhanced supervision by the State Bank. The concerned banking company or, or as the case may be, the bridge bank, shall develop a plan to the satisfaction of the State Bank and the Ministry of Finance for its exit from the public control within a reasonable time frame.
+(4) Any funding provided under sub-section (1), net of expected recoveries, and any related costs, shall be recouped within a reasonable time frame from the institutions for which the State Bank is the Resolution authority.
+(5) The Federal Government may, in consultation with the State Bank, prescribe rules for provision of the temporary public funding and the recoupment of such funds from the institutions for which the State Bank is the Resolution authority, and procedures for the utilization of exit options in a fair and transparent manner having due regard to the timing, market conditions and confidentiality requirements.]

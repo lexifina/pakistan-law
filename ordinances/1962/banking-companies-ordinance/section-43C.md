@@ -1,0 +1,5 @@
+43C. Consequences of a declaration under section 43B.—(1) A company [^121][,firm] or other person in respect of which or whom a declaration has been made under sub-section (1) of section 43B shall, on the publication of such declaration in pursuance of sub-section (2) of that section, cease to function or to transact business and any transaction with such company [^121][,firm] or person, or with any person acting or purporting to act for and on behalf of such company [^121][,firm] or person, on or after the publication of the declaration as aforesaid, shall be void.
+(2) The provisions of sub-section (1) and sections 43D, 43E and 43F shall, as far as may be, apply to a company or undertaking which is an associated undertaking of a company [^121][,firm] or person in respect of which or whom a declaration under sub-section (1) of section 43B is made.
+Explanation.—In this sub-section, “undertaking” and “associated undertaking” have the same meaning as in the monopolies and Restrictive Trade Practices (Control and Prevention) Ordinance, 1970 (V of 1970).
+
+[^121]: Ins., subs. and added by the Finance Act, 1990 (7 of 1990), s. 4A.

@@ -1,0 +1,3 @@
+6. Ordinance to override memorandum, articles, etc.— Save as otherwise expressly provided in this Ordinance,―
+(a) the provisions of this Ordinance shall have effect notwithstanding anything to the contrary contained in the memorandum or articles of a banking company, or in any agreement executed by it, or in any resolution passed by the banking company in general meeting or by its Board of Directors, whether the same be registered, executed or passed, as the case may be, before or after the commencement of this Ordinance; and
+(b) any provision contained in the memorandum, articles, agreement or resolution aforesaid shall, to the extent to which it is repugnant to the provisions of this Ordinance, become or be void, as the case may be.

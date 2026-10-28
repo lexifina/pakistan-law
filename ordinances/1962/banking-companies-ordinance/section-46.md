@@ -1,0 +1,6 @@
+46. Restriction on compromise or arrangement between banking companies and
+creditors.— (1)Notwithstanding anything contained in any law for the time being in force, no High Court shall sanction a compromise or arrangement between a banking company and its creditors or any class of them or between such company and its members or any class of them unless the compromise or arrangement is certified by the State Bank in writing as not being incapable of being worked and as not being detrimental to the interests of the depositors of such banking company.
+[^127][(2) Notwithstanding anything contained in section 279 of the Companies Act, 2017 (XIX of 2017), where an application is made in respect of a compromise or arrangement between a banking company and its creditors or any class of them or between such company and its members or any class of them before a High Court, the High Court may direct the State Bank to make an inquiry in relation to the affairs of the banking company and the conduct of its directors and when such a direction is given, the State Bank shall make such inquiry and submit its report to the High Court.]
+[^127][47. [* * * * * * *]
+
+[^127]: Subs., and omitted by Act No. XXIX of 2024, ss.28-29.

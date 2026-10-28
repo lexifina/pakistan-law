@@ -1,0 +1,3 @@
+[^195][93A. Exemption of Officers, etc., from liability.— A banking company and its officers and employees shall be exempted from criminal or civil liability of every description provided for in any law in respect of any property, movable or immovable, owned by the banking company, exclusively or jointly with another person or persons so long as the property remains in the custody, power and control of such person or persons on account of licence, lease, hire-purchase, forward sale, rent-sharing agreement or in any other arrangement within the purview of clauses (ee) and (gg) or section 5.
+
+[^195]: New sections 93A, 93B, 93C, and 93D ins. by the Banking and Financial services (Amendement of Laws) Ordinance, 1984 (57 of 1984), s.2 and sch.
