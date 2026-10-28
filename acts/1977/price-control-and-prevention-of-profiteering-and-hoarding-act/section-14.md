@@ -1,0 +1,1 @@
+14. Burden of proof in certain cases. Where any person is prosecuted for contravening any order made under section 3 which prohibits him from doing an act or being in possession of a thing without lawful authority or without a permit, licence or other document, the burden of proving that he has such authority, permit, licence or other document shall be on him.

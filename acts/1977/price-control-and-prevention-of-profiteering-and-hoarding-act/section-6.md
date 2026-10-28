@@ -1,0 +1,9 @@
+6. Fixation of prices.—(1) Subject to such general or special orders as may be made by the Federal Government under section 3, the Controller- General may, by notification in the official Gazette, fix specific maximum prices of essential commodities and different prices may be fixed for different localities or for different classes or categories of any essential commodities.
+(2) No person shall sell or re-sell any essential commodity at a price higher than the maximum price so fixed.
+[^2][(2A) Every dealer, importer or producer of an essential commodity the maximum price of which is not for the time being fixed by a notification issued under sub-section (1) shall, if so required by the Controller-General by an order in writing or by a notified order, inform the Controller-General by notice in writing forwarded to him by registered post acknowledgement due of his intention to raise the price of the essential commodity and shall not raise the price.
+(a) before the expiration of thirty days from the day on which the notice is received by the Controller-General ; or
+(b) at any time thereafter, if, within the said period, the Controller-General communicates to him an objection to the price being raised.
+(2B) A notice under sub-section (2A) shall specify the amount by which the price of the essential commodity is proposed to be raised and the reasons therefore and be accompanied by the latest annual audited accounts of the dealer, importer or producer.]
+(3) Every dealer, importer, or producer shall supply to the Controller-General such information regarding the production, importation, purchase, stock, sale or distribution of any of the essential commodities as the Controller-General may, by an order in writing or by a notified order, require.
+
+[^2]: Subs. by the Price Control and Prevention of Profiteering and Hoarding (Amdt.) Ordinance, 1979 (64 of 1979), s. 2.
