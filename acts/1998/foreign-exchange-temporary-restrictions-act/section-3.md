@@ -1,0 +1,4 @@
+3. Certain protection to remain unaffected.—(1) Subject to the provisions of this Act all the protections and immunities conferred in terms of the Protection of Economic Reforms Act, 1992 (XII of 1992), shall remain unaffected.
+(2) The Federal Government may—
+(a) make provision for the grant of further concessions for, or in relation to, amounts converted from the foreign exchange referred to in section 2 held as on the specified date into rupees, or assets acquired therefrom; and
+(b) issue financial instruments including bonds of varying maturities against the aforesaid foreign exchange which shall carry with them not less than the same entitlements, protections and immunities, as the foreign exchange held on the aforesaid date save and except for the right to immediate repayment in foreign exchange.
