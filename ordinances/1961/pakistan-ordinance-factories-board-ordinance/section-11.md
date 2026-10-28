@@ -1,0 +1,1 @@
+11. Delegation of powers.__ Subject to any rules made in this behalf by the 1[Federal Government], the Board may, by general or special order, direct that any of its powers, functions and duties under this Ordinance shall be exercised, performed or discharged also by the Chairman or any other member or any officer of the Board specified in the order.
