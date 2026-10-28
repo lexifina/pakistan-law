@@ -1,0 +1,3 @@
+30. Register of members. Any register or list of members or shares kept by any society shall be prima-facie evidence of any of the following particulars entered therein : __
+(a) the date at which the name of any person was entered in such register or list as a member;
+(b) the date at which any such person ceased to be a member.

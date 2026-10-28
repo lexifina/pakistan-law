@@ -1,0 +1,1 @@
+29. Liability of the estates of deceased members. The estate of a deceased member shall be liable for a period of one year from the date of his decease for the debts of a society as they existed at the time of his death.

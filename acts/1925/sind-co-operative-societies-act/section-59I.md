@@ -1,0 +1,5 @@
+59I. Sale proclamation to be issued unless demand is satisfied. (1) Unless the demand amount is immediately paid, the distraining officer shall issue a proclamation in [^105][the local language of the area] of the intended sale specifying the particulars of the property distrained and the demand amount for which it is distrained and shall further notify that he will, at a place and on a day specified, not being less than three or more than seven days from the date of the distraint, sell the distrained property by public auction :
+Provided that when the crop or other produce distrained is capable of being stored but has not been stored the day of the sale shall be so fixed as to allow of its being stored before the sale.
+(2) Such proclamation shall be made by beat of drum in the village in which the distrained property was seized and a copy of the proclamation shall be affixed in some public place in the village and in the Mukhtiarkar’s office.
+
+[^105]: Subs. by W.P. Ordinance VII of 1965, s. 11, (w.e.f 30.4.1965), for “Sindhi”.

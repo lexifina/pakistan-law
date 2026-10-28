@@ -1,0 +1,2 @@
+59N. Payment of purchase money.- (1) The price of each lot shall be paid at the time of sale or as soon thereafter as the officer holding the sale directs, and in default of such payment the property shall forthwith be resold.
+(2) Any deficiency of price which may happen on a resale by reason of the purchaser’s default, and all expenses attending such resale, shall be certified to the Collector by the officer holding the sale, and shall, at the instance of the society or the defaulter, be recoverable from the defaulting purchaser as if they were an arrear of land revenue.

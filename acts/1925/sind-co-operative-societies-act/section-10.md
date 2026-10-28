@@ -1,0 +1,1 @@
+10. Registration. If the Registrar is satisfied that a society has complied with the provisions of this Act and the rules and that its proposed by-laws are not contrary to this Act or to the rules, he may register the society and its by-laws.

@@ -1,0 +1,1 @@
+59O. Certificate be given to the purchaser.- When the purchase money has been paid in full the officer holding the sale shall grant a receipt for the same and the sale shall become absolute as against all person whomsoever.

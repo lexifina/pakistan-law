@@ -1,0 +1,1 @@
+20B. Provision of information by the Registrar.___ The Registrar shall provide information to any competent authority upon their request in writing, regarding the members and beneficial owners, officers and employees of the society, assets or shares held by the members in the society, their addresses, nominees of the members, properties and financial condition of the society.]

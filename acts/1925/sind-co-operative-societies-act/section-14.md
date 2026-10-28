@@ -1,0 +1,1 @@
+14. Change of name: its effect. A society may, by a resolution of a general meeting and with the approval of the Registrar, change its name : but such change shall not affect any right or obligation of the society, or of any of its members, or past members and any legal proceedings pending may be continued by or against the society under its new name.

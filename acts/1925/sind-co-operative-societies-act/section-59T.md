@@ -1,0 +1,1 @@
+59T. Suit for compensation for wrongful distraint and appeals.- No appeal shall lie against an order made by the Registrar or the Collector under this Chapter; but a person whose property is distrained on an application made under section 59C may, institute a suit against the applicant for recovery of compensation if such an application is not competent under that Section.

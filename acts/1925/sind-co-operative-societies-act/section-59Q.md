@@ -1,0 +1,1 @@
+59Q. Certain person may not purchase.- No officer or other person having any duty to perform in connection with any distraint or sale made under this Chapter and no officer or servant of an society shall, either directly or indirectly, acquire or attempt to acquire any interest in the property

@@ -1,0 +1,4 @@
+[^64][44A. Inspection of books by financing bank. (1) A financing bank shall have the right to inspect the books of any society which is indebted to it. The inspection may be made either by an officer of the financing ban or by a member of its paid staff certified by the Registrar as competent to undertake such inspection. The officer or member so inspecting shall at all reasonable times have free access to the books, accounts, documents, securities, cash and other properties belonging to or in the custody of the society and may also call for such information, statements and returns as may be necessary to ascertain the financial condition of the society and the safety of the sums lent to it by the financing bank.
+(2) The financing bank shall communicate the result of such inspection to the Registrar and the society concerned.
+
+[^64]: S. 44-A and 44-B ins. by Sind 16 of 1943, s. 9.

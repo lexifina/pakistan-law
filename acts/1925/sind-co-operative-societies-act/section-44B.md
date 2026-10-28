@@ -1,0 +1,2 @@
+44B. Power of Registrar to exercise powers under section 50A in the course of an inquiry
+or inspection. Where, in the course of any inquiry under section 43 or an inspection under section 44 or section 44A it appears to the Registrar that there exists any such ground as is specified in section 50A, he may, of his own motion or on the application of the person authorised by him under section 43 or section 44 or section 44A, exercise the powers specified in section 50A.]

@@ -1,0 +1,1 @@
+48. Society may be wound up if membership is reduced. Where it is a condition of the registration of a society that it shall consist of at least then members who are majors, the Registrar may by order in writing direct the society to be wound up, if at any time it is proved to his satisfaction that the membership has been reduced to less than ten such members.

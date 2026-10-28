@@ -1,0 +1,6 @@
+59R. Procedure where demand is paid before the sale.- (1) If at any time after a distraint has been made under this Chapter and before the sale of the distrained property the defaulter or any other person deposits with the Collector or with the distraining officer the demand amount together with such costs as may have been incurred after the service of the notice of demand, the order of distraint shall not be executed.
+(2) When the distraining officer receives the deposit he shall forthwith remit it to the Collector.
+(3) After the expiration of one month from the date on which the deposit is made under sub-section (1), the Collector shall pay to the society which applied for distraint the amount due to it :
+Provided that, if, before the expiry of the said period the Collector receives notice of any suit in which the legality of the distraint order is questioned or compensation is claimed for illegal distraint, he shall withhold payment to the society and shall deal with the money in accordance with such decree [^107][or] order as may be passed in the suit.
+
+[^107]: Subs. by the Sind Laws (Adaptation, Revision, Repeal and Declaration) Ordinance, 1955 (Sind 5 of 1955), s. 7, Sch. III, for “of”.
