@@ -1,0 +1,5 @@
+71. Disclosure of interest.— (1) The following shall apply to members of the Appellate Tribunal including the Chairman.
+(2) A Member shall be deemed to have an interest in a matter if he has any interest, pecuniary or otherwise, in such matter which could reasonably be regarded as giving rise to a conflict between his duty to honestly perform his functions, so that his ability to consider and decide any question impartially or to give any advice without bias, may reasonably be regarded as impaired.
+(3) A Member having any interest in any matter to be discussed or decided by the Tribunal, shall prior to discharge of any function or business of the Commission, disclose in writing to the Secretary to the Tribunal, the fact of his interest and the nature thereof.
+(4) A Member shall give written notice to the Secretary to the Tribunal of all direct or indirect pecuniary or other material or personal interests that he has or acquires in a body corporate involved in a matter before the Tribunal.
+(5) A disclosure of interest under sub-section (2) shall be made a part of the record of the Tribunal in that particular matter.

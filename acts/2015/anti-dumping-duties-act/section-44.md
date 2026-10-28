@@ -1,0 +1,2 @@
+44. Form of provisional measures.—Provisional measures shall take the form of security by way of cash deposit in an amount equal to the provisionally determined dumping margin set forth in the notice of preliminary determination referred to in sub- section (2) of section 37:
+Provided that release of a product concerned for free circulation in Pakistan shall be subject to provision of such security by way of cash deposit.

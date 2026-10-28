@@ -1,0 +1,5 @@
+65. Qualifications and eligibility.—(1) The members of the Appellate Tribunal shall,—
+(a) have at least a masters or professional degree or qualification from an accredited university or institute in international trade laws, business and commercial laws, economics, accountancy, tariffs and trade, commerce and trade, or a trade­related subject; knowledge of trade remedy laws would be an advantage;
+(b) have at least fifteen years of professional work experience in international trade law, business and commercial laws, economics, accountancy, harmonized tariffs, commerce and trade, tariffs and trade or other trade-related technical field; direct work experience in trade remedy laws would be an advantage;
+(c) have no past record of criminal conviction, other than for minor offences; and
+(d) have no past record of any specific activities or conduct that could reasonably call into question their ability to discharge their duties as a members of the Appellate Tribunal with honesty, integrity, reliability, competence and objectivity.

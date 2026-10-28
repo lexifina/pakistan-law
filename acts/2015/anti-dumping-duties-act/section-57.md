@@ -1,0 +1,1 @@
+57. Duration of anti-dumping duty.—Subject to the provisions of this Act any anti-dumping duty imposed under this Act shall remain in force only as long as and to the extent necessary to counteract dumping, which is causing injury.

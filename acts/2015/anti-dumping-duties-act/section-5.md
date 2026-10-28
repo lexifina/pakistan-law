@@ -1,0 +1,5 @@
+5. Normal value based on prices in exporting country.— (1) Save as provided for in section 6, the Commission shall establish normal value of an investigated product on the basis of comparable price paid or payable, in the ordinary course of trade, for sales of a like product when destined for consumption in an exporting country.
+(2) Notwithstanding anything contained in sub-section (1), the Commission may establish normal value of an investigated product on the basis of comparable price paid or payable in the ordinary course of trade for sales of a like product when destined for consumption in the country of origin of the investigated product if —
+(a) such products are not produced in an exporting country; or
+(b) there is no comparable price for them in an exporting country.
+(3) In the event the Commission decides to establish normal value on the basis of the country of origin of an investigated product pursuant to sub-section (2), any reference to an exporting country in this Act shall be deemed to refer to the country of origin of the investigated product.

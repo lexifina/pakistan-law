@@ -1,0 +1,1 @@
+35. Acquisition of information by the Commission.— The Commission shall solicit, gather, obtain, verify, accept and reject information for the purposes of an investigation in such manner as may be prescribed.

@@ -1,0 +1,2 @@
+40. Withdrawal of an application.—An application submitted pursuant to section 20 may be withdrawn at any time after an investigation has been initiated, in which case the Commission shall terminate the investigation without imposition of any measures provided for in this Act:
+Provided that the Commission may, if it considers it fit to do so, continue an investigation notwithstanding the withdrawal of an application as provided for in this section in which event, the Commission may, subject to the provisions of this Act impose such measures as are provided for in this Act.

@@ -1,0 +1,6 @@
+19. Threat of material injury.— (1) In making a determination regarding existence of a threat of material injury, the Commission shall consider all relevant factors, including but not limited to, such factors as—
+(a) a significant rate of increase of dumped imports into domestic market indicating the likelihood of substantially increased importation;
+(b) sufficient freely disposable, or an imminent and substantial increase in capacity of an exporter indicating the likelihood of substantially increased dumped exports to market in Pakistan, taking into account the availability of other export markets to absorb any additional exports;
+(c) whether imports are entering at prices that shall have a significant depressing or suppressing effect on prices in Pakistan, and would likely increase demand for further imports; and
+(d) inventories of an investigated product.
+(2) No one factor specified in sub-section (1) shall by itself, be deemed to necessarily give decisive guidance and in making a determination regarding a threat of material injury the Commission shall, on the basis of the totality of the factors considered, satisfy itself that further dumped exports are imminent and that, unless protective action is taken, material injury shall occur.

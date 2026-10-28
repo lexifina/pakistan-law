@@ -1,0 +1,5 @@
+## PART XIV
+## RETROACTIVITY
+54. Retroactive application of definitive anti-dumping duties in certain circumstances.— A definitive anti-dumping duty may be collected on products, which were imported for consumption not more than ninety days prior to the date of application of provisional measures if, the Commission determines, for a dumped product in question, that:
+(a) there is a history of dumping which caused injury or that the importer was, or should have been, aware that the exporter practices dumping and that such dumping would cause injury; and
+(b) injury is caused by massive dumped imports of a product in a relatively short time which in the light of timing and volume of dumped imports and other circumstances including, but not limited to, a rapid build-up of inventories of the imported product, is likely to seriously undermine the remedial effect of the definitive anti-dumping duty to be applied, provided that the importers concerned have been given an opportunity of being heard in respect of such proposed action.
