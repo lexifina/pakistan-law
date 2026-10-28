@@ -1,0 +1,1 @@
+7. Cognizance of offences. No Court shall take cognizance of an offence punishable under this Ordinance except upon a complaint made by the Secretary of the Medical and Dental Council or any person authorised by the Secretary and notified in the official Gazette.

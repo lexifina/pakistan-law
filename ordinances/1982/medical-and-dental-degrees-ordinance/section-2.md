@@ -1,0 +1,1 @@
+2. Definitions. In this Ordinance, “scientific Medical and Dental System” means the scientific methods of Allopathic Medicine, Obstetrics, Surgery and Dentistry, but does not include the Homoeopathic, Ayurvedic or Unani System of Medicine.
