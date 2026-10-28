@@ -1,0 +1,1 @@
+4. Removal of difficulties.If any difficulty arises in giving effect to any provisions of this Act, the President may make such orders as may appear to him to be necessary for the purpose of removing such difficulty.
