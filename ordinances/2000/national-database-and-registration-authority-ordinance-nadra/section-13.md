@@ -1,0 +1,4 @@
+13. Alien Registration Cards. The Authority shall issue or renew, or cause to be issued or renewed, in the prescribed manner and on prescribed criteria, terms and conditions, cards to such prescribed class of foreigners resident in Pakistan, whether legally or otherwise, who have got themselves registered in the prescribed manner, in such form with such periods of validity thereof and upon payment of such fee in such form and manner as may be prescribed, to be known as Alien Registration Cards and receive applications for registration therefor in the prescribed form [^3][:]
+[^3][Provided that the cards issued and registered under the Foreigners Act, 1946 (XXXI of 1946) shall be deemed to have been issued under this Ordinance and shall remain valid till such period as the Federal Government may notify in the official Gazette.]
+
+[^3]: Subs. and added by Act No. XXVII of 2016, s. 2

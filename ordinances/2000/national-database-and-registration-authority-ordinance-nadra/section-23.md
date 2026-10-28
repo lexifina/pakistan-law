@@ -1,0 +1,1 @@
+23. Power to call for proof of information. The Authority or any person authorized by it in this behalf may require a person who has given any information to furnish such documentary or other evidence of the truth of that information as it is within the power of that person to furnish.

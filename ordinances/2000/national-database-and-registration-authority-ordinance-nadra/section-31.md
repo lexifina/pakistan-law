@@ -1,0 +1,1 @@
+31. Cognizance of offences. No court shall take cognizance of any offence under this Ordinance except upon complaint in writing made by the Authority or any gazetted officer authorised by it in this behalf.

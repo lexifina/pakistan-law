@@ -1,0 +1,1 @@
+40. Indemnity. No suit, prosecution or other legal proceeding shall lie against the Federal Government or any Provincial Government or Local Authority, any Registration Officer or any other person exercising any power or performing any function under this Ordinance, for anything which is in good faith done or purporting or intended to be done under this Ordinance or any rule.

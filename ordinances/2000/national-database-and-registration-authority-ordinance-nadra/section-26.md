@@ -1,0 +1,1 @@
+26. Budget. The Authority shall, in respect of each financial year submit for the approval of Federal Government by such date and in such form as may be specified by the Federal Government a statement showing the estimated receipts and current and development expenditure and the sums which are likely to be required from the Federal Government during the next financial year.
