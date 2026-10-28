@@ -1,0 +1,1 @@
+16. Indemnity.—No suit, prosecution, or other proceedings shall lie against the Federal Government, Provincial Government, Director-General or any member of the Force or any other person exercising any power or performing any function under this Act or the rules made thereunder for anything which is done is good faith or intended to be done under this Act or the rules.

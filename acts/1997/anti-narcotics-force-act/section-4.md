@@ -1,0 +1,4 @@
+4. Superintendence and administration of the Force.—(1) The superintendence of the Force shall vest in the Federal Government.
+(2) The Administration of the Force shall vest in the Director-General who shall exercise in respect of the Force all powers of an Inspector-General of Police under the Police Act, 1861 (V of 1861); and all other powers under the Act.
+(3) In case of any officers and members from the Armed Forces, the Director-General shall have all powers conferred by or under the Pakistan Army Act, 1952 (XXXIX of 1952), the Pakistan Air Force Act, 1953 (VI of 1953), and the Pakistan Navy Ordinance, 1961 (XXXVI of 1961), respectively as an officer empowered to convene a General Court Martial:
+Provided that such powers shall be exercised only by the Director-General who is in the regular service of any of the Armed Forces.
