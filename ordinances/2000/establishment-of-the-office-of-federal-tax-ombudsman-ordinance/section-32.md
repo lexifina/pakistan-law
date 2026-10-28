@@ -1,0 +1,1 @@
+32. Representation to President:___ The Revenue Division or any person aggrieved by a recommendation of the Federal Tax Ombudsman may, within thirty days of the recommendation, make a representation to the President who may pass such order thereon as he may deem fit.

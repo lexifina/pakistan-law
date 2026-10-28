@@ -1,0 +1,2 @@
+33. Informal resolution of disputes:___ (1) Notwithstanding anything contained in this Ordinance, the Federal Tax Ombudsman and authorised Staff Members shall have the authority to informally conciliate, amicably resolve, stipulate, settle or ameliorate any grievance without written memorandum and without the necessity of docketing any complaint or issuing any official notice.
+(2) The Federal Tax Ombudsman may appoint for purposes of liaison counselors, whether honorary or otherwise, at local levels on such terms and conditions, as the Federal Tax Ombudsman may deem proper.

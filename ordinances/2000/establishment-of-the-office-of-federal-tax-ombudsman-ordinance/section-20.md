@@ -1,0 +1,2 @@
+20. Appointment of advisers and other staff:___ (1) The Federal Tax Ombudsman may appoint advisers, commissioners, consultants, experts, fellows, interns, liaison officers, bailiffs, and other staff, with or without remuneration, to assist him in the discharge of his duties under this Ordinance.
+(2) The Federal Tax Ombudsman may, in his discretion, fix an honorarium or remuneration of advisers, commissioners, consultants, experts, fellows, interns, liaison officers, bailiffs, and other staff, engaged by him from time to time for the services rendered.

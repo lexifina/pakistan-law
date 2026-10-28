@@ -1,0 +1,1 @@
+35. Expenditure to be charged on Federal Consolidated Fund:___ The remuneration payable to the Federal Tax Ombudsman and the administrative expenses of the office, including the remuneration payable to eligible Staff Members, nominees and grantees, shall be an expenditure charged upon the Federal' Consolidated Fund.

@@ -1,0 +1,1 @@
+37. Ordinance to have overriding effect:___ The provisions of this Ordinance shall have effect notwithstanding anything contrary contained in any other law for the time being in force, including the Establishment of the Office of Wafaqi Mohtasib (Ombudsman) Order, 1983 (President's Order). (I of 1983)
