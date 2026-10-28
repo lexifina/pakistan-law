@@ -1,0 +1,2 @@
+21. General.—(1) The family of a Minister shall be entitled to travel by air or by rail from the headquarters of the Minister to his hometown and back once a year at Government expense.
+(2) All reasonable precautions shall be taken by the Minister to see that the official residence, transport and furniture and furnishings provided by the Government are used with the same care with which a person’s own property is used.
