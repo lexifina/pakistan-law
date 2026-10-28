@@ -1,0 +1,4 @@
+42. Penalty for illegal or defective supply or for non-compliance with order.–Whoever–
+(a) being a licensee, save as permitted under section 27 or section 51 or by his license, supplies energy or lays down or places any electric supply-line or works outside the area of supply; or
+(b) being a licensee, in contravention of the provisions of this Act or of the rules thereunder or in breach of the conditions of his license and without reasonable excuse, the burden of proving which shall lie on him, discontinues the supply of energy or fails to supply energy; or
+(c) makes default in complying with any order issued to him under section 34, sub-section (2); shall be punishable with fine which may extend to one thousand rupees, and, in the case of a continuing offence or default, with a daily fine which may extend to one hundred rupees.

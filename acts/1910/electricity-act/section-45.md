@@ -1,0 +1,1 @@
+45. Penalty for extinguishing public lamps.–Whoever maliciously extinguishes any public lamp shall be punishable with imprisonment for a term which may extend to six months, or with fine which may extend to three hundred rupees, or with both.

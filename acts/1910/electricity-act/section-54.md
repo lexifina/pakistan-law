@@ -1,0 +1,3 @@
+54. Recovery of sums recoverable under certain provisions of Act.–[^122][Any penalty imposed under section 4, sub-section (2), every sum] declared to be recoverable by section 5, clause (f), section 6, sub-section (2), section 14, sub-section (2), clause (h), section 16, sub-section (2), section 18, sub-section (2), or sub-section (4) or section 26, sub-section (4), and every fee leviable under this Act, may be recovered, on application to a Magistrate having jurisdiction where the person liable to pay the same is for the time being resident, by the distress and sale of any moveable property belonging to such person.
+
+[^122]: Subs. by the Electricity Act (Amdt.) Ordinance, 1962 (VI of 1962), s. 4 for “Every sum”. 42

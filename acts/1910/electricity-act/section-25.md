@@ -1,0 +1,2 @@
+25. Exemption of electric supply lines or other apparatus from attachment in certain
+cases.–Where any electric supply-lines, meters, fittings, works or apparatus belonging to a licensee are placed in or upon any premises, not being in the possession of the licensee, for the purpose of supplying energy, such electric supply-lines, meters, fittings, works and apparatus shall not be liable to be taken in execution under any process of any Civil Court or in any proceedings in insolvency against the person in whose possession the same may be. .

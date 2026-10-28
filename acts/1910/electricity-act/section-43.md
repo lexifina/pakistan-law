@@ -1,0 +1,1 @@
+43. Penalty for illegal transmission or use of energy.–Whoever, in contravention of the provisions of section 30, transmits or uses energy without giving the notice required thereby, shall be punishable with fine which may extend to five hundred rupees, and, in the case of a continuing offence, with a daily fine which may extend to fifty rupees.

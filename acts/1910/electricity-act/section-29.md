@@ -1,0 +1,9 @@
+29. Power for non-licensees to break up streets.–(1) The local authority may, by order in writing, confer and impose upon any person, who has obtained the sanction of the [^60][Provincial Government] under section 28 to engage in the business of supplying energy, all or any of the powers and liabilities of a licensee under sections 12 to 19, both inclusive, and the provisions of the said sections shall thereupon apply as if such person were a licensee under Part II.
+(2) A local authority, not being a licensee, shall, for the purpose of lighting any street, have the powers and be subject to the liabilities respectively conferred and imposed by sections 12 to 19, both inclusive, so far as applicable, as if it were a licensee under Part II.
+(3) In cases other than those for which provision is made by sub-section (1), the person responsible for the repair of any street may, by order in writing, confer and impose upon any person who proposes to transmit energy in such street all or any of the powers and liabilities of a licensee under sections 12 to 19 (both inclusive), in so far as the same relate to_
+(a) opening or breaking up of the soil or pavement of such street, or
+(b) laying down or placing electric supply-lines in, under, along or across such street, or
+(c) repairing, altering or removing such electric supply lines, and thereupon the provisions of the said sections shall, so far as aforesaid, apply to such person as if he were a licensee under Part II.
+(4) If no order is made within fourteen days after the receipt of an application for the same under sub-section (1) or sub-section (3), the order so applied for shall be deemed to have been refused, and every order, and every refusal to make an order, under sub-section (1) or sub-section (3), shall be subject to revision by the [^60][Provincial Government].
+
+[^60]: Subs. by A. O., 1937 for “L. G.”.
