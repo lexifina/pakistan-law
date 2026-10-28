@@ -1,0 +1,1 @@
+14. Delegation of powers to and by Chairman.—The Authority may, by general or special order, delegate to the Chairman, a member or officer of the Authority, all or any of its powers, duties or functions under this Act subject to such conditions as it may consider fit to impose.

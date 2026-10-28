@@ -1,0 +1,1 @@
+17. Limited liability.—The liability of the Federal Government to the creditors of the Authority shall be limited to the extent of grants made by the Federal Government and the loans raised by the Authority as guaranted by the Federal Government.
