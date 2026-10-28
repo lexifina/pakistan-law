@@ -1,0 +1,1 @@
+63. Power of Provincial Government to make rules. The 3[Provincial Government] may, from time to time, make rules regulating the appointment, suspension, dismissal and remuneration of Village-registrars, and prescribing the fees to be levied by them.

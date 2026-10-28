@@ -1,0 +1,4 @@
+15D. Mortgagor may sue for account.–(1) Any agriculturist whose property is mortgaged may sue for an account of the amount of principal and interest remaining unpaid on the mortgage and for a decree declaring that amount.
+(2) When any such suit is brought, the amount (if any) remaining unpaid shall be determined under the same rules as would be applicable under this Act if the mortgagee had sued for the recovery of the debt.
+(3) At any time before the decree in the suit is signed, the plaintiff may apply to the Court to pass a decree for the redemption of the mortgage, or the mortgagee, if he would then have been entitled to sue for foreclosure or sale, may apply to the Court to pass a decree for foreclosure or sale (as the case may be), instead of a decree merely declaring the amount remaining unpaid, and the Court may, if it thinks fit, grant the application.
+(4) The provisions of section 15B shall apply to any decree passed under sub-section (3).]

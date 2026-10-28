@@ -1,0 +1,4 @@
+[^37][15C. Power to order payment by instalments in suits for possession of mortgaged property.–(l) The Court may, if it thinks fit, in any suit for the possession of mortgaged property under section 3, clause (y), instead of passing a decree for possession of that property, pass a decree directing that the amount payable by the mortgagor shall be payable in such instalments, on such dates and on such terms as to the payment of interest, and as to the appropriation of the profits and accounting therefor, as it thinks fit.
+(2) If a sum payable under any such direction is not paid when due, the Court may, if it thinks fit, instead of making any other order which it is empowered to make for the realisation of that sum make an order directing that the mortgagee be put in possession of the whole or any portion of the property mortgaged.
+
+[^37]: Ss.15C and 15D, ins. by the Dekkhan Agriculturists’ Relief Act, 1882 (22 of 1882), s. 6.

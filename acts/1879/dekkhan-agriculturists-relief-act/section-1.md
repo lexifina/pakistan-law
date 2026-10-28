@@ -1,0 +1,13 @@
+## CHAPTER I
+## PRELIMINARY
+[^2]1. Short title. Commencement. This Act may be cited as the [^3]Dekkhan Agriculturists’ Relief Act, 1879: and it shall come into force on the first day of November, 1879.
+Local extent. [^4][This section and] sections 11, 56, 60 and 62 extend to [^5][the whole of Pakistan]. [^6][The rest of this Act may, from time to time, be extended wholly or in part by the Provincial Government of [^7][West Pakistan to any part or parts of Sindh], or by the [^8][Federal Government] to any part or parts of the [^9][Karachi Division]].
+
+[^2]: Section 1 has been amended in its application to the Province of West Pakistan (except the Capital of the Federation) by the West Pakistan Act 16 of 1957, s. 3 (3) and 3rd Sch. (with effect from the 14th October, 1955).
+[^3]: Acts 17 of 1879, 23 of 1881 and 22 of 1882 may be cited collectively as the Dekkhan Agriculturists’ Relief Acts, 1879 to 1882-see s. 1 (1) of the Dekkhan Agriculturists’ Relief Act, 1882 (22 of 1882). The Acts of 1879 to 1882 and Act 23 of 1886 may be cited collectively as the Dekkhan Agriculturists’ Relief Act 1879 to 1886-see. s.1(1) of the Dekkhan Agriculturists’ Relief Act, 1886 (23 of 1886). The Acts of 1879 to 1886 and Act 6 of 1895 may be cited collectively as the Dekkhan Agriculturists’ Relief Acts, 1879 to 1895-see s.1(1) of the Dekkhan Agriculturists’ Relief Act, 1895 (6 of 1895). The Acts of 1879 to 1895 and Bom. Act I of 1902 may be cited collectively as the Dekkhan Agriculturists’ Relief Acts, 1876 to1902-see s. 1(1) of the Dekkhan Agiculturists’ Relief Act, 1902 (Bom. 1 of 1902).
+[^4]: These words were ins. by Dekkhan Agriculturists’ Relief Act, 1881 (23 of 1881), s. 3, and are to be deemed to have always been inserted.
+[^5]: Subs. by the Central Laws (Statute Reform) Ordinance, 1960 (21 of 1960), s. 3 and 2nd Sch. (with effect from the 14th October, 1955), for “all the Provinces and the Capital of the Federation” which had been subs. by A.O., 1949 Arts. 3(2) and 4, for “the whole of British India”.
+[^6]: Subs. by A.O., 1949, Sch., for the original text as amended by A.O., 1937 the Dekkhan Agriculturists’ Relief Act, 1886 (23 of 1886), the Dekkhan Agriculturists’ Relief Act, 1895 (6 of 1895), and the Devolution Act, 1920 (38 of 1920).
+[^7]: Subs. by Ord. 21 of 1960, s. 3 and 2nd Sch., for “Sindh to any part or parts of the province” (with effect from the 14th October,1955).
+[^8]: Subs. by F. A.O.,1975, Art. 2 and Table, for “Central Government”.
+[^9]: Subs. by A.O., 1964, Art. 2 and Sch., for “Federal Territory of Karachi”, which had been subs. by the Repealing and Amending Ordinance, 1961 (1 of 1961), s. 3 and 2nd Sch., for “Capital of the Federation.”

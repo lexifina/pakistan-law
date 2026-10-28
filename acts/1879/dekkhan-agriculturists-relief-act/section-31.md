@@ -1,0 +1,1 @@
+31. Insolvent incompetent to sell etc., property dealt with under sections 29 and 30. So long as any management under section 29 or letting under section 30 continues, the insolvent and his representative in interest shall be incompetent to mortgage, charge, lease or alienate the property managed or let, or any part thereof.

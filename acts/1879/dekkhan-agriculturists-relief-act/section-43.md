@@ -1,0 +1,2 @@
+43. Any agreement arrived at to be reduced to writing. If on the day on which the case is first heard by the Conciliator, or any subsequent day to which he may adjourn the hearing, the parties come to any agreement, either finally disposing of the matter or for referring it to arbitration, such agreement shall be forthwith reduced to writing, and shall be read and explained to the parties, and shall be signed or otherwise authenticated by the Conciliator and the parties respectively.
+Explanation.-A Conciliator may be appointed arbitrator under this section.

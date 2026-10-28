@@ -1,0 +1,1 @@
+41. When all parties appear, Conciliator to endeavour to reconcile them. Whenever all the parties are present, the Conciliator shall call upon each in turn to explain his case regarding the matter in question, and shall use his best endeavours to induce them to agree to an amicable settlement or to submit such matter to arbitration.
