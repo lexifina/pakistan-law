@@ -1,0 +1,6 @@
+88. Registration of documents executed by Government officers or certain public
+functionaries.—(1) Notwithstanding anything herein contained, it shall not be necessary for any officer of Government, [^95]* * * or for any Official Trustee or Official Assignee, or for the [^96]*, Receiver or Registrar of a High Court, to appear in person or by agent at any registration office in any proceeding connected with the registration of any instrument executed by him in his official capacity, or to sign as provided in section 58.
+(2) Where any instrument is so executed, the registering officer to whom such instrument is presented for registration may, if he thinks fit, refer to any Secretary to Government or to such officer of Government, Administrator-General, Official Trustee, Official Assignee, [^96]*, Receiver or Registrar, as the case may be, for information respecting the same, and, on being satisfied of the execution thereof, shall register the instrument.
+
+[^95]: The words "or for the Administrator-General of East Pakistan", omitted by Federal Laws (Revision and Declaration). Ordinance, 1981, s. 3 and Second Sch. which was amended by A.O., 1949 and A. O., 1961, Art. 2 and Sch.
+[^96]: The word “Sheriff” omitted, by A. O., 1949.

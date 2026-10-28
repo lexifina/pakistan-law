@@ -1,0 +1,2 @@
+67. Procedure after registration under section 30, sub-section (2).— On any document being registered under section 30, sub-section (2), a copy of such document and of the endorsements and certificate thereon shall be forwarded to every Registrar within whose district any part of the property to which the instrument relates is situate, and the Registrar receiving such copy shall follow the procedure prescribed for him in section 66, sub-section (1).
+(E) Of the Controlling Powers of Registrars and Inspectors-General

@@ -1,0 +1,1 @@
+44. Withdrawal of sealed cover deposited under section 42.— If the testator who has deposited such cover wishes to withdraw it, he may apply, either personally or by duly authorized agent, to the Registrar who holds it in deposit, and such Registrar, if satisfied that the applicant is actually the testator or his agent, shall deliver the cover accordingly.

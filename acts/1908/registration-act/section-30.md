@@ -1,0 +1,4 @@
+30. Registration by Registrars in certain cases.—(1) Any Registrar may in his discretion receive and register any document which might be registered by any Sub-Registrar subordinate to him.
+[^52][(2) Notwithstanding anything contained in section 28 any Registrar may receive and register any document without regard to the situation in any part of Pakistan of the property to which the document relates if he is satisfied that there is sufficient cause for doing so.]
+
+[^52]: Subs. by the Registration (Amdt.) Ordinance, 1962 (45 of 1962), s. 6, for the original sub-section (2) as amended by A.O., 1949, the Registration (Amdt.) Act, 1950 (69 of 1950), s.2. the Registration (Amdt). Act, 1957 (1 of 1958), s. 2 and the Central laws (Statute Reform) Ordinance, 1960 (21 of 1960), s. 3 and 2nd Sch. (with effect from the 14th October, 1955)

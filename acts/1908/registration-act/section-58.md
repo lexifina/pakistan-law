@@ -1,0 +1,5 @@
+58. Particulars to be endorsed on documents admitted to registration.—(1) On every document admitted to registration, other than a copy of a decree or order, or a copy sent to a registering officer under section 89, there shall be endorsed from time to time the following particulars, namely:—
+(a) the signature and addition of every person admitting the execution of the document, and, if such execution has been admitted by the representative, assign or agent of any person, the signature and addition of such representative, assign or agent;
+(b) the signature and addition of every person examined in reference to such document under any of the provisions of this Act; and
+(c) any payment of money or delivery of goods made in the presence of the registering officer in reference to the execution of the document, and any admission of receipt of consideration, in whole or in part, made in his presence in reference to such execution.
+(2) If any person admitting the execution of a document refuses to endorse the same, the registering officer shall nevertheless register it, but shall at the same time endorse a note of such refusal.
