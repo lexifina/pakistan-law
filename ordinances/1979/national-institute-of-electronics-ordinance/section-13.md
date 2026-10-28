@@ -1,0 +1,1 @@
+13. International cooperation. The Institute may with the prior approval of the Federal Government cooperate with any foreign agency or international organization for the development of electronics, pursuant to an international agreement or arrangement made before or after the establishment of the Institute.

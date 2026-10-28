@@ -1,0 +1,1 @@
+16. Ordinance XXIII of 1969 not to apply to Institute. Nothing contained in the Industrial Relations Ordinance, 1969 (XXIII of 1969), shall apply to or in relation to the Institute or any of the officers, employees, consultants or experts employed by it.
