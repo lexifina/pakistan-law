@@ -1,0 +1,12 @@
+[^4][2. Constitution of police forces for special purposes.—(1) Notwithstanding anything in [^5]* * *, the Police Act, 1861(V of 1861), [^6]* * * [^7]* * *, the [^8][Federal Government] may, by notification [^9]in the official Gazette, create a special police district embracing parts of two or more Provinces, and extend to every part of the said district the powers and jurisdiction of members of a police force belonging to any part of l0[Pakistan (Bom. IV of 1890)] specified in the notification.
+8
+(2) Subject to any orders which the [Federal Government] may make in this behalf, members of the said police force shall have, within every part of any Province of which any part is included in the said district, the powers, duties, privileges and liabilities which, as police officers, they have in their own Province.
+(3) Any member of the said police force whom the [^8][Federal Government] shall generally or specially empower to act under this sub-section may, subject to any orders which the l[Federal Government] may make in this behalf, exercise within any Province any part of which is included in the said district any of the powers of the officer in charge of a police-station in that Province, and when so exercising any such powers, shall, subject to any such order as aforesaid, be deemed to be an officer in charge of a police-station discharging the functions of such an officer within the limits of his station.
+(4) A part of a Province included in the said district shall not by reason of that inclusion cease, for the purposes of any enactment relating to police, to be part of that Province.
+
+[^4]: Subs. by A. O., 1937, for the original section as amended by the Amending Act, 1891 (12 of 1891).
+[^5]: The words and figures “the Madras District Police Act, 1859”, omitted by A. O., 1949, Sch.
+[^6]: Omitted by the Federal Laws (Revision and Declaration) Ordinance, 1981 (27 of 1981), s. 3 and 2nd Sch.
+[^7]: The words “or any Act relating to the Police in any Presidency-town”, omitted, ibid.
+[^8]: Subs. by F.A.O., 1975, Art. 2 and Table, for “Central Government”.
+[^9]: For such notifications, see Gen. R. & O., and the Gazette of India, 1937, Extraordinary, dated 1st April, 1937, pp. 671 and 672, and ibid., Pt. I, pp. 873 and 1553.
