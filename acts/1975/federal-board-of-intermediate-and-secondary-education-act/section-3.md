@@ -1,0 +1,2 @@
+3. Constitution of the Board.__ (1) The Federal Government shall, as soon as may be after the commencement of this Act, establish a Board to be known as the Federal Board of Intermediate and Secondary Education.
+(2) The Board shall be a body corporate having perpetual succession and a common seal with powers to acquire, hold and dispose of property, both movable and immovable, and shall by the aforesaid name sue and be sued.

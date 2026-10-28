@@ -1,0 +1,5 @@
+6. Terms of members of the Board.__ (1) Unless the Federal Government, being of the opinion that it is necessary in the public interest so to do, removes him from office, a member, other than an ex‑officio member, shall hold office for a period of three years from the date of his election or nomination, as the case may be.
+(2) No ex-officio member shall continue to be a member if he ceases to hold the office by virtue of holding which he was appointed.
+(3) Any casual vacancy in the office of a member, other than an ex-officio member, shall be filled by election or nomination, as the case may be and the person so elected or nominated shall hold office for the unexpired period of the term of his predecessor.
+(4) Any member of the Board may, by writing under his hand addressed to the Chairman, resign his office, provided that the resignation shall not have effect until it is accepted by the Chairman.
+(5) A member shall, on the expiry of his term of office, be eligible for re-election or re-nomination.

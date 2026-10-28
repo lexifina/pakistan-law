@@ -1,0 +1,1 @@
+16. Provident fund.__ The Board may establish a provident fund for the benefit of its employees and, where it establishes such fund, the provisions of the Provident Funds Act, 1925 (XIX of 1925), shall apply to such fund.
