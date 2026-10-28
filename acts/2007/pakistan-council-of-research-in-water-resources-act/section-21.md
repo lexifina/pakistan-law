@@ -1,0 +1,1 @@
+21. Discoveries and inventions to vest in the Council. All rights relating to discoveries and inventions and any improvements in materials, methods, processes, apparatus or equipment made by any officer or employee of the Council in the course of his employment shall vest in the Council and the researchers as per rules.

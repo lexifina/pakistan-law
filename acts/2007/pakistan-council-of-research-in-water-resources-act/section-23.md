@@ -1,0 +1,1 @@
+23. Continuance of certain rules. All rules, regulations and bye-laws made by the Council and in force immediately before the commencement of this Act shall apply mutadtis mutandis, and so far as they are not inconsistent with any of the provisions of this Act, continue in force until repealed or altered by rules or regulations made under this Act.
