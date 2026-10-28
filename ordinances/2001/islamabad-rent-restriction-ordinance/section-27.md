@@ -1,0 +1,1 @@
+27. Landlord and tenant to furnish particulars. Every landlord and every tenant of building or rented land shall furnish to the Controller, or any person authorised by him in that behalf, such particulars in respect of such building or rented land as he may, by order, direct.

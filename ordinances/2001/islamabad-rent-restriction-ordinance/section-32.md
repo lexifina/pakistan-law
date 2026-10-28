@@ -1,0 +1,3 @@
+32. Repeal and savings.—(1) The West Pakistan Urban Rent Restriction Ordinance, 1959(W.P. Ord.VI of 1959), to the extent of the Islamabad Capital Territory, is hereby repealed.
+(2) Nothing contained in this Ordinance shall be deemed to apply to suits or appeals falling within the jurisdiction of the Controller, or the applications relating thereto, which were pending before any court immediately before the commencement of this Ordinance and such suits, appeals or applications shall continue to be heard and disposed of in accordance with the law applicable to them before such commencement.
+___________

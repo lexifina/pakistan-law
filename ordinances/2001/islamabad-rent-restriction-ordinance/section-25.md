@@ -1,0 +1,5 @@
+25. Service of summons and production of witnesses.—(1) Service of summons once effected on a party shall be sufficient for the purposes of the entire proceedings before the Controller.
+(2) The production of witnesses shall be the responsibility of the parties and the Controller shall not summon a witness unless he is satisfied that the witness is a servant of the Federal Government, a Provincial Government, local authority or a corporate body and that he has to produce official record of such Government, local authority or corporate body as the same may be.
+(3) Except for sufficient reasons to be recorded in writing, the Controller shall finally dispose of an application under this Ordinance as expeditiously as possible but not later than four months of the date of the first hearing after the service of summons on the respondent.
+(4) The proceedings of every inquiry shall be deemed to be judicial proceedings within the meaning of sections 193 and 228 of the Pakistan Penal Code 1860(Act XLV of 1860).
+(5) The Controller shall be deemed to be a Civil Court for the purposes of sections 480 and 482 of the Code of Criminal Procedure, 1898(Act V of 1898).

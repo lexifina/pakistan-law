@@ -1,0 +1,3 @@
+13. Money which should not have been paid may be recovered.(1) Where after the commencement of this Ordinance any sum not payable by a tenant under this Ordinance has been paid by him, such sum may, without prejudice to any other mode of recovery, be deducted by the tenant from the rent payable by him to the landlord:
+Provided that no such deduction shall be made by the tenant unless it has been allowed by the Controller on an application made by the tenant within six months of the payment of such sum.
+(2) The Controller may, on an application made by the tenant within six months of his having made payment of any such sum as is referred to in sub-section (1), by order, direct the landlord to deposit the said sum within thirty days of the order for payment to the tenant.
