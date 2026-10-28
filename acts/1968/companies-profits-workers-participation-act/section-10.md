@@ -1,0 +1,1 @@
+10. Act to override other laws. __ The provisions of this Act shall have effect notwithstanding anything contained in any other law for the time being in force, or in any contract or the memorandum or articles of association of a company.]
