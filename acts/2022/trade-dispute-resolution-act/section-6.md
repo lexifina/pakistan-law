@@ -1,0 +1,1 @@
+6. Head office.__ The head office of the Commission shall be at Islamabad and the Commission may establish and close down offices at such other places in Pakistan as it considers necessary, subject to the approval of the division concerned.

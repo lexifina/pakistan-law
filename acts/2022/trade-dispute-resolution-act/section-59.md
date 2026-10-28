@@ -1,0 +1,1 @@
+59. Power to issue guidelines.__ The Commission shall from time to time, without prejudice to the rules and regulations make under section 58, issue guidelines for the parties for carrying out the purposes of this Act.

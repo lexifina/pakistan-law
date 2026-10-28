@@ -1,0 +1,1 @@
+22. Officers and employees, etc., to be public servants.__ The Charman, members and employees of the Commission authorized to perform any function or exercise any power under this Act shall be deemed to be public servants within the meaning of section 21 of the Pakistan Penal Code (Act XLV of 1860).

@@ -1,0 +1,1 @@
+41. Appeal against Commission’s final determinations.__ Any party aggrieved by final determination of the Commission may, within fifteen days of the receipt thereof prefer an appeal to the commercial bench of the High Court concerned against such order.

@@ -1,0 +1,2 @@
+46. Completion of conciliation.__ (1) Upon successful completion of conciliation, where parties have reached an amicable solution, parties shall execute an agreement to evidence the same and a copy thereof shall be filed with the Commission.
+(2) If conciliation fails, parties shall have the option to refer the matter back to the Commission for another referral or initiation of proceedings by the Commission for making a final determination.

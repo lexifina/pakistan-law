@@ -1,0 +1,2 @@
+11. Chairman.__ (1) The Chairman shall be the chief executive of the Commission and shall be responsible, along with the members of the Commission, for the swift execution of all functions and affairs of the Commission.
+(2) The Chairman may, by general or special order in writing, subject to such limitations, restrictions or conditions as may be specified therein, delegate all or any of his powers and functions to any member or the secretary, including the powers delegated to him under section 26.

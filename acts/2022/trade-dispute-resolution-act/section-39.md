@@ -1,0 +1,1 @@
+39. Failure of parties to respond.__ In the event that any one or more of the parties against whom a complaint has been filed under section 29, fails to appear at the date notified by the Commission in the notice to appear, the Commission may nevertheless proceed towards passing a binding and valid final determination.

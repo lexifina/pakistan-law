@@ -1,0 +1,1 @@
+12. Acting Chairman.__ At any time when the position of the Chairman is vacant, or the Chairman is unable to perform his functions due to any cause, the division concerned shall appoint any member of the Commission to be acting Chairman of the Commission until the appointment or return of a Chairman on regular basis.

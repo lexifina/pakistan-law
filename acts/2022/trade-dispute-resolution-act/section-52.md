@@ -1,0 +1,1 @@
+52. Extent of powers.__ The Commission may exercise its powers under section 51 within Pakistan and in any foreign jurisdiction with or without the assistance of any Pakistan embassy or mission abroad in so far as permitted by local law of foreign country.

@@ -1,0 +1,1 @@
+4. Non-intervention.__ Notwithstanding anything contained in any other law for the time being in force in matters governed by this Act, no court or tribunal may intervene except in the manner as provided by this Act.
