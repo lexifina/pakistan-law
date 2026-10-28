@@ -1,0 +1,3 @@
+25. Submission of yearly report, returns, etc.___The Authority shall submit to the Federal Government, and publish, as soon as possible after the end of every financial year but before the last day of December the next following year,-
+(a) a report on the conduct of its affairs for that financial year, including anticipated developments for the following financial year; and
+(b) a report on the railway industry in Pakistan, insofar as it relates to regulated activities, identifying the ownership, operation, management, control, efficiency and cost of regulated activities and other matters related to regulated activities.

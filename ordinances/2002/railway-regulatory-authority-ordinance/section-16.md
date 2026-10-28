@@ -1,0 +1,1 @@
+16. Railway administration as deemed licensee.―The railway administration shall be deemed to have been granted by the Authority, on a non-exclusive basis, licenses on terms and conditions to be notified from time to time, by the Authority, in relation to all licensed sections unless a license provides otherwise.

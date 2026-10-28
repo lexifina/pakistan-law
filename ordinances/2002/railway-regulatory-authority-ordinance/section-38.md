@@ -1,0 +1,1 @@
+38. Immunity.― Except as expressly provided in this Ordinance, no suit, prosecution or other legal proceedings shall lie against the Authority, the Chairman or any member, employee, expert, consultant or advisor of the Authority in respect of anything done or intended to be done in good faith under this Ordinance, the rules or regulations.

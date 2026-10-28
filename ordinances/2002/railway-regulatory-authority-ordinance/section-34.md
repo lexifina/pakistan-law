@@ -1,0 +1,1 @@
+34. Appeals against order of a delegate.― Any person aggrieved by any order or decision of the delegatee of a power delegated by the Authority under section 10 may appeal, within thirty days of the receipt of such decision or order, to the Authority and the Authority shall hear and decide on the appeal within ninety days from the date of its presentation.

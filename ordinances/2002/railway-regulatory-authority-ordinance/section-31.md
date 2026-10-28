@@ -1,0 +1,2 @@
+31. Inspection by public.___ (1) Subject to section 37, the Authority shall maintain public files that shall be kept open in convenient form for public inspection and examination during reasonable business hours, on payment of such reasonable fees as the Authority may prescribe.
+(2) Subject to procedures and standards for confidentiality prescribed by the Authority, the Authority's files shall include all relevant documents to be maintained and indexed as the Authority deems fit.
