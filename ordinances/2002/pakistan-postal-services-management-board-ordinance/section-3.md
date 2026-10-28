@@ -1,0 +1,6 @@
+3. Establishment of the Pakistan Postal Services Management Board.―(1) For the management of the Pakistan Post Office Department, there is hereby established a board to be known as the Pakistan Postal Services Management Board.
+(2) The Board shall be a body corporate having perpetual succession and a common seal, with power, subject to the provisions of this Ordinance, to acquire, hold and dispose of its property, both movable and immovable, and shall by its name sue and be sued.
+[^2][(3) The Board shall consist of following members, namely:―
+S.No. Membership Status (1) (2) (3) (a) a suitable person to be appointed by the Federal Chairman Government from among the independent members (b) Director General or Chief Executive Officer of Pakistan Member Post Office Department ex-officio (c) a Joint Secretary or equivalent of the division to which Member business of finance of the Federal Government stands ex-officio allocated (d) a Joint Secretary or equivalent of the division to which Member business of the Pakistan Post Office Department stands ex-officio allocated (e) two senior technical officers of Postal Group not below Member the BPS-21 or equivalent ex-officio (f) six suitable persons of eminence and known integrity to Members be appointed by the Federal Government (independent)]
+
+[^2]: Added, subs., ins. and omitted by Act No. VIII of 2024, ss. 2-4.

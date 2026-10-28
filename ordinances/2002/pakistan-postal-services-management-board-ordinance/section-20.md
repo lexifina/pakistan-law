@@ -1,0 +1,1 @@
+20. Internal audit.― The Board shall, in addition to the audit under section 19, cause to be carried out internal audit of the accounts of the Pakistan Post Office Department for submission to the Board through the Chairman.
