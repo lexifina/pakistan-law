@@ -1,0 +1,1 @@
+7. Remittances by foreign employees.—Foreign nationals employed with the approval of the Federal Government in any industrial undertaking having foreign private investment may make remittances for the maintenance of their dependents in accordance with the rules, regulations or orders issued by the Federal Government or the State Bank of Pakistan.

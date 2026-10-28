@@ -1,0 +1,3 @@
+8. Tax concession and avoidance of double taxation.—(1) The Federal Government may allow such concessions to industrial undertakings having foreign private investment as may be admissible under any law for the time being in force.
+(2) Foreign private investment shall not be subject to other or more burdensome taxes on income than those applicable to investment made in similar circumstances by citizens of Pakistan.
+(3) Foreign private investment shall be allowed all the tax concessions which may be admissible on the basis of any agreement for avoidance of double taxation which the Government of Pakistan may have entered into with the Government of the country of origin of such investment.
