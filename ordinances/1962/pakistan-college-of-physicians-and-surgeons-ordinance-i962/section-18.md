@@ -1,0 +1,1 @@
+18. Bar to suits, etc.___No suit, prosecution of other legal proceedings shall lie against the College, Council or any person for anything which is in good faith done or intended to be done under this Ordinance.

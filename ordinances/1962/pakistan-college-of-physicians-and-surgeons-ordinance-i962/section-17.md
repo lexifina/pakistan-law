@@ -1,0 +1,1 @@
+17. The President, etc., of the Council to be public servant.___The President and other members of the Council, and every officer and servant of the College acting or purporting to act under this Ordinance, shall be deemed to be public servants within the meaning of section 21 of the Pakistan Penal Code (Act XLV of 1860).

@@ -1,0 +1,2 @@
+3. Establishment of the College.___(1) As soon as may be after the commencement of this Ordinance, there shall be established a College, to be called the Pakistan College of Physicians and Surgeons.
+(2) The College shall be a body corporate, having perpetual succession and a common seal, with power to acquire, hold and dispose of property, both movable and immovable, and shall, by the said name, sue and be sued.

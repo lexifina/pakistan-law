@@ -1,0 +1,2 @@
+15. Budget and Annual Report.___(1) The Council shall, before the close of every financial year, prepare an annual report of the working of the Council and a statement of the estimate of the receipts and expenditure of the College for the next succeeding financial year, and present at the Annual Meeting of the College the report and the statement which may be discussed at the meeting.
+(2) After the close of the Annual Meeting of the College, the Council shall approve the estimate of receipts and expenditure, with or without modification.
