@@ -1,0 +1,4 @@
+[^39][21. Qualifications for admission to institutions.⸺(1) The minimum qualifications required for admission to a recognized institutions of Unani or Ayurvedic System of medicine shall be matriculation with science or equivalent examination of any university or education board in Pakistan established by or under any law for the time being in force.
+(2) The minimum qualifications required for admission to a recognized institution of homoeopathy shall be intermediate with science (F.Sc. Pre-medical) or equivalent examination of any university or education board in Pakistan established by or under any law for the time being in force, but those with bachelor or higher qualification with science shall be entertained.]
+
+[^39]: Subs. by the Unani, Ayurvedic and Homoeopathic Practitioners (Amendment) Act, 2021 (LI of 2021), s. 2.
