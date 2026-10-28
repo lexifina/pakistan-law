@@ -1,0 +1,2 @@
+4.Penalities. (1) Whoever does or attempts to do, any act in contravention of section 3, shall be punishable with fine which may extend to fifty rupees.
+(2) Whoever, having already been convicted of an offence under this section, is again convicted thereunder shall, on every subsequent conviction, be punishable with imprisonment for a term which may extend to one month, or with fine which may extend to one hundred rupees, or with both.
