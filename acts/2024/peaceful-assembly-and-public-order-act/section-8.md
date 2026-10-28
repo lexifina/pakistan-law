@@ -1,0 +1,2 @@
+8. Punishment.__ (1) Whoever is a member of an unlawful assembly, shall be punished with imprisonment of either description for a term which may extend to three years, or with fine, or with both.
+(2) Whoever, having been convicted by a court in Pakistan of an offence punishable under this Act with imprisonment for a term of three years or more, shall, for every subsequent offence, be subject to imprisonment for a term that may extend to ten years.
