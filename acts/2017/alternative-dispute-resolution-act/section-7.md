@@ -1,0 +1,1 @@
+7. Appearance of parties.—Upon referring the matter for ADR, the Court shall direct the parties to appear before the Neutral or ADR Centre, as the case may be, on the date and time fixed by the Court.
