@@ -1,0 +1,2 @@
+6. Consequences for non-payment of levy.__ (1) If the amount of levy is not paid within the specified time by the captive power plant, the same shall be recoverable under sub-section (2) and in case of persistent default in payment, the agent shall terminate the gas supplies to the defaulted captive power plant.
+(2) The amount of levy due but not paid within the time allowed shall be recoverable under the provisions of the Public Finance Management Act, 2019.
