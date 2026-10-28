@@ -1,0 +1,1 @@
+28. Application of fines recovered under sections 25, 26 or 27. All fines recovered under section 25, section 26 or section 27 may be appropriated in whole or in part as compensation for loss or damage proved to the satisfaction of the convicting Magistrate.
