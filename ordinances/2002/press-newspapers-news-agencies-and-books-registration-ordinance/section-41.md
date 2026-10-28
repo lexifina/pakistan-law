@@ -1,0 +1,1 @@
+41. Certificates of Registration.___ On receiving a copy of declaration from the District Coordination Officer, the Press Registrar shall within seven days, issue a certificate of registration of the newspaper to its publisher.

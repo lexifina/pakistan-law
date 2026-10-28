@@ -1,0 +1,1 @@
+38. Publication of the memoranda registered.___ The memoranda registered during each quarter in the said Catalogue of Books shall be published in the official Gazette, as soon as may be after the end of quarter.

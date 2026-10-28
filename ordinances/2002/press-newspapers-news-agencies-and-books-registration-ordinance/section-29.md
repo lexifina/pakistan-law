@@ -1,0 +1,1 @@
+29. Penalty for failure to make a declaration.___ If any person who has ceased to be a printer or publisher of any newspaper fails or neglects to make a declaration in compliance with section 16, he shall be punishable with fine not exceeding twenty thousand rupees.

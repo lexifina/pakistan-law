@@ -1,0 +1,1 @@
+36. Cognisance of offence.___ No Court inferior to that of a Magistrate of the First Class shall take cognisance of, or try, an offence punishable under this Ordinance nor shall any Court take cognisance or try any such offence except on a complaint made in writing by the Government or by an officer authorized in this behalf by the Government.

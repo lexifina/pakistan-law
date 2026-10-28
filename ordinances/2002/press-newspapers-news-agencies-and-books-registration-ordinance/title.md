@@ -1,0 +1,10 @@
+# PRESS NEWSPAPER, NEWS AGENCIES AND BOOKS REGISTRATION
+ORDINANCE,2002.
+PRESS NEWSPAPER, NEWS AGENCIES AND BOOKS REGISTRATION
+ORDINANCE, 2002.
+ORDINANCE No. XCVIII OF 2002
+[26th Oct, 2002]
+An Ordinance to amend and consolidate the law relating to news agencies publications and printing presses
+WHEREAS it is expedient to amend and consolidate the law relating to news agencies, publications and printing presses and to provide for matters connected therewith or ancillary thereto;
+AND WHEREAS the President is satisfied that circumstances exist which render it necessary to take immediate action;
+NOW, THEREFORE, in pursuance of Proclamation of Emergency of the fourteenth day of October, 1999 and the Provisional Constitution Order No. 1 of 1999 read with the Provisional Constitution (Amendment) Order No.9 of 1999, and in exercise of all powers enabling him in that behalf, the President of the Islamic Republic of Pakistan is pleased to make and promulgate the following Ordinance:-

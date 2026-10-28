@@ -1,0 +1,1 @@
+35. Responsibility as regards to the offences and its cognizance.___ Notwithstanding anything contained in this Ordinance or any other law for the time being in force, only such person or persons by whose wilful intention, mistake, negligence or ignorance any material is published which is an offence under this Ordinance or any other law, shall be tried and punished.

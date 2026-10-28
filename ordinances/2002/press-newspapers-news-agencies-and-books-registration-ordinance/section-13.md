@@ -1,0 +1,1 @@
+13. Deposit of authenticated declaration.___ The duplicate originals of the declarations authenticated under section 10, or the receipts of the declarations which are deemed to have been authenticated under section 10, shall be deposited in the office of the District Co-ordination Officer and with the Press Register.
