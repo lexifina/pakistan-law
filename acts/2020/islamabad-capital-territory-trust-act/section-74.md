@@ -1,0 +1,7 @@
+74. Wrongful purchase by trustee.— (1) Where a trustee has wrongfully bought trust property, the beneficiary has a right to have the property declared subject to the trust or retransferred by the trustee, if it remains in his hands unsold, or, if it has been bought from him by any person with notice of the trust, by such person. But in such case the beneficiary must repay the purchase money paid by the trustee, with interest, and such other expenses, if any as he has properly incurred in the preservation of the property and the trustee or purchaser must,—
+(a) account for the net profits of the property;
+(b) be charged with an occupation-rent, if he has been in actual possession of the property; and
+(c) allow the beneficiary to deduct a proportionate part of the purchase-money if the property has been deteriorated by the acts or omissions of the trustee or purchaser.
+(2) Nothing in this section —
+(a) impairs the rights of lessees and others who, before the institution of a suit to have the property declared subject to the trust or retransferred, have contracted in good faith with the trustee or purchaser; or
+(b) entitles the beneficiary to have the property declared subject to the trust or retransferred where he being competent to contract has himself, without coercion or undue influence having been brought to bear on him, ratified the sale to the trustee with full knowledge of the facts of the case and of his rights as against the trustee.

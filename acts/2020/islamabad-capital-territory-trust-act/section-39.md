@@ -1,0 +1,3 @@
+39. Several liabilities of co-trustee.—(1) Where co-trustees jointly commit a breach of trust, or where one of them by his neglect enables the other to commit a breach of trust, each is liable to the beneficiary for the whole of the loss occasioned by such breach.
+(2) As between the trustees themselves, if one be less guilty than another and has had to refund the loss, the former may compel the latter, or his legal representative to the extent of the assets he has received, to made good such loss; and, if all be equally guilty, any one or more of the trustees who has had to refund the loss may compel the others to contribute.
+(3) Nothing in this section shall be deemed to authorize a trustee who has been guilty of fraud to institute a suit to compel contribution.

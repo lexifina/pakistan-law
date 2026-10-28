@@ -1,0 +1,7 @@
+16. Certificate of registration.—(1) The director, after fulfillment of legal requirements, as mentioned in sections 13 to 15, shall register the trust under this Act and issue a certificate of registration to the trustee.
+(2) The director, for the reasons to be recorded in writing, may refuse the registration of the application, if —
+(a) the purpose of the trust is unlawful or the trust proceeds are suspected to be proceeds of crime, as the investigating or prosecuting agencies inform the director under section 14 and the director may refer back the application to the law enforcement agencies for legal action or any of the members of the trust including author, trustees or any other person exercising ultimate effective control over the trust are declared proscribed by the office of the Chief Commissioner, Islamabad Capital Territory, or associated with the proscribed organizations under the Anti-Terrorism Act, 1997 or under the United Nations Security Council Act, 1948, and in such cases as mentioned in clause (b), the director shall share the details of individuals with the Ministry of
+Interior and Ministry of Foreign Affairs through the home department; or
+(b) the district intelligence coordination committee considers the trust a threat to national security; or
+(c) the author of the trust, trustee, beneficiary, or any person acting on their behalf fail to provide the complete personal details required under section 13 for the registration and functioning of the trust; or
+(d) any other reason as may be prescribed.

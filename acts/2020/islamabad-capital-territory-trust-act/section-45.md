@@ -1,0 +1,2 @@
+45. Right to indemnity from gainer by breach of trust.—(1) A person other than trustee who has gained an advantage from a breach of trust must indemnify the trustee to the extent of the amount actually received by such person under the breach; and where he is beneficiary the trustee has a charge on his interest for such amount.
+(2) Nothing in this section shall be deemed to entitle a trustee to be indemnified who has, in committing the breach of trust, been guilty of fraud.

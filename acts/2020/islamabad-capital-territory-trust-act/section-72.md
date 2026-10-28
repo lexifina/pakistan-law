@@ -1,0 +1,2 @@
+72. Right to proper trustees.— (1) The beneficiary has a right subject to the provisions of the instrument of trust, that the trust property shall be properly protected and held and administered by proper persons and by a proper number of such persons.
+(2) A person domiciled abroad, alien enemy, a person having an interest inconsistent with that of the beneficiary, a person in insolvent circumstances; and unless the personal law of the beneficiary allows otherwise and a minor are not proper persons under this section.

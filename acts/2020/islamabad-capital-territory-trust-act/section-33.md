@@ -1,0 +1,1 @@
+33. Power to purchase redeemable stock at a premium.—A trustee may invest in any of the securities mentioned or referred to in section 32, notwithstanding that the same may be redeemable and that the price exceeds the redemption value, and a trustee may retain until redemption any redeemable stock, fund or security which may have been purchased in accordance with this section.

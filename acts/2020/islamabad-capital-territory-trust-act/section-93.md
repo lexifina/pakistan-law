@@ -1,0 +1,1 @@
+93. Transferor intended to dispose of beneficial interest.— Where the owner of property transfers or bequeaths and it cannot be inferred consistently with the attendant circumstances that he intended to dispose of the beneficial interest therein, the transferee or legatee must hold such property for the benefit of the owner or his legal representative.

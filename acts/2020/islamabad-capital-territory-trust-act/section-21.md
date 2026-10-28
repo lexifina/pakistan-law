@@ -1,0 +1,1 @@
+21. Legal arrangement for holding the property.—A trust may hold immovable and movable property under its name, or may sell or dispose of the property being held by it. Such sale and purchase shall be the responsibility of the trustee.

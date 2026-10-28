@@ -1,0 +1,1 @@
+30. Trustee to prevent waste.—Where the trust is created for the benefit of several persons in succession and one of them is in possession of the trust-property, if he commits, or threatens to commit any act, which is destructive, or permanently injurious thereto, the trustee is bound to take measures to prevent such act.

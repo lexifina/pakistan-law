@@ -1,0 +1,2 @@
+11. Disclaimer of trust.—(1) Instead of accepting a trust, the intended trustee may, within a period of sixty days, disclaim it and such disclaimer shall prevent the trust-property from vesting in him.
+(2) In case of more than one trustees, if one of trustees, disclaims to be a trustee, it shall not automatically confer the disclaiming trustee‘s rights on the other trustees. The author of the trust shall either (a) explicitly allow the co-trustees to proceed in case of any of the member‘s disclaimer, or (b) write a new trust-deed.

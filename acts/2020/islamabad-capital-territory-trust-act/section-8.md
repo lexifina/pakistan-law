@@ -1,0 +1,1 @@
+8. Disclaimer by beneficiary.—A proposed beneficiary may renounce his interest under the trust by disclaimer addressed to the trustee or by setting up with notice of the trust a claim inconsistent therewith.

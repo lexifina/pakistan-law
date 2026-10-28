@@ -1,0 +1,3 @@
+46. Right to apply to Court for opinion in management of trust-property.—(1) Any trustee may, without instituting a suit, apply by petition to a principal civil court of original jurisdiction for its opinion, advice or direction on any present questions respecting the management or administration of the trust-property other than questions of detail, difficulty or importance, not proper in the opinion of the court for summary disposal.
+(2) A copy of such petition shall be served upon, and the hearing thereof may be attended by, such of the persons interested in the application as the court thinks fit.
+(3) The costs of every application under this section shall be in the discretion of the court to which it is made.

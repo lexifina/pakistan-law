@@ -1,0 +1,3 @@
+13. Application for registration.—(1) For every trust required to be registered under this Act, the trustee shall provide to the director at or before the time of registration, the information regarding the purpose, author of the trust, details of the trustees, beneficiaries of the trust, and any other natural person exercising ultimate effective control over the trust as prescribed to the satisfaction of the department.
+Explanation.—In case of more than one trustee, all the trustees will nominate one Trustee who shall be responsible for the provision of information.
+(2) The details of the information required to be provided under sub-section (1) above shall be prescribed.
