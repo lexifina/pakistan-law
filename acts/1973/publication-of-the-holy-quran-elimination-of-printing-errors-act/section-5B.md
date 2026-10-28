@@ -1,0 +1,3 @@
+[^8][5B. Translation or interpretation of the Holy Qur’an contrary to belief of Muslims.— Where, in a copy or record of the Holy Qur’an, or in any extract thereof published in a text book, prayer book, religious treatise or other book, an Ayah of the Holy Qur’an is translated, interpreted or commented upon by a non Muslim contrary to the belief of Muslims, the author, printer or publisher, or the person who prepared the record, whether registered under this Act or not, shall, unless he can prove that such translation, interpretation or commentary occurred only due to a printing or mechanical error, be liable to the punishment provided for in section 6.]
+
+[^8]: Ins. and added by Act No. X of 1987, ss. 5-8.
