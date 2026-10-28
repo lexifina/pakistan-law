@@ -1,0 +1,2 @@
+51. No bail to be granted in respect of certain offences.__ (1) Notwithstanding anything contained in sections 496 and 497 of the Criminal Procedure Code, 1898 (V of 1898) bail shall not be granted to an accused person charged with an offence under this Act or under any other law relating to narcotics where the offence is punishable with death.
+(2) In the case of other offences punishable under this Act, bail shall not be normally granted unless the Court is of the opinion that it is a fit case for the grant of bail and against the security of a substantial amount.

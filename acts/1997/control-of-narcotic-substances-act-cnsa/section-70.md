@@ -1,0 +1,1 @@
+70. Notice or order not to be invalid for error in description.__ No notice issued, or order passed, under this Act shall be invalid by reason of any error in the description of the person or assets specified therein if such person or assets are otherwise identifiable from the description specified in such notice or order.

@@ -1,0 +1,1 @@
+47. Application of the Code of Criminal Procedure, 1898.__ Except as otherwise provided in this Act, the provisions of the Code of Criminal Procedure, 1898 (Act V of 1898) hereinafter referred to as the Code (including provisions relating to confirmation of a death sentence) shall apply, to trials and appeals before a Special Court under this Act.

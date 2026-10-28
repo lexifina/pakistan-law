@@ -1,0 +1,1 @@
+75. Indemnity.__ No suit, prosecution or other proceedings shall lie against the Federal Government or Provincial Government or any officer of the Federal Government or of a Provincial Government for anything in good faith, done or intended to be done in pursuance of this Act or the rules made thereunder.

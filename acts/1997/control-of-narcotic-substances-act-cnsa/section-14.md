@@ -1,0 +1,4 @@
+14. Prohibition on aiding, abetment or association in narcotic offences.__ No one shall, within or outside Pakistan, participate in, associate or conspire to commit, attempt to commit, aid, abet, facilitate, incite induce or counsel the commission of an offence punishable under this Act.
+Explanation. For the purpose of this section, a person shall be deemed to have associated with, conspired, aided, abetted, facilitated, incited, induced or counselled an offence within the meaning of this section if he does anything in a place beyond Pakistan which__
+(a) would constitute an offence if committed within Pakistan; or
+(b) under the laws of such other place, is an offence relating to narcotic drugs, psychotropic substances or controlled substances having all the legal or analogous conditions required to constitute it as an offence punishable under this Act.

@@ -1,0 +1,2 @@
+10. Prohibition on owning, operating premises or machinery for manufacture of narcotic
+drugs, etc.___ No one shall own, manage, operate or control any premises, place, equipment or machinery for the purpose of manufacture or production of cannabis, cocaine, opium, opium derivatives, narcotic drugs, psychotropic substance or controlled substance save in accordance with the conditions of a licence and payment of such fees as may be prescribed.

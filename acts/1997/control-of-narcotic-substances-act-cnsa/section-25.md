@@ -1,0 +1,1 @@
+25. Mode of making searches and arrest.__ The provisions of the Code of Criminal Procedure, 1898, except those of section 103, shall, mutatis mutandis, apply to all searches and arrests in so far as they are not inconsistent with the provisions of sections 20, 21, 22 and 23 to all warrants issued and arrests and searches made under these sections.

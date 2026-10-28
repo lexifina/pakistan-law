@@ -1,0 +1,1 @@
+11. Punishment for contravention of Section 10.__ Whoever contravenes the provisions of section 10 shall be punishable with imprisonment which may extend to twenty-five years but shall not be less than ten years and shall also be liable to fine which shall not be less than one million rupees.

@@ -1,0 +1,3 @@
+19. Forfeiture of assets of an offender.__ Notwithstanding anything contained in section 13, where the Special Court finds a person guilty of an offence punishable under this Act and sentences him to imprisonment for [^11][one year or above], the Court shall order that his assets derivable from trafficking in narcotic substances shall stand forfeited to the Federal Government unless it is satisfied, for which the burden of proof shall rest on the accused, that they or any part thereof, have not been so acquired.
+
+[^11]: Subs. by the control of narcotic substances (Amdt.) Act 2022 (XX of 2022) ss.7-9.

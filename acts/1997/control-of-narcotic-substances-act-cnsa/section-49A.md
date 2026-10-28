@@ -1,0 +1,3 @@
+[^21][49A. Remand.__ Notwithstanding anything contained in the Code of Criminal Procedure, 1898 (Act V of 1898) or any law for the time being in force, the person arrested under this Act shall having regard to the facts and circumstances of the case be liable to be detained in custody for the purpose of inquiry and investigation for a period not exceeding ninety days and court may remand an accused person to custody not exceeding fifteen days at a time and for every subsequent remand, the court shall record reasons in writing.]
+
+[^21]: Ins. by the control of narcotic substances (Amdt.) Act 2022 (XX of 2022) ss.19-20.
