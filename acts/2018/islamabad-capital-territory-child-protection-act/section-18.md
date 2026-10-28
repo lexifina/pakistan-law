@@ -1,0 +1,7 @@
+18. Emergency power.—(l) Where Child Protection Officer has reasonable cause to believe that a child is in need of care within the meaning of section 5, he may take the unattended child into care or remove the child from the custody of his parents, legal guardian or other current carer as the case may be.
+(2) Where care of an unattended child or removal of a child takes place under sub-section (1), the Child Protection Officer shall immediately inform parents, legal guardian or current carer, if any, of the child for reasons of taking the child into care and further steps to be taken.
+(3) When an unattended child has been taken into care or a child has been removed from the custody of his parents, guardian or any other person for care in accordance with sub-section (1), the Child Protection Officer shall,——
+(a) place the child immediately with a caregiver for interim care;
+(b) apply to the Court within twenty-four hours for a formal Emergency Protection order.
+(4) Pending the determination of an application for an Emergency Protection Order, the Court shall not return a child to his home prior to the completion of an initial assessment by the Child Protection Officer.
+(5) Notwithstanding anything contained in sub-section (1) to (4), a child shall not be removed from his family, for a period exceeding three days, except through an interim order of the Court under exceptional circumstances to be recorded in writing.

@@ -1,0 +1,3 @@
+28. Prohibition of publication of names, etc., of child involved in any proceeding under
+this Act.—(1) No report of a child made under the provisions of this Act shall be disclosed in media which leads to the identification of the child, nor shall any picture of such child be published, save that, for reasons to be recorded in writing, the Court may permit such disclosure, if in opinion of the Court such disclosure is in the best interests of the child.
+(2) Any person who contravenes the provisions of sub-section (1) shall be punishable by the Court with fine which may extend to fifty thousand rupees.

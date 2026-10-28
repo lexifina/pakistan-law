@@ -1,0 +1,1 @@
+27. Reports to be treated as confidential.—Any report of the Child Protection Officer shall be treated as confidential. However, the report shall be made available to the child, his parents, legal guardian or other carer, if any.

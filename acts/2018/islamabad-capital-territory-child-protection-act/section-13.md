@@ -1,0 +1,3 @@
+13. Comprehensive assessment.—(1) Where initial assessment conducted in accordance with section 12, or emergency powers exercised by a child Protection officer under section 18, indicate that the child requires care, the child Protection officer shall undertake a comprehensive assessment of the child and his family environment, as may be Prescribed.
+(2) The comprehensive assessment shall be completed within thirty days of the completion of the initial assessment or exercise of emergency powers.
+(3) No comprehensive assessment shall be considered complete unless the child Protection officer has met with and heard views of the child where the child is of sufficient age and level of maturity.
