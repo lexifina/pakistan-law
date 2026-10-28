@@ -1,0 +1,1 @@
+9. Affiliation of other Societies. The Managing Body may also affiliate to the Society any other society or body having all or any of the objects and purposes referred to in section 7, and may provide for the allocation and distribution of funds, through such society or body, to or for any such objects or purposes.
