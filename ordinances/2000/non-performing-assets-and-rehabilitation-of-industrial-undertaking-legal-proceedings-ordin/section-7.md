@@ -1,0 +1,1 @@
+7. Institution of suits etc, by the Corporation:___ The Corporation may institute, file, conduct and defend any suit or legal proceeding or appeal under, and in accordance with, the provisions of this Ordinance and the High Court shall conclude such suit or legal proceeding within a period of ninety days.

@@ -1,0 +1,1 @@
+21. Removal of difficulties:___ if any difficulty arises in giving effect to any provision of this Ordinance the Federal Government may, by order, published in the official Gazette, make such provision not inconsistent with the provisions of this Ordinance as may appear to it to be necessary for the purpose removing such difficulty.
