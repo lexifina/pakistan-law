@@ -1,0 +1,1 @@
+20G. Effect of inquiry.—For the purposes of this Chapter, “member of the Institute” includes a person who was a member of the Institute on the date of the alleged misconduct but has ceased to be a member of the Institute at the time of inquiry for any reason.

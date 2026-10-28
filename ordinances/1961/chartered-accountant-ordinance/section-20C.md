@@ -1,0 +1,1 @@
+20C. Member or student not found guilty.—If, on receipt of the report under section 20B, the Council finds that the member of the Institute or student, as the case may be, is not guilty of any professional misconduct, it shall record its finding accordingly and direct that the proceedings or, as the case may be the complaint be filed.
