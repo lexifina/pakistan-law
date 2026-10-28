@@ -1,0 +1,5 @@
+[^6]7. Liability of owner of railroad or tramroad constructed under Act XXII of 1863, not
+limited by special contract. In what case owner of railroad or tramroad answerable for loss or damage. The liability of the owner of any railroad or tramroad constructed under the provisions of the [^5][Land Acquisition Act, 1894 (I of 1894).] for the loss of or damage to any property delivered to him to be carried, not being of the description contained in the Schedule to this Act, shall not be deemed to be limited or affected by any special contract; but the owner of such railroad or tramroad shall be liable for the loss of or damage to property delivered to him to be carried only when such loss or damage shall have been caused by negligence or a criminal act on his part or on that of his agents or servants.
+
+[^5]: Subs. by the Federal Laws (Revision and Declaration) Ordinance, 1981 (27 of 1981), s. 3 and II Sch., for certain words.
+[^6]: S. 7 (so far as it relates to railways) has been rep. by the Railways Act, 1890 (9 of 1890), s. 72.

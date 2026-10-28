@@ -1,0 +1,2 @@
+9. Plaintiffs, in suits for loss, damage, or non-delivery, not required to prove negligence
+or criminal act. In any suit brought against a common carrier for the loss, damage or non-delivery of goods entrusted to him for carriage, it shall not be necessary for the plaintiff to prove that such loss, damage or non-delivery was owing to the negligence or criminal act of the carrier, his servants or agents.
