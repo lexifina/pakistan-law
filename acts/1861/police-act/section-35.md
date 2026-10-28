@@ -1,0 +1,1 @@
+35. Jurisdiction. 2* * * Any charge against a police‑officer above the rank of a constable under this Act shall be enquired into and determined only by an officer exercising the powers of a 3Magistrate.

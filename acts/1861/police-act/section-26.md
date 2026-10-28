@@ -1,0 +1,5 @@
+26. 1[District Superintendent] may detain property and issue proclamation. (1) The 1[District Superintendent] may detain the property and issue a proclamation, specifying the articles of which it consists, and requiring any person who has any claim thereto to appear and establish his right to the same within six months from the date of such proclamation.
+1[(2) The provisions of section 525 of the 2[Code of Criminal Procedure, 1898 (Act V of 1898)], shall be applicable to property referred to in this section.]
+3[27. Confiscation of property if no claimant appears.__(1) If no person shall within the period allowed claim such property, or the proceeds thereof, if sold, it may, if not already sold under sub‑section (2) of the last preceding section, be sold under the orders of the 4[District Public Safety Commission.]
+(2) The sale‑proceeds of property sold under the preceding sub‑section and the proceeds of
+property sold under section 26 to which no claim has been established shall be 5[at the disposal of the Provincial Government].]

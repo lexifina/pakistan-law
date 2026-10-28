@@ -1,0 +1,2 @@
+# THE POLICE ACT 1861
+Last Amended on 2017­02­16

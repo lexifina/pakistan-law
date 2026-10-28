@@ -1,0 +1,6 @@
+4. Inspector­General of Police etc. The administration of the police throughout a general police‑district shall be vested in an officer to be styled the Inspector­General of Police, and in such Deputy Inspectors‑General and Assistant Inspectors‑General as to the 2[Provincial Government] shall seem fit.
+The administration of the police 6[in a district shall vest] in a District Superintendent and such Assistant District Superintendents as the 2[Provincial Government] shall consider necessary.
+9* * * * * * *
+10[5.Relationship of District Superintendent of Police with Zila Nazim, etc.__ (1) Subject to the provision of this Act, the District Police Officer shall be responsible to the Zila Nazim for police function under this Act, but shall not include administration of the district police, investigation of criminal cases, and police functions relating to prosecution, which shall rest with the police:
+Provided that Zila Nazim may visit a police station to find out if any person is under unlawful detention and in appropriate cases may also direct action in accordance with law having regard to the facts and circumstances of the case.
+(2) In case of a difference of opinion between the Zila Nazim and the Provincial Government on any matter concerning the district police, the decision of the provincial Government shall prevail.]
