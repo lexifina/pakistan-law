@@ -1,0 +1,1 @@
+166. Bailee not responsible on re-delivery to bailor without title. If the bailor has no title to the goods, and the bailee, in good faith, delivers them back to, or according to the directions of, the bailor, the bailee is not responsible to the owner in respect of such delivery.

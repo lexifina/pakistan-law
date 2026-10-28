@@ -1,0 +1,1 @@
+11. Who are competent to contract. Every person is competent to contract who is of the age of majority according to the law to which he is subject, and who is of sound mind, and is not disqualified from contracting by any law to which he is subject.

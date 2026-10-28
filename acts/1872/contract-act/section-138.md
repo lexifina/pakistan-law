@@ -1,0 +1,1 @@
+138. Release of one co-surety does not discharge others. Where there are co-sureties, a release by the creditor of one of them does not discharge the others; neither does it free the surety so released from his responsibility to the other sureties.

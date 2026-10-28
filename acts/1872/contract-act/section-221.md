@@ -1,0 +1,1 @@
+221. Agent’s lien on principal’s property. In the absence of any contract to the contrary, an agent is entitled to retain goods, papers and other property, whether moveable or immoveable, of the principal received by him, until the amount due to himself for commission, disbursements and services in respect of the same has been paid or accounted for to him.

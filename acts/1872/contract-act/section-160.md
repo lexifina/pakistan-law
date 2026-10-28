@@ -1,0 +1,1 @@
+160. Return of goods bailed on expiration of time or accomplishment of purpose. It is the duty of the bailee to return, or deliver according to the bailor’s directions, the goods bailed, without demand, as soon as the time for which they were bailed has expired, or the purpose for which they were bailed has been accomplished.

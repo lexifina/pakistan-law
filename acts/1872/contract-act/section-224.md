@@ -1,0 +1,4 @@
+224. Non-liability of employer of agent to do a criminal act. Where one person employs another to do an act which is criminal, the employer is not liable to the agent, either upon an express or an implied promise, to indemnify him against the consequences of that Act.
+Illustrations
+(a) A employs B to beat C, and agrees to indemnify him against all consequences of the act. B thereupon beats C, and has to pay damages to C for so doing. A is not liable to indemnify B for those damages.
+(b) B, the proprietor of a newspaper, publishes, at A’s request, a libel upon C in the paper, and A agrees to indemnify B against the consequences of the publication, and all costs and damages of any action in respect thereof. B is sued by C and has to pay damages, and also incurs expenses. A is not liable to B upon the indemnity.

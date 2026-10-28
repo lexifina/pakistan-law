@@ -1,0 +1,4 @@
+200. Ratification of unauthorized act cannot injure third person. An act done by one person on behalf of another, without such other person’s authority, which, if done with authority, would have the effect of subjecting a third person to damages, or of terminating any right or interest of a third person, cannot, by ratification, be made to have such effect.
+Illustrations
+(a) A, not being authorized thereto by B, demands, on behalf of B, the delivery of a chattel, the property of B, from C, who is in possession of it. This demand cannot be ratified by B, so as to make C liable for damages for his refusal to deliver.
+(b) A holds a lease from B, terminable on three months’ notice. C, an unauthorized person, gives notice of termination to A. The notice cannot be ratified by B, so as to be binding on A.

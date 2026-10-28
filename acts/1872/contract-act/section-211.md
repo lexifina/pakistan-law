@@ -1,0 +1,5 @@
+## Agent’s Duty to Principal
+211. Agent’s duty in conducting principal’s business. An agent is bound to conduct the business of his principal according to the directions given by the principal, or, in the absence of any such directions, according to the custom which prevails in doing business of the same kind at the place where the agent conducts such business. When the agent acts otherwise, if any loss be sustained, he must make it good to his principal, and, if any profit accrues, he must account for it.
+Illustrations
+(a) A, an agent engaged in carrying on for B a business, in which it is the custom to invest from time to time, at interest, the moneys which may be in hand, omits to make such investment. A must make good to B the interest usually obtained by such investments.
+(b) B, a broker, in whose business it is not the custom to sell on credit, sells goods of A on credit to C, whose credit at the time was very high. C, before payment, becomes insolvent. B must make good the loss to A.

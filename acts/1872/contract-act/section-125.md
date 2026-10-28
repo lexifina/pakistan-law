@@ -1,0 +1,4 @@
+125. Rights of indemnity-holder when sued. The promisee in a contract of indemnity, acting within the scope of his authority, is entitled to recover from the promisor___
+(1) all damages which he may be compelled to pay in any suit in respect of any matter to which the promise to indemnify applies;
+(2) all costs which he may be compelled to pay in any such suit if, in bringing or defending it, he did not contravene the orders of the promisor, and acted as it would have been prudent for him to act in the absence of any contract of indemnity, or if the promisor authorized him to bring or defend the suit;
+(3) all sums which he may have paid under the terms of any compromise of any such suit, if the compromise was not contrary to the orders of the promisor, and was one which it would have been prudent for the promisee to make in the absence of any contract of indemnity, or if the promisor authorized him to compromise the suit.

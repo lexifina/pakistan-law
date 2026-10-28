@@ -1,0 +1,1 @@
+44. Effect of release of one joint promisor. Where two or more persons have made a joint promise, a release of one of such joint promisors by the promisee does not discharge the other joint promisor or joint promisors; neither does it free the joint promisors so released from responsibility to the other joint promisor or joint promisors.

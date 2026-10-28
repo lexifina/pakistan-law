@@ -1,0 +1,1 @@
+206. Notice of revocation or renunciation. Reasonable notice must be given of such revocation or renunciation; otherwise the damage thereby resulting to the principal or the agent, as the case may be, must be made good to the one by the other.

@@ -1,0 +1,1 @@
+155. Effect of mixture, with bailor’s consent, of his goods with bailee’s. If the bailee, with the consent of the bailor, mixes the goods of the bailor with his own goods, the bailor and the bailee shall have an interest, in proportion to their respective shares, in the mixture thus produced.
