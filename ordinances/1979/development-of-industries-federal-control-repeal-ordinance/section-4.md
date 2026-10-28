@@ -1,0 +1,2 @@
+4. Employees of the Board.—(1) The Federal Government may, by order in writing, direct that the services of any officer or other employee of the Board shall, on such day as may be specified in the order, stand transferred to the corporation or managed company so specified on terms not less favourable than those to which he was entitled as an employee of the Board.
+(2) The Federal Government, in accordance with the terms of their appointment, terminate the services of such officers and employees of the Board as it may consider surplus.
