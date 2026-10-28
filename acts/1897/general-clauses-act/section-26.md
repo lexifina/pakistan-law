@@ -1,0 +1,1 @@
+26. Provision as to offences punishable under two or more enactments.—Where an act or omission constitutes an offence under two or more enactments, then the offender shall be liable to be prosecuted and punished under either or any of those enactments, but shall not be liable to be punished twice for the same offence.

@@ -1,0 +1,7 @@
+4. Application of foregoing definitions to previous enactments.—(1)The definitions in section 3 of the following words and expressions, that is to say, “affidavit”, “barrister”, [^103][* *] “District Judge”, “father”, [^103][* * *] [^104][* * *] [^103][* *] “immoveable property”, “imprisonment”, [^103][* *] “Magistrate”, “month”, “moveable property”, “oath”, “person”, “section”, ,”son”, “swear”, “will” and “year” apply also, unless there is anything repugnant in the subject or context, to all [^105][Central Acts] made after the third day of January, 1868, and to all Regulations made on or after the fourteenth day of January, 1887.
+(2) The definitions in the said section of the following words .and expressions, that is to say, “abet”, “Chapter”, “commencement”, “financial year”, “local authority”, “master”, “offence”, “part”, “public nuisance”, “registered”, “schedule”, “ship”, “sign”, “sub -section” and “writing” apply also, unless there is anything repugnant in the subject or context, to all [^106][Central Acts] and Regulations made on or after the fourteenth day of January, 1887.
+
+[^103]: The words “British India”, “G. of I.”, “High Court” and “L. G.” rep. by A.O.,1937.
+[^104]: The words “Her Majesty” or the Queen' rep. by the Repealing and Amending Act, 1919 (18 pf 1919), s. 3 and Sch. II.
+[^105]: Subs. by A.O., 1937, for “Acts of the G.G in C.”.
+[^106]: Subs. by A.O., 1937, for “Acts of the G. G. in C.”.

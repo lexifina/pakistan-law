@@ -1,0 +1,8 @@
+24. Continuation, of orders, etc., issued under enactments repealed and re-enacted.
+Where any [^150][Central Act] or Regulation is, after the commencement of this Act, repealed and re-enacted with or without modification, then, unless it is otherwise expressly provided, any [^149][ appointment, notification], order, scheme, rule, form or bye-law [^149][ made or] issued under the repealed Act or Regulation, shall, so far as it is not inconsistent with the provisions re -enacted, continue in force, and be deemed to have been [^149][made or] issued under the provisions so re-enacted, unless and until it is superseded by any [^149][appointment, notification], order, scheme, rule, form or bye-law [^149][made or] issued under the provisions so re-enacted [^151][and when any [^152][Central Act) or Regulation, which, by a notification under [^153][ any law], has been extended to any local area, has, by a subsequent notification, been withdrawn from and re-extended to such area or any part thereof, the provisions of such Act or Regulation shall be deemed to have been repealed and re-enacted in such area or part within the meaning of this section ].
+
+[^149]: Ins. by the Amending Act, 1903 (I of 1903), s. 3 and Sch.II.
+[^150]: Subs. By A.O., 1937, for “Act of the G.G. in C”.
+[^151]: Ins. by the Second Repealing and Amending Act, 1914 (17 of 1914), section 2 and Sch. I.
+[^152]: Subs. by A. O.,1937, for “Act of the G. G. in C.”.
+[^153]: Subs. by the Federal Laws (Revision and Declaration) Ordinance, 1981 (27 of 1981), s. 3 and 2nd Sch., for” section 5 or 5A of the Scheduled Districts Act, 1874, or any like law”.

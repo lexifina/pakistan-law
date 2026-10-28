@@ -1,0 +1,8 @@
+# THE GENERAL CLAUSES ACT, 1897
+THE GENERAL CLAUSES ACT, 1897
+[^1]Act No. X OF 1897
+[11th March, 1897]
+An Act to consolidate and extend the General Clauses Acts, 1868 and 1887.
+WHEREAS it is expedient to consolidate and extend the General Clauses Acts, 1868 (I of 1868) and 1887 (I of 1887); it is hereby enacted as follows: —
+
+[^1]: For Statement of Objects and Reasons, see Gazette of India, 1897, Pt. V, p. 38; for Report of the Select Committee, see ibid., p. 77 ; and for Proceedings in Council, see ibid. Pt. VI, pp. 35, 40, 56 and 76. This Act has been declared to be in force in Baluchistan by the British Baluchistan Laws Regulation, 1913 (2 of 1913). It has been applied to Phulera in the Excluded Area of Upper Tanawal to the extent the Act is applicable in the N.W.F.P., subject to certain modi- fications; and also extended to the Excluded Area of Upper Tanawal (N.W.F.P.) other than Phulera with effect from such date and subject to such modifications as may be notified, see N.W.F.P. (Upper Tanawal) (Excluded Area) Laws Regulation, 1950. . It has also been extended to the Leased Areas of Baluchistan, see the Leased Areas (Laws) Order, 1950 (G.G.O.3 of 1950); and applied in the Federated Areas of Baluchistan, see Gazette of India, 1937, Pt. I, p. 1499. The Act has been extended to the whole of Pakistan and shall be deemed to have been so extended on the 14th day of October, 1955, see the Central Laws (Statute Reform) Ordinance, 1960 (21 of 1960), s. 3 and Second Sch. The provisions of this Act have been extended to the Special Areas of West Pakistan by West Pakistan Regulation No.1 of 1961 (with effect .from the 13th September, 1961).
