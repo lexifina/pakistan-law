@@ -1,0 +1,2 @@
+15. General duties of members of the Frontier Corps. —(1) It shall be the duty of every member of the Frontier Corps promptly to obey and to execute all orders and warrants lawfully issued to him by any competent authority, to detect and bring offenders to justice, and to apprehend all persons whom he is legally authorised to apprehend and for whose apprehension sufficient grounds exist.
+(2) Every member of the Frontier Corps shall be liable to serve anywhere without and beyond, as well as within, the land frontiers of Pakistan.
