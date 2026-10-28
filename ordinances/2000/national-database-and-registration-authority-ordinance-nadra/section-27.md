@@ -1,0 +1,2 @@
+27. Accounts and Audit. —(1) The Authority shall maintain complete and accurate books of accounts of its actual expenses and receipts.
+(2) The Authority shall cause to be carried out audit of its accounts by one or more auditors who are chartered accountants within the meaning of the Chartered Accountants Ordinance, 1961 (X of 1961) appointed by the Federal Government in consultation with the Auditor General of Pakistan from a panel of Chartered accountants proposed by the Authority on such remuneration as the Federal Government may determine.

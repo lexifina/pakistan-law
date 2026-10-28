@@ -1,0 +1,2 @@
+36. Registration Officers, etc. deemed to be public servants. The Chairman, members, Registration Officers, members of its staff, experts, consultants, advisors, other officers and employees of the Authority shall be deemed to be public servants within the meaning of section 21 of the Pakistan Penal Code, 1860 (XLV of 1860).
+__________________________________________________________________________

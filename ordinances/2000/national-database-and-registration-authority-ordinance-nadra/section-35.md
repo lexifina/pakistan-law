@@ -1,0 +1,1 @@
+35. Registration Officers, officers, employees, etc. To carry out the purposes of this Ordinance, the Authority may, from time to time, appoint Registration Officers, members of its staff, experts, consultants, advisers and other officers and employees on such terms and conditions as it may deem fit.

@@ -1,0 +1,4 @@
+22. Information and assistance by user or feeder agencies. —(1) The Authority may request a user or feeder agency for information or other necessary assistance and co•operation.
+(2) All user or feeder agencies shall comply with all such reasonable requests of the Authority as are made in order to carry out the purposes of this Ordinance.
+(3) Any such compliance shall be made in a timely, complete and effective manner and the Authority may, if deemed fit in a particular case, fix such reasonable period of time for compliance with its request by a user or feeder agency as may be necessary in the circumstances and the concerned user or feeder agency shall be bound by such dead•line.
+(4) It shall be the duty of the head of a user or feeder agency to whom a request is made by the Authority to ensure compliance with the provisions of this section and sub-section (3) of section 7 on part of his user or feeder agency.

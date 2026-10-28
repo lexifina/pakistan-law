@@ -1,0 +1,5 @@
+_________
+## CHAPTER V
+## REGISTRATION
+8. Registration of persons, etc.—(1) The Federal Government may by rules provide for the registration of different persons or classes thereof wherever they may be including citizens, foreigners and emigrants, and for different things or classes thereof whatever they may be and along therewith provide for the method of such registration, manner and form of applications to be made therefore, fee or other sum to be charged therefor.
+(2) Notwithstanding anything contained in any other law for the time being in force the Federal Government may, by rules, for the purpose of incentivizing registration of a particular class of persons under this Ordinance, provide for any right, interest, privilege, benefit, reward or other advantage, tangible or intangible, available under Pakistan Law, to be extended to, or made available to or withdrawn from such class of persons required to be registered under this Ordinance and such right, interest, privilege, benefit, reward or other advantage shall accordingly become extended, or available to or withdrawn from, as the case may be, to such class of persons.
