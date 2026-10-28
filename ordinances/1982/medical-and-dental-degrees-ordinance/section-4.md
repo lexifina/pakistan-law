@@ -1,0 +1,1 @@
+4. Prohibition of unauthorised conferment of degrees, etc. Save as provided by section 3, no person in Pakistan shall confer, grant or issue any degree, diploma, licence, certificate or other document stating or implying that the holder, grantee or recipient is qualified to practise scientific Medical and Dental System.
