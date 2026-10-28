@@ -1,0 +1,2 @@
+28. Use, sale or lease of property.—(1) The administrator may enter into transactions concerning the business and property of the debtor, including the use, sale or lease of the property, in the ordinary course of business.
+(2) The administrator may use, sell or lease property of the debtor in a manner other than in the ordinary course of business only after consultation with the administration committees.

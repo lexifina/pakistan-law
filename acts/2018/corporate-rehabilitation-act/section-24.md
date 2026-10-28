@@ -1,0 +1,2 @@
+24. Administrator’s account.— (1) Every administrator shall, during his tenure in office, present to the Court a comprehensive account of his receipts and payments and dealings as administrator together with such further information as may be relevant.
+(2) The administrator shall cause his account and all receipts and payments to be audited and send the audit report to the Commission, State Bank and the administration committees and to every shareholder, where a committee of shareholders has not been constituted, and submit one copy in the Court.

@@ -1,0 +1,3 @@
+26. Administration committees.— (1) The administrator shall appoint a committee of creditors and may appoint an additional committee of shareholders, if the administrator deems appropriate in a case.
+(2) The administration committees shall have adequate representation of different classes of creditors and shareholders of the debtor, as the case may be.
+(3) On request of an interested party, the Court may make order directing the administrator to appoint such additional members of an administration committee as the Court finds necessary to ensure adequate representation of creditors and shareholders, as the case may be.

@@ -1,0 +1,4 @@
+13. Acceptance of plan of rehabilitation.—(1) The acceptance or rejection of a plan of rehabilitation shall not be solicited from a holder of a claim or interest unless such holder is first provided with a copy of the plan.
+(2) A class of creditors shall be deemed to have accepted a plan of rehabilitation if such plan is accepted by the creditors holding at least two-thirds in value of such class.
+(3) A class of interests of the debtors, shall be deemed to have accepted a plan of rehabilitation if such plan is accepted by holders of at least two-thirds in value of interests of such class.
+(4) A class that is not impaired under a plan of rehabilitation and each holder of a claim or interest of such class are conclusively presumed to have accepted the plan and solicitation of acceptance with respect to such class from the holders of claims or interests of such class is not required.

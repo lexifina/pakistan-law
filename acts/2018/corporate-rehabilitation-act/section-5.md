@@ -1,0 +1,3 @@
+5. Insolvency experts.—(1)The Commission shall, in consultation with the State Bank, maintain a panel of insolvency experts who shall be professionals having a minimum experience of fifteen years in the field of accountancy, banking, finance, law, management and sound knowledge of insolvency practices of the country.
+(2) An insolvency expert shall, for due performance of his functions under this Act, be entitled to such remunerations and privileges as may be prescribed by regulations.
+(3) The Commission may, by regulations, prescribe the code of conduct for the panel of insolvency experts to be appointed under this Act and organize training, capacity building and accreditation programmes for professional development of such insolvency experts.

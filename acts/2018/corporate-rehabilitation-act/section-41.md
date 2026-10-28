@@ -1,0 +1,1 @@
+41. Power to make regulations.—The Commission may, by notification in the official Gazette, make regulations in respect of the matters expressly required in this Act to be prescribed by the Commission.
