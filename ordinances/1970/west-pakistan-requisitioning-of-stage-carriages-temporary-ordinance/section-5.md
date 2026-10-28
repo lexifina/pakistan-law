@@ -1,0 +1,1 @@
+5. Power to give effect to orders. The District Magistrate may take or cause to be taken such steps and use or cause to be used such force as may in his opinion be reasonable and necessary for securing compliance of any order made by him under this Ordinance.

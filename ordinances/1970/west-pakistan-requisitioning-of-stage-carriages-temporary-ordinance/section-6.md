@@ -1,0 +1,1 @@
+6. Power to search and seize. The District Magistrate may enter and search or authorize any person to enter and search any premises and seize or authorize any person to seize any motor vehicle in respect of which he has reason to believe that a contravention of the provisions of this Ordinance has been or is likely to be committed.

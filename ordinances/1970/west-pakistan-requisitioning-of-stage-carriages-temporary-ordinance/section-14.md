@@ -1,0 +1,2 @@
+14. Protection of actions under this Ordinance. (1) No suit, prosecution or other legal proceeding shall lie against any person for anything which is, in good faith, done or intended to be done in pursuance of this Ordinance or any order made thereunder.
+(2) Save as other expressly provided under this Ordinance no suit or other legal proceedings shall lie against the District Magistrate for any damage caused or likely to be caused by anything, in good faith, done or intended to be done in pursuance of this Ordinance or any order made thereunder.
