@@ -1,0 +1,1 @@
+5. Effect of orders inconsistent with other enactment. Any order made under section 3 shall have effect notwithstanding anything inconsistent therewith contained in any enactment, other than this Act, or any instrument having effect by virtue of any enactment, other than this Act.
