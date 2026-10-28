@@ -1,0 +1,4 @@
+27. Persons qualified for admission as advocates of a High Court.— Subject to the provisions of this Act and the rules made thereunder, a person shall be qualified to be admitted as an advocate of a High Court if he fulfils the following conditions, namely:—
+(a) he has practised as an advocate, vakil or pleader before subordinate courts in Pakistan for a period of not less than two years; or (b) he has practised outside Pakistan as an advocate before any High Court specified in this behalf by the Pakistan Bar Council; or (c) he has, for reason of his legal training or experience, been exempted by the Provincial Bar Council [^64][and Islamabad Bar Council], with the previous approval of the High Court, from the requirements of clause (a) and clause (b); and (d) he has paid such enrolment fee and fulfils such other conditions as may be prescribed by the Pakistan Bar Council.
+
+[^64]: Ins. by Act No. V of 2014, s. 2.

@@ -1,0 +1,1 @@
+50. Stay of order.___An appeal made under section 47 or section 48 shall not operate as a stay of the order appealed against but the disciplinary committee of the Pakistan Bar Council or the Supreme Court, as the case may be, may, for sufficient cause, direct the stay of such order on such terms and conditions as it may deem fit.

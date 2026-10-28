@@ -1,0 +1,1 @@
+39C. Provisions of Sections 39A and 39B to apply.___The provisions of Section 39A and 39B shall apply mutatis mutandis to an advocate who contravenes any provision of this Act or the Rules made thereunder.]

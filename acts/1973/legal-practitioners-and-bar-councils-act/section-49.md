@@ -1,0 +1,1 @@
+49. Application of sections 5 and 12 of the Limitation Act, 1908.___The provisions of sections 5 and 12 of the Limitation Act, 1908 (IX of 1908) shall, so far as may be, apply to appeals made under section 47 or section 48.

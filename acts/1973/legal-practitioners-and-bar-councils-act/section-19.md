@@ -1,0 +1,1 @@
+19. Vacancies in Bar Councils, etc., not to invalidate action taken. — No act done by a Bar Council or any Tribunal or committee thereof shall be called in question on the ground merely of the existence of any vacancy in, or any defect in the constitution of, such Council, Tribunal or committee.
