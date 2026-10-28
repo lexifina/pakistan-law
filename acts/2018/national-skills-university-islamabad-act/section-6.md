@@ -1,0 +1,2 @@
+6. Teaching at the University.⸺(1) The University or the colleges will conduct various courses in technical and professional skills development as per market demand and national needs in the prescribed manner and may lectures, tutorials, discussions, seminars, demonstrations, distance learning and other methods of instructions as well as practical work in the laboratories, hospitals, workshops and other government or private organizations.
+(2) The authority responsible for organizing recognized teaching shall be such as may be prescribed.

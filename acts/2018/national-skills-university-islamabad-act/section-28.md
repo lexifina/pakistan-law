@@ -1,0 +1,2 @@
+28. Rules.⸺(1) The Authorities and the other bodies of the University may make Rules, to be published in the official Gazette consistent with this Act, Statutes or the Regulations, to regulate any matter relating to the affairs of the University which has not been provided for by this Act or that is not required to be regulated by Statues or Regulation, including Rules to regulate the conduct of business and the time and place of meetings and related matters.
+(2) Rules shall become effective upon approval by the Syndicate.

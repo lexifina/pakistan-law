@@ -1,0 +1,10 @@
+8. Chancellor.⸺(1) The President of Pakistan shall be the Chancellor of the University and the Chairperson of the Senate.
+(2) The Chancellor shall, when present, preside at the meetings of the Senate of the University. In his absence, the Chancellor may nominate a member of the Senate to preside over the meetings of the Senate or convocation of the University.
+(3) The Vice-Chancellor shall be appointed by the Chancellor from amongst the persons recommended by the Search Committee constituted under sub-section (2) of section 12.
+(4) The members of the Senate shall be appointed by the Chancellor from amongst the persons recommended by the Senate in accordance with the Act and the Statutes, as the case may be, along-with those elected.
+(5) Every proposal to confer an honorary degree shall be subject to confirmation by the Chancellor.
+(6) If the Chancellor is satisfied that serious irregularity or mismanagement with respect to the affairs of the University has occurred, he may, ⸺
+(a) as regards proceedings of the Senate, direct that specified proceedings be reconsidered and appropriate action taken within one month of the direction having been issued:
+Provided that if the Chancellor is satisfied that either no reconsideration has been carried out or that the reconsideration has failed to address the concern expressed, he may, after calling upon the Senate to show cause in writing, appoint a Review Committee to examine and report to the Chancellor on the proceeding of the Senate. The report of the Review Committee shall be submitted within such time as may be prescribed by the Chancellor. The Review Committee shall be drawn from persons of eminence in academics and in the fields of law, accountancy and administration:
+Provided further that if the Chancellor is satisfied with the findings of the report of the Review Committee, he may by order in writing, annul such proceedings or orders; and
+(b) as regards proceedings of any authority or with respect to matters within the competence of any authority other than the Senate, direct the Senate to exercise powers under section 17.
