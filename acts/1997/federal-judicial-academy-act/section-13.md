@@ -1,0 +1,2 @@
+13. Budget.___(1) The Director-General shall, in respect of each financial year, submit for approval of the Board, by such date and in such form as may be prescribed, a statement showing the estimated receipts the current and development expenditures and the sums required as grant-in-aid from the Federal Government.
+(2) The Director-General shall not incur any expenditure from the Fund which is not provided for in the Budget approved by the Board.

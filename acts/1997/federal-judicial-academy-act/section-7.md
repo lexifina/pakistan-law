@@ -1,0 +1,2 @@
+7. Delegation of powers.___(1) The Board may delegate all or any of its powers and functions to the Chairman, Vice-Chairman, any member of the Board, the Director-General or any Member of the staff.
+(2) The Director-General may, in any emergency which in his opinion requires immediate action, exercise such powers as he may consider necessary in the circumstances, and shall report the action taken by him for approval of the Board at its next meeting.
