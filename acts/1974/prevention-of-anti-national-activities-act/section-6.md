@@ -1,0 +1,2 @@
+6. Finality, and cancellation, of notification.—(1) Subject to the provisions of sub-section (2), a notification issued under section 3 shall, if the declaration made therein is confirmed by the Tribunal by an order made under section 4, become final.
+(2) Notwithstanding anything contained in sub-section (I), the Federal Government may, at any time, either on its own motion or on the application of any person aggrieved thereby, cancel a notification issued under section 3, whether or not the declaration made therein has been confirmed by the Tribunal.
