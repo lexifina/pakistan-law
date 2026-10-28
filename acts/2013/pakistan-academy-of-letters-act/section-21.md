@@ -1,0 +1,1 @@
+21. Indemnity.___ No suit, prosecution or other legal proceedings shall lie against the Federal Government or the Academy or any person acting under the Federal Government or the Academy for anything which is in good faith done or intended to be done in pursuance of this Act or any rules or regulation made there under.

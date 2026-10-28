@@ -1,0 +1,1 @@
+22. Authorities to aid the Academy.—All languages or literary or welfare authorities in the Federation and the Provinces shall render such assistance to the Academy, as may be necessary, for the promotion of Pakistani languages, literature and welfare of writers community in the country.

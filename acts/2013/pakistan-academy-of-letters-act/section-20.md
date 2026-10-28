@@ -1,0 +1,1 @@
+20. Power to make regulations.—The Academy may, by notification in the official Gazette, make regulations, not inconsistent with provisions of this Act or the rules, for exercising its powers and carrying out its functions under this Act.
