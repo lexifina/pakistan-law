@@ -1,0 +1,2 @@
+7. Cognizance of offences.___(1) No court shall take cognizance of any offence punishable under this Act or of any abetment thereof except on a report in writing of the facts constituting such offence or abetment made by an Inspector or a person specially authorised in this behalf by the Federal Government.
+(2) Notwithstanding anything contained in the Code of Criminal Procedure, 1898 (Act V of 1898), an offence punishable under this Act or an abetment thereof shall be triable only by a Magistrate of the first class.

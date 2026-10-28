@@ -1,0 +1,1 @@
+8. Act to over-ride other laws.___The provisions of this Act and any scheme prepared thereunder shall have effect notwithstanding anything to the contrary contained in any other law for the time being in force.
