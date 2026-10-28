@@ -1,0 +1,1 @@
+30. Certain provisions to apply to unregistered architects and town planners. The provisions of sections 19, 20, 21, 22, 23 and 24, sub-section (3) of section 26, and sections 27, 28 and 29 shall mutatis mutandis apply to unregistered architects and unregistered town planners whose names are borne on the Lists.

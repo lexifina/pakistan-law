@@ -1,0 +1,3 @@
+10. Recognition of architectural and town planning qualifications granted by institutions
+in Pakistan.—(1) The architectural and town planning qualifications granted by the institutions in Pakistan which are included in the First Schedule shall be the recognised qualifications for the purposes of this Ordinance.
+(2) Any architectural or town planning institution in Pakistan which grants an architectural or town planning qualification not included in the First Schedule may apply to the Council to have such qualification recognised and the Council may, by notification in the official Gazette, amend the First Schedule so as to include such qualification therein.

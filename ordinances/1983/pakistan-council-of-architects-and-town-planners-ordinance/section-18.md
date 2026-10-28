@@ -1,0 +1,2 @@
+18. Appeal against refusal to permit registration. Any person aggrieved by an order under sub- section (2) of section 17 refusing to permit the registration of his name in the Register may, within thirty days of the communication of the order, prefer an appeal to the Executive Committee.
+(2) Upon the receipt of an appeal under sub-section (1), the Executive Committee may, after holding such inquiry as it may consider necessary and giving the appellant an opportunity of being heard in person or through an advocate, pass such order as it may deem fit.

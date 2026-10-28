@@ -1,0 +1,1 @@
+13. Power to require information as to courses of study and examination. Every institution in Pakistan which grants a recognised architectural or town planning qualification shall furnish such information as the Council may, from time to time, require as to the courses of study and examination to be undergone in order to obtain such qualification.

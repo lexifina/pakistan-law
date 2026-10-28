@@ -1,0 +1,1 @@
+27. Proof of membership, etc. For the purposes of any action or proceeding under this Ordinance, a certificate of the Registrar certifying under the seal of the Council that, on a specified date, the name of a person was or was not borne on the Register shall be proof of its contents and of the authenticity of his signature, until the contrary is proved.

@@ -1,0 +1,2 @@
+20. Complaints against architects or town planners.—(1) If at any time a complaint is made to the Council by any person as to the work or conduct of any architect or town planner, the Executive Committee may refer the matter for inquiry and report to an inquiry committee appointed by it.
+(2) If, upon the receipt of such report, the Executive Committee considers that a prima facie case for the removal from the Register of the name of the architect or town planner to whom the complaint relates has been established, the Executive Committee may refer the case to a Tribunal.
