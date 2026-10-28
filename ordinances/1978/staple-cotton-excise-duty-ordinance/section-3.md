@@ -1,0 +1,2 @@
+3. Rate of duty. There shall be levied and collected a duty of exercise on staple cotton produced and sold by a factory, whether directly or through the Corporation, to any buyer, other than the Cotton Export Corporation, at the rates set forth in the Schedule:
+Provided that, where the staple cotton is sold through the Corporation at the rates prescribed by the Corporation, the duty shall be payable by the Corporation out of the sale price.

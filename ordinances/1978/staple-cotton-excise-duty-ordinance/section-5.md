@@ -1,0 +1,1 @@
+5. Exemptions. The Board may, by special order in each case, exempt from the payment of the whole or any part of the duty leviable under this Ordinance, under circumstances of special nature to be stated in such order, any staple cotton on which such duty is leviable.
