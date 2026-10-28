@@ -1,0 +1,1 @@
+13. Applicability of Code.___ The provisions of this Act shall have effect notwithstanding anything contained in the Code or any other law but, save as expressly provided in this Act, the provision of the Code shall, in so far as they are not inconsistent with the provisions of this Act, apply to the proceedings under this Act.

@@ -1,0 +1,1 @@
+8. Non-criminalization of smuggled migrants.___ Without prejudice to the applicability of other laws establishing criminal offences, smuggled migrants shall not become liable to criminal prosecution under this Act for the fact of having been the object of conduct set forth in section 3,4,5,6 or 7 and may be a witness in the case.
