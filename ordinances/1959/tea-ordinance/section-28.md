@@ -1,0 +1,1 @@
+28. Presumption as to orders.—Where an order purports to have been made and signed by an authority in exercise of any power conferred by or under this Ordinance, a court shall, within the meaning of the Evidence Act, 1872 (I of 1872) presume that such order was so made by that authority.

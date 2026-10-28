@@ -1,0 +1,1 @@
+25. Protection of action taken in good faith.—No suit, prosecution or legal proceedings shall lie against the Board or any member thereof or any person acting on its behalf in respect of anything done in good faith under this Ordinance or any rules made under this Ordinance.
