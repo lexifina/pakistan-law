@@ -1,0 +1,6 @@
+10. Limitation of functions and powers of Treasurer.—(l) A Treasurer of Charitable Endowments shall always be a sole trustee, and shall not, as such Treasurer, take or hold any property otherwise than under the provisions of this Act, or subject to those provisions, transfer any property vested in him except in obedience to a decree divesting him of the property, or in compliance with a direction in that behalf issuing from the authority by whose order the property became vested in him.
+(2) Such a direction may require the Treasurer to sell or otherwise dispose of any property vested in him, and, with the sanction of the authority issuing the direction, to invest the proceeds of the sale or other disposal of the property in any such security for money as is [^19][specified in the direction], or in the purchase of immoveable property.
+(3) When a Treasurer of Charitable Endowments is divested, by a direction of [^20][the appropriate Government] under this section, of any property, it shall vest in the person or persons acting in the administration thereof and be held by him or them on the same trusts as those on which it was held by such Treasurer.
+
+[^19]: Subs. by A.O., 1937, for “mentioned in section 4, sub-section (3), clause (a), (b), (c), (d) or (e)”.
+[^20]: Sub. ibid., for “the L. G. or the G. G. in C”.

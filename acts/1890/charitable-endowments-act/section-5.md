@@ -1,0 +1,13 @@
+5. Schemes for administration of property vested in the Treasurer.—(1) On application made as hereinafter mentioned, and with the concurrence of the person or persons making the application, the [^11][appropriate Government], if it thinks fit, may settle a [^14]scheme for the administration of any property which has been or is to be vested in the Treasurer of Charitable endowments, and may in such scheme appoint, by name or office, a person or persons, not being or including such Treasurer, to administer the property.
+(2) On application made as hereinafter mentioned, and with the concurrence of the person or persons making the application, the [^11][appropriate Government] may, if it thinks fit, modify any scheme settled under this section or substitute another scheme in its stead.
+(3) A scheme settled, modified or substituted under this section shall, subject to the other provisions of this section, come into operation on a day to be appointed by the [^10][appropriate Government] in this behalf, and shall remain in force so long as the property to which it relates continues to be vested in the Treasurer of Charitable Endowments or until it has been modified or another such scheme has been substituted in its stead.
+(4) Such a scheme, when it comes into operation, shall supersede any decree or direction relating to the subject-matter thereof in so far as such decree or direction is in any way repugnant thereto, and its validity shall not be questioned in any Court, nor shall any Court give, in contravention of the provisions of the scheme or in any way contrary or in addition thereto, a decree or direction regarding the administration of the property to which the scheme relates:
+[^16][Provided that nothing in this sub-section shall be construed as precluding a Court from inquiring whether the Government by which a scheme was made was the appropriate Government.]
+(5) In the settlement of such a scheme effect shall be given to the wishes of the author of the trust so far as they can be ascertained, and, in the opinion of the [^15][appropriate Government], effect can reasonably be given to them.
+(6) Where a scheme has been settled under this section for the administration of property not already vested in the Treasurer of Charitable Endowments, it shall not come into operation until the property has become so vested.
+
+[^10]: Subs, by F.A.O., 1975, Art. 2 and Table, for “Central Government”.
+[^11]: Subs. by A. O., 1937, for “L.G.”.
+[^14]: For notification setting a scheme for the Administration of the Pakistan Army Endowment Fund Trust Fund, see Gazette of Pakistan, 1958, Pt. I, pp. 18 and 20.
+[^15]: Subs. by A. O; 1937, for “L.G.”.
+[^16]: Proviso ins. ibid.
