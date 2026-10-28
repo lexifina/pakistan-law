@@ -1,0 +1,1 @@
+18. Budget.—The Authority shall, in respect of each financial year, submit for approval of the Government, on such date as may be prescribed, a statement of the estimated receipts and expenditure, including requirements of foreign exchange for the next financial year.

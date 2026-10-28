@@ -1,0 +1,1 @@
+15. Staff and officers etc., to be public servants.—The Director General, Directors, officers, staff, experts and consultants of the Authority shall, when acting or purporting to act in pursuance of any of the provisions of this Act, be deemed to be public servants within the meaning of section 21 of the Pakistan Penal Code (Act XLV of 1860).

@@ -1,0 +1,1 @@
+20. Submission of yearly reports and returns.—As soon as possible after the end of every financial year but before the last day of the month of December of that year, the Authority shall submit to the Government a report on the conduct of its affairs for that year.
