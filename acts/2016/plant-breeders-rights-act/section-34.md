@@ -1,0 +1,1 @@
+34. Duration of compulsory license.— The Registrar shall determine the duration of the compulsory licenses granted under this Act and such duration may vary from case to case keeping in view the gestation periods of the plant variety and other relevant facts but in any case the term of compulsory license shall not exceed five years from the date of grant.

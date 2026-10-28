@@ -1,0 +1,1 @@
+26. Surrender of certificate.— The holder of a certificate under this Act may, at any time by giving notice in the prescribed manner to the Registrar, surrender his certificate in such manner as may be prescribed.

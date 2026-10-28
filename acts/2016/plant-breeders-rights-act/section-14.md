@@ -1,0 +1,3 @@
+14. Plant variety denomination.— Every applicant in his application shall assign an appropriate and distinct denomination in accordance with the prescribed rules to a variety with respect to which the applicant is seeking rights under this Act.
+(2) Where the denomination assigned to the variety does not satisfy the requirements specified in the rules, the Registrar may require the applicant to propose another denomination within such time as may be prescribed.
+(3) Notwithstanding anything contained in the Trade Marks Ordinance 2001 (XIX of 2001), a denomination assigned to a variety shall not be protected as a mark.

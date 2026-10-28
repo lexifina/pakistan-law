@@ -1,0 +1,5 @@
+## CHAPTER-II
+## ADMINISTRATION
+3. The Plant Breeders' Rights Registry. —(1) Notwithstanding the provisions contained in the Intellectual Property Organization of Pakistan Act, 2012(XXII of 2012), for the purposes of this Act, the Federal Government shall establish a Registry “The Plant Breeders' Rights Registry” under the Ministry of National Food Security and Research.
+(2) The headquarter of the Registry shall be at Islamabad and for the purpose of facilitating the applicants, the Ministry of National Food Security and Research may, with the prior approval of the Federal Government, set up offices of the Registry at such places, as it may deem necessary, as and when required.
+(3) The Ministry of National Food Security and Research may, with the prior approval of the Federal Government, create posts and appoint such officers, employees, experts and consultants, as it may consider necessary for the performance of the functions of the Registry, having such qualifications and experience as may be prescribed.

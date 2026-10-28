@@ -1,0 +1,2 @@
+40. Time limitation on an infringement suit, notice of infringement.—(1) No suit for infringement of a certificate shall be brought after three years following any alleged occurrence of infringement.
+(2) Damages will not be assessed against a defendant for infringement committed before actual or constructive notice is given to the defendant that the concerned variety is a protected plant variety. Constructive notice may be given by marking the container of the protected variety, or by any other appropriately visible indication that the variety is protected.

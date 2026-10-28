@@ -1,0 +1,1 @@
+44. Non-resident certificate owners.— Each owner of a certificate not residing in Pakistan shall designate in writing the name and address of a natural or legal person on whom judicial and other notices may be served.
