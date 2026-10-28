@@ -1,0 +1,1 @@
+400. Return of warrant on execution of sentence. When a sentence has been fully executed, the officer executing it shall return the warrant to the Court from which it issued, with an endorsement under his hand certifying the manner in which the sentence has been executed.

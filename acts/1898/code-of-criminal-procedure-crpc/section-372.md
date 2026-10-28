@@ -1,0 +1,1 @@
+372. Judgment when to be translated. The original judgment shall be filed with the record of proceedings, and, where the original is recorded in a different language from that of the Court, and the accused so requires, a translation thereof into the language of the Court shall be added to such record.

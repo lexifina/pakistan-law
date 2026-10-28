@@ -1,0 +1,1 @@
+65. Arrest by or in presence of Magistrate. Any Magistrate may at any time arrest or direct the arrest, in his presence, within the local limits of his jurisdiction, of any person for whose arrest he is competent at the time and in the circumstances to issue a warrant.

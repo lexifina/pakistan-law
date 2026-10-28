@@ -1,0 +1,7 @@
+[^707][418. Appeal on what matters admissible.- (1)] An appeal may lie on a matter of fact as well as a matter of law [^708]* * *.
+(2) [^709][* * * * * * *]
+Explanation.__ The alleged severity of a sentence shall, for the purposes of this section, be deemed to be a matter of law.
+
+[^707]: Re-numbered by the Code of Criminal Procedure (Amdt.) Act, 1923 (XVIII of 1923), s. 115.
+[^708]: Omitted by Ordinance XII of 1972, s.2 and Sch.
+[^709]: Omitted ibid.

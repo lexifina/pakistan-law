@@ -1,0 +1,1 @@
+429. Procedure where Judges of Court of Appeal are equally divided. When the Judges composing the Court of Appeal are equally divided in opinion, the case, with their opinions thereon, shall be laid before another Judge of the same Court, and such Judge, after such hearing (if any) as he thinks fit, shall deliver his opinion, and the judgment or order shall follow such opinion.

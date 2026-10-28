@@ -1,0 +1,1 @@
+81. Person arrested to be brought before Court without delay. The police-officer or other person executing a warrant of arrest shall (subject to the provisions of section 76 as to security) without unnecessary delay bring the person arrested before the Court before which he is required by law to produce such person.

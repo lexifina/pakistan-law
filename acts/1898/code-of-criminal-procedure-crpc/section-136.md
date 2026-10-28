@@ -1,0 +1,1 @@
+136. Consequence of his failing to do so. If such person does not perform such act or appear and show cause or apply for the appointment of a jury as required by section 135, he shall be liable to the penalty prescribed in that behalf in section 188 of the Pakistan Penal Code(XLV of 1860), and the order shall be made absolute.

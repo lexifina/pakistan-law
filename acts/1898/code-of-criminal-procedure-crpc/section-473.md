@@ -1,0 +1,4 @@
+473. Procedure where lunatic prisoner is reported capable of making his defence. If such person is [^762][detained] under the provisions of section 466, and [^763][in the case of a person detained in a jail, the Inspector-General of Prisons, or, in the case of a person detained in a lunatic asylum, the visitors of such asylum or any two of them] shall certify that, in his or their opinion, such person is capable of making his defence, he shall be taken before the Magistrate or Court, as the case may be, at such time as the Magistrate or Court appoints, and the Magistrate or Court shall deal with such person under the provisions of section 468 ;and the certificate of such Inspector­General or visitors as aforesaid shall be receivable as evidence.
+
+[^762]: Subs. by Act No. XVIII of 1923, s.125.
+[^763]: Subs. ibid.

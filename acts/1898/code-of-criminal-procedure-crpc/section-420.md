@@ -1,0 +1,1 @@
+420. Procedure when appellant in jail. If the appellant is in jail, he may present his petition of appeal and the copies accompanying the same to the officer in charge of the jail, who shall thereupon forward such petition and copies to the proper Appellate Court.

@@ -1,0 +1,1 @@
+224. Words in charge taken in sense of law under which offence is punishable. In every charge words used in describing an offence shall be deemed to have been used in the sense attached to them respectively by the law under which such offence is punishable.

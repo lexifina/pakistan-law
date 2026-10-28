@@ -1,0 +1,17 @@
+[^176][99A. Power to declare certain publications forfeited and to issue search-warrants for the same.__ (1) Where__
+(a) any newspaper, or book as defined in the [^177][[^178][***]West Pakistan Press and Publications Ordinance, 1963, or any other law relating to press and publications for the time being in force,] or
+(b) any document, wherever printed, appears to the [^179][Provincial Government] to contain any [^180][treasonable or] seditious matter [^181][or any matter which is prejudicial to national integration] [^182][or any matter which promotes or is intended to promote feelings of enmity or hatred between different classes of [^183][the citizens of Pakistan]]. [^184][or which is deliberately and maliciously intended to outrage the religious feelings of any such class by insulting the religion or the religious beliefs of that class], [^185][or any matter of the nature referred to in clause (jj) of sub-section (1) of section 24 of the West Pakistan Press and Publications Ordinance, 1963, (W.P.XXX of 1963)] that is to say, any matter the publication of which is punishable under [^180][section 123A or] section 124A [^182][or section 153A] [^184][or section 295A] [^185][or section 298A or section 298B or section 298C] of the Pakistan Penal Code (XLV of 1860), the [^179][Provincial Government] may, by notification in the [^186][official Gazette], stating the grounds of its opinion, declare every copy of the issue of the newspaper containing such matter, and every copy of such book or other document to be forfeited to [^183][Government] ,and thereupon any police-officer may seize the same wherever found in [^187][Pakistan] and any Magistrate may by warrant authorize any police-officer not below the rank of sub-inspector to enter upon and search for the same in any premises where any copy of such issue or any such book or other document may be or may be reasonably suspected to be.
+(2) In sub-section (1) “document” includes also any painting, drawing or photograph, or other visible representation.
+
+[^176]: Ins. by the Press Law Repeal and Amendment Act, 1922 (XIV of 1922), s. 5 and Sch. III.
+[^177]: Subs. by the Law Reforms Ordinance, 1972 (XII of 1972), s. 2 and Sch, for “Press and Registration of Books Act, 1867”.
+[^178]: Omitted by the Legal Reforms (Amdt.) Act, 1976 (XXI of 1976), s. 2 and Sch. __________________________________________________________________________________________________________________________________________________________________________________________________
+[^179]: Subs. by A.O., 1937, for “L.G.”.
+[^180]: Ins. by Act No. XIX of 1951, s. 2.
+[^181]: Ins. by the Criminal Law (Amdt.) Act, 1973 (6 of 1973), s. 3 (w.e.f. 31-1-73).
+[^182]: Ins. by Act No. XXXVI of 1926, s. 2.
+[^183]: Subs. by the Central Laws (Adaptation) Order, 1961(P. O. No. 1 of 1961), Art. 2 and Sch., for “His Majesty’s subjects” (with effect from the 23rd March, 1956).
+[^184]: Ins. by the Criminal Law Amendment Act, 1927 (XXV of 1927), s. 3.
+[^185]: Ins. by the Anti-Islamic Activities of the Qudiani Group, Lahori Group and Ahmadis (Prohibition and Punishment) Ordinance, 1984 (XX of 1984), s.4.
+[^186]: Subs. by A. O., 1937, for “local official Gazette”.
+[^187]: Subs. by the Central Laws (Statue Reform) Ordinance, 1960 (XXI of 1960), s. 3 and 2nd Sch. (with effect from the 14th October, 1955), for “the Provinces and the Capital of the Federation”.

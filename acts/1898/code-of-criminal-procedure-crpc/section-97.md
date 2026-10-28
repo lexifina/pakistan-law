@@ -1,0 +1,1 @@
+97. Power to restrict warrant. The Court may, if it thinks fit, specify in the warrant the particular place or part thereof to which only the search or inspection shall extend; and the person charged with the execution of such warrant shall then search or inspect only the place or part so specified.

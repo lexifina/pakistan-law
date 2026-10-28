@@ -1,0 +1,5 @@
+59. Arrest by private persons and procedure on such arrest.__[^114][(1) Any private person may arrest any person who in his view commits a non-bailable and cognizable offence, or any proclaimed offender, and without unnecessary delay, shall make over any person so arrested to a police-officer, or, in the absence of a police-officer, take such person or cause him to be taken in custody to the nearest police-station.]
+(2) If there is reason to believe that such person comes under the provisions of section 54, a police-officer shall re-arrest him.
+(3) If there is reason to believe that he has committed a non-cognizable offence, and he refuses on the demand of a police-officer to give his name and residence, or gives a name or residence which such officer has reason to believe to be false, he shall be dealt with under the provisions of section 57. If there is no sufficient reason to believe that he has committed any offence, he shall be at once released.
+
+[^114]: Subs. by Act No. XVIII of 1923, s. 12.

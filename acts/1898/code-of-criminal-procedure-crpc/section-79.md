@@ -1,0 +1,1 @@
+79. Warrant directed to police-officer. A warrant directed to any police-officer may also be executed by any other police-officer whose name is endorsed upon the warrant by the officer to whom it is directed or endorsed.

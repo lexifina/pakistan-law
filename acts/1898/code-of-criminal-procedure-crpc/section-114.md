@@ -1,0 +1,4 @@
+[^231]114. Summons or warrant in case of person not so present. If such person is not present in Court, the Magistrate shall issue a summons requiring him to appear, or, when such person is in custody, a warrant directing the officer in whose custody he is, to bring him before the Court:
+Provided that whenever it appears to such Magistrate, upon the report of a police-officer or upon other information (the substance of which report or information shall be recorded by the Magistrate), that there is reason to fear the commission of a breach of the peace, and that such breach of the peace cannot be prevented otherwise than by the immediate arrest of such person, the Magistrate may at any time issue a warrant for his arrest.
+
+[^231]: Ss. 112 to 121 and 123 to 126 and s. 514 apply to all cases requiring security for good behaviour under s. 6 of the Punjab Frontier Crossing Regulation, 1873 (7 of 1873).

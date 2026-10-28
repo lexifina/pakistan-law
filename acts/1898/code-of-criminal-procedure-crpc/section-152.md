@@ -1,0 +1,1 @@
+152. Prevention of injury to public property. A police-officer may of his own authority interpose to prevent any injury attempted to be committed in his view to any public property, moveable or immoveable, or the removal or injury of any public landmark or buoy or other mark used for navigation.

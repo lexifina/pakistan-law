@@ -1,0 +1,1 @@
+92. Arrest by breach of bond for appearance. When any person who is bound by any bond taken under this Code to appear before a Court, does not so appear, the officer presiding in such Court may issue a warrant directing that such person be arrested and produced before him.

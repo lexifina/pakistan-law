@@ -1,0 +1,4 @@
+[^39][14A. Appointment of Special Magistrates.__ (1) Notwithstanding anything contained in this Code or any other law for the time being in force or any judgement of any court including superior courts, the Provincial Government may appoint Special Magistrates with the powers of a Magistrate First Class Exclusively for the trial of offences relating to price control under any Provincial law or Federal law for the time being in force.
+(2) The Provincial Government or any officer authorized by the Provincial Government in this behalf may, from time to time, define local areas within which such Magistrates may exercise all or any of the powers with which they may respectively be invested under any Provincial law or Federal law relating to price control.]
+
+[^39]: Ins. by Act No. III of 2006, s. 21.

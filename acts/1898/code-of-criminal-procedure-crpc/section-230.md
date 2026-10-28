@@ -1,0 +1,2 @@
+230. Stay of proceedings if prosecution of offence in altered charge require previous
+sanction. If the offence stated in the new or altered or added charge is one for the prosecution of which previous sanction is necessary, the case shall not be proceeded with until such sanction is obtained, unless sanction has been already obtained for a prosecution on the same facts as those on which the new or altered charge is founded.

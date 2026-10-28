@@ -1,0 +1,2 @@
+75. Form of warrant of arrest.__(1) Every Warrant of arrest issued by a Court under this Code shall be in writing, signed by the presiding officer, or in the case of a Bench of Magistrates, by any member of such Bench; and shall bear the seal of the Court.
+(2) Continuance of warrant of arrest. Every such warrant shall remain in force until it is cancelled by the Court which issued it, or until it is executed.

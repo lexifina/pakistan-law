@@ -1,0 +1,2 @@
+156B. Investigation against a woman accused of the offence of zina.__Notwithstanding anything contained in this Code, where a person is accused of offence of zina under the Offence of zina (Enforcement of Huddood) Ordinance, 1979 (VII of 1979), no police officer below the rank of a Superintendent of Police shall investigate such offence nor shall such accused be arrested without permission of the court.
+Explanation.__ In this section ‘zina’ does not include ‘zina-bil-jabr’.]

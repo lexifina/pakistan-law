@@ -1,0 +1,10 @@
+364. Examination of accused how recorded.__ (1) Whenever the accused is examined by any Magistrate, or by any Court other than a High Court [^591][* * *] [^592][* * *] ,[^593][* * *], the whole of such examination, including every question put to him and every answer given by him, shall be recorded in full, in the language in which he is examined, or, if that is not practicable, in the language of the Court or in English: and such record shall be shown or read to him, or, if he does not understand the language in which it is written, shall be interpreted to him in a language which he understands, and he shall be at liberty to explain or add to his answers.
+(2) When the whole is made conformable to what he declares is the truth, the record shall be signed by the accused and the Magistrate or Judge of such Court, and such Magistrate or Judge shall certify under his own hand that the examination was taken in his presence and hearing and that the record contains a full and true account of the statement made by the accused.
+(3) In cases in which the examination of the accused is not recorded by the Magistrate or Judge himself, he shall be bound, [^594][* * *] as the examination proceeds, to make a memorandum thereof in the language of the Court, or in English, if he is sufficiently acquainted with the latter language; and such memorandum shall be written and signed by the Magistrate or Judge with his own hand, and shall be annexed to the record. If the Magistrate or Judge is unable to make a memorandum as above required, he shall record the reason of such inability.
+(4) Nothing in this section shall be deemed to apply to the examination of an accused person under section 263 [^595][* * *].
+
+[^591]: Omitted by A.O., 1961, Art. 2 and Sch., (with effect from the 23rd March, 1956).
+[^592]: Rep. by the Repealing and Amending Act, 1919 (XVIII of 1919).
+[^593]: Rep. by the Repealing and Amending Act, 1923 (XI of 1923), s.3 & sch. II.
+[^594]: Rep. by the code of Criminal Procedure (Second Amdt.) Act 1923 (XXXVII of 1923), s.2.
+[^595]: Omitted by A.O, 1949, Sch.

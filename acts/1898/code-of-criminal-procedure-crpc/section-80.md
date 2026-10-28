@@ -1,0 +1,1 @@
+80. Notification of substance of warrant. The police-officer or other person executing a warrant of arrest shall notify the substance thereof to the person to be arrested, and, if so required, shall show him the warrant.

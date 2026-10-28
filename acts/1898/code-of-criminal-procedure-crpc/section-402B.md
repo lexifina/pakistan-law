@@ -1,0 +1,3 @@
+[^675][402B. Certain restrictions on the exercise of powers by Provincial Government. Notwithstanding anything contained in section 401 or section 402, the Provincial Government shall not, except with the previous approval of the President, exercise the powers conferred thereby in a case where the President has passed any orders in exercise of his powers under the Constitution to grant pardons, reprieves and respites or to remit, suspend or commute any sentence or of his powers under section 402A.]
+
+[^675]: Ins. by the Code of Criminal Procedure (Amdt.) Act, 1973 (LVII of 1973), s. 2 (w.e.f. 29-6-73).

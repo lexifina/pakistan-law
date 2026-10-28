@@ -1,0 +1,2 @@
+265G. Summing up by prosecutor and defence.__ (1) In cases where the accused, or any one of several accused, does not adduce evidence in his defence, the Court shall, on the close of the prosecution case and examination (if any) of the accused, call upon the prosecutor to sum up his case whereafter the accused shall make a reply.
+(2) In cases where the accused, or any of the several accused, examines evidence in his defence, the Court shall, on the close of the defence case, call upon the accused to sum up the case whereafter the prosecutor shall make a reply.

@@ -1,0 +1,3 @@
+[^811][498A. No bail to be granted to a person not in custody, in court or against whom no case is registered, etc. Nothing in section 497 or section 498 shall be deemed to require or authorise a Court to release on bail, or to direct to be admitted to bail, any person who is not in custody or is not present in court or against whom no case stands registered for the time being and an order for the release of a person on bail, or a direction that a person be admitted to bail, shall be effective only in respect of the case that so stands registered against him and is specified in the order or direction.]
+
+[^811]: Ins. by Act No. XIII of 1976, s. 4 (w.e.f. 15-4-1976).

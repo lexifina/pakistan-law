@@ -1,0 +1,7 @@
+186. Power to issue summons or warrant for offence committed beyond local
+jurisdiction. Magistrate’s procedure on arrest.__(1) When [^374][* * *], [^375][* * * * * * *] a Magistrate of the first class, sees reason to believe that any person within the local limits of his jurisdiction has committed without such limits (whether within or without [^376][Pakistan]) an offence which cannot, under the provisions of sections 177 to 184 (both inclusive), or any other law for the time being in force, be inquired into or tried within such local limits, but is under some law for the time being in force triable in [^376][Pakistan], such Magistrate may inquire into the offence as if it had been committed within such local limits and compel such person in manner hereinbefore provided to appear before him, and send such person to the Magistrate having jurisdiction to inquire into or try such offence, or, if such offence is bailable, take a bond with or without sureties for his appearance before such Magistrate.
+(2) When there are more Magistrates then one having such jurisdiction and the Magistrate acting under this section cannot satisfy himself as to the Magistrate to or before whom such person should be sent or bound to appear, the case shall be reported for the orders of the High Court.
+
+[^374]: Omitted by A.O., 1949, Sch.
+[^375]: Omitted by Ord. No. XXXVII of 2001, s. 52.
+[^376]: Subs. by the Central Laws (Statute Reform) Ordinance, 1960 (XXI of 1960), s.3 and 2nd Sch. (with effect from the 14th October, 1955).

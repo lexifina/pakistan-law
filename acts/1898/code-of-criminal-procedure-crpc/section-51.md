@@ -1,0 +1,3 @@
+51. Search of arrested persons. Whenever a person is arrested by a police-officer under a warrant which does not provide for the taking of bail, or under a warrant which provides for the taking of bail but the person arrested cannot furnish bail, and
+whenever a person is arrested without warrant, or by a private person under a warrant, and cannot legally be admitted to bail, or is unable to furnish bail,
+the officer making the arrest or, when the arrest is made by a private person, the police-officer to whom he makes over the person arrested, may search such person, and place in safe custody all articles, other than necessary wearing-apparel, found upon him.

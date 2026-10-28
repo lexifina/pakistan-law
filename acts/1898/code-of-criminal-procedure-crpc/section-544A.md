@@ -1,0 +1,10 @@
+[^931][544A. Compensation to the heirs of the person killed, etc.__[^932][(1) Whenever a person is convicted of an offence in the commission whereof the death of, or hurt, injury, or mental anguish or psychological damage, to, any person is caused, or damage to or loss or destruction of any property is caused, the Court shall, when convicting such person, unless for reasons to be recorded in writing it otherwise directs, order the person convicted to pay to the heirs of the person whose death has been caused, or to the person hurt or injured, or to the person to whom mental anguish or psychological damage has been caused, or to the owner of the property damaged, lost or destroyed, as the case may be, such compensation as the Court may determine having regard to the circumstances of the case.]
+(2) The compensation payable under sub-section (1) shall be recoverable as [^933][an arrear of land revenue] and the Court may further order that, in default of payment [^934][or of recovery as aforesaid] the person ordered to pay such compensation shall suffer imprisonment for a period not exceeding six months, or if it be a Court of the Magistrate of the third class, for a period not exceeding thirty days.
+(3) The compensation payable under sub-section (1) shall be in addition to any sentence which the Court may impose for the offence of which the person directed to pay compensation has been convicted.
+(4) The provisions of sub-sections (2B), (2C), (3) and (4) of section 250 shall, as far as may be, apply to payment of compensation under this section.
+(5) An order under this section may also be made by an Appellate Court or by a Court when exercising its powers of revision.]
+
+[^931]: Ins. by Ordinance XII of 1972, s.2 and Sch.
+[^932]: Subs. by the Code of Criminal Procedure (Amdt.) Ordinance, 1980 (VI of 1980), s.3, for subsection (1).
+[^933]: Subs. by the Code of Criminal Procedure (Amdt.) Ordinance, 1980 (VI of 1980), s.3, for “if it were a fine imposed by the Court”.
+[^934]: Ins. ibid.

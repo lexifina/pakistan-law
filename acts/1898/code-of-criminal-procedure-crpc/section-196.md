@@ -1,0 +1,7 @@
+[^411][196. Prosecution for offences against the State. No Court shall take cognizance of any offence punishable under Chapter VI [^412][or IXA] of the Pakistan Penal Code (XLV of 1860) (except section 127), or punishable under section 108A, or section 153A, or section 294A, [^413][or section 295A] or section 505 of the same Code, unless upon complaint made by order of, or under authority from, [^414][ [^415][Federal Government], or the Provincial Government concerned, or some officer empowered in this behalf by either of the two Governments.]
+
+[^411]: This section has been amended in Sind by the Code of Criminal Procedure (Sind Amdt.) Act, 1947 (Sind Act 43 of 1947), and in the N.W.F.P by the Criminal Procedure (Election Offences) (N.W.F.P. Amdt.) Act, 1938 (N.W.F.P. Act 8 of 1938). In the Punjab this section has been amnended by the Punjab Criminal Procedure (Election Offences Amdt.) Act, 1936 (Punjab I of 1936).
+[^412]: Ins. by the Indian Elections Offences and Inquiries Act, 1920 (XXXIX of 1920), s.3.
+[^413]: Ins. by the Criminal Law Amendment Act, 1927 (XXV of 1927), s. 3.
+[^414]: The original words “the G.G. in C., the L.G., or some officer empowered by the G.G. in C. in this behalf” have successively been amended by A.O., 1937 and the Code of Criminal Procedure (Amdt.) Ordinance, 1960 (XLVIII of 1960), ss. 2 and 3, respectively, to read as above.
+[^415]: Subs. by F.A.O., 1975, Art. 2 and Table, for “Central Government”.

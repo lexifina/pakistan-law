@@ -1,0 +1,4 @@
+[^142][86A. Procedure for removal in custody to Tribal Area. Where a person arrested under section 85 is to be removed in custody to any place in the Tribal Areas, he shall be produced before a Magistrate within the local limits of whose jurisdiction the arrest was made, and such Magistrate in directing the removal shall hear the case in the same manner and have the same jurisdiction and powers, as nearly as may be, including the power to order the production of evidence, as if the person arrested were charged with an offence committed within the jurisdiction of such Magistrate; and such Magistrate shall direct the removal of the arrested person in custody if he is satisfied that the evidence produced before him raises a strong or probable presumption that the person arrested committed the offence mentioned in the warrant.]
+C.—Proclamation and Attachment
+
+[^142]: Ins. ibid.

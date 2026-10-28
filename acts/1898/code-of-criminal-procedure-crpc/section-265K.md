@@ -1,0 +1,1 @@
+265K. Power of Court to acquit accused at any stage.__ Nothing in this Chapter shall be deemed to prevent a Court from acquitting an accused at any stage of the case, if, after hearing the prosecutor and the accused and for reasons to be recorded, it considers that there is no probability of the accused being convicted of any offence.

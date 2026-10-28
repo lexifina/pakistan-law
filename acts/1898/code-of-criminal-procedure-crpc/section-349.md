@@ -1,0 +1,7 @@
+349. Procedure when Magistrate cannot pass sentence sufficiently severe.__ (1) Whenever a Magistrate of the second or third class, having jurisdiction, is of opinion, after hearing the evidence for the prosecution and the accused, that the accused is guilty, and that he ought to receive a punishment different in kind from, or more severe than, that which such Magistrate is empowered to inflict, or that he ought to be required to execute a bond under section 106, he may record the opinion and submit his proceedings, and forward the accused, [^576][to a Magistrate of the first class specially empowered in this behalf by the Provincial Government] to whom he is subordinate.
+[^577][(1A) When more accused than one are being tried together, and the Magistrate considers it necessary to proceed under sub-section (1) in regard to any of such accused, he shall forward all the accused who are in his opinion guilty to the [^576][Magistrate empowered under sub-section (1)].]
+(2) The Magistrate to whom the proceedings are submitted may, if he thinks fit, examine the parties and recall and examine any witness who has already given evidence in the case and may call for and take any further evidence, and shall pass such Judgment, sentence or order in the case as he thinks fit, and as is according to law:
+Provided that he shall not inflict a punishment more severe than he is empowered to inflict under sections 32 and 33.
+
+[^576]: Subs. by Law Reforms Ordinance, 1972 (XII of 1972), s. 2 and Sch.
+[^577]: Ins. by Act No. XVIII of 1923, s.93.
