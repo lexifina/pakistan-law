@@ -1,0 +1,1 @@
+20. Directives from the Government.__ The Government may, from time to time, issue to the Institute such directives and orders as it may consider necessary for carrying out the purposes of this Act and the Institute shall follow and carry out such directives and orders.

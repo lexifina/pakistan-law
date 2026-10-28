@@ -1,0 +1,10 @@
+26. Repeal and savings.__ (1) The provisions of Weights and Measures (International System) Act, 1967 (V of 1967) and any other law for the time being in force to the extent of the matters covered under this Act shall stand repealed.
+(2) Upon the commencement of this Act,__
+(a) all assets, rights, powers authorities and privileges and all property movable or immovable, cash and bank balance, reserve funds, investments and all other interests and rights in or arising out of such property and all debts all liabilities and obligations of whatever kind of the NPSL subsisting immediately before its separation from PCSIR shall stand transferred to and vest in the Institute;
+(b) all debts and obligations incurred or contracts entered into or rights acquired and all matters and things engaged to be done by, with or for the NPSL before its separation and reconstitution as NMIP, shall be deemed to have been incurred, entered into, acquired or engaged to be done by, with or for the Institute;
+(c) all suits and other legal proceedings instituted by or against the NPSL before its separation from PCSIR and reconstitution as NMIP shall be deemed to be suits and legal proceedings by or against the Institute and may be proceeded or otherwise dealt with accordingly;
+(d) all actions done by the NPSL before the commencement of this Act shall be deemed to be done under this Act;
+(e) all officers and other employees of the NPSL shall, notwithstanding anything contained in any law or in any agreement, deed, document or other instrument, stand transferred to the Institute in accordance with the present terms and conditions of the service applicable to them; and
+(f) on transfer under clause (e), all existing officers and employees shall, within ninety days of the commencement of this Act, exercise an irrevocable option either to become employees of the Institute established under this Act or continue on their existing terms and conditions of service, including their pension, general provident fund, gratuity, housing and other fringe benefits, applicable immediately before commencement of this Act.
+–––––––––––––
+RGN Date: 14-11-2025
