@@ -1,0 +1,1 @@
+5. Power not to recognize certain documents in Pakistan.―The application of those foreign documents shall be in-effective, which fall within the ambit of Apostille Convention but are against the glory of Islam and national interests, sovereignty and integrity of Pakistan.

@@ -1,0 +1,2 @@
+3. Conferment of certification.―(1) Notwithstanding anything to the contrary contained in any other law, the provisions of the Convention shall have the force of law in Pakistan.
+(2) The Federal Government may, by notification in the official Gazette, amend the Schedule in conformity with any amendment made and adopted in the Convention, provided that such amendments shall be adopted and ratified by the Government of Pakistan.
