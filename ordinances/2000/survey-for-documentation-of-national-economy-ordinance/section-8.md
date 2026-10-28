@@ -1,0 +1,1 @@
+8. Removal of difficulties:___ If any difficulty arises in giving effect to the provisions of this Ordinance, the Central Board of Revenue, may make such order, not inconsistent with the provisions of this Ordinance, as may appear to it to be necessary for removing the difficulty.
