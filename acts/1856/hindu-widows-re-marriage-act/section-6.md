@@ -1,0 +1,2 @@
+6. Ceremonies constituting valid marriage to have same effect on widow’s marriage.
+Whatever words spoken, ceremonies performed or engagements made on the marriage of a Hindu female who has not been previously married, are sufficient to constitute a valid marriage, shall have the same effect if spoken, performed or made on the marriage of a Hindu widow; and no marriage shall be declared invalid on the ground that such words, ceremonies or engagements are inapplicable to the case of a widow.

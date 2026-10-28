@@ -1,0 +1,6 @@
+7. Consent to re-marriage of minor widow. If the widow re-marrying is a minor whose marriage has not been consummated, she shall not re-marry without the consent of her father, or if she has no father, of her paternal grandfather, or if she has no such grandfather, of her mother, or, failing all these, of her elder brother, or failing also brothers, of her next male relative.
+Punishment for abetting marriage made contrary to this section. All persons knowingly abetting a marriage made contrary to the provisions of this section shall be liable to imprisonment for any term not exceeding one year or to fine or to both.
+Effect of such marriage. And all marriages made contrary to the provisions of this section may be declared void by a Court of law: Provided, that in any question regarding the validity of a marriage made contrary to the provisions of this section, such consent as is aforesaid shall be presumed until the contrary is proved, and that no such marriage shall be declared void after it has been consummated.
+Consent to re-marriage of major widow. In the case of a widow who is of full age, or whose marriage has been consummated, her own consent shall be sufficient consent to constitute her re-marriage lawful and valid.
+___________
+Date: 13-09-2024
