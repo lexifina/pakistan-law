@@ -1,0 +1,1 @@
+5B. Trial of offences.__ The offences under this Act and under the Explosive Substances Act, 1908 (VI of 1908) shall be tried by the Anti-terrorism Court established under the Anti-terrorism Act, 1997 (XXVII of 1997).]
