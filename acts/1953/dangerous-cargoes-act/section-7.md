@@ -1,0 +1,3 @@
+7. Delegation of powers by [^5][Chief of the Naval Staff].___The [^5][Chief of the Naval Staff] may, by notification in the official Gazette, delegate any power conferred on him by or under this Act to any officer subordinate to him and references in the Act to the said [^5][Chief of the Naval Staff] shall include references to his delegate: provided that in time of peace such power shall be delegated only to the [^5][Commodore-in-Charge or Flag Officer Commanding, Karachi, as the case may be] and in time of war to the [^5][officer of the Pakistan Navy, howsoever designated, who is for the time being incharge] of the port.
+
+[^5]: Subs. and ins. by Act No. XLIII of 1974, ss. 4, 5 and 6.
