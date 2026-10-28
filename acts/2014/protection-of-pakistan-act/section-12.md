@@ -1,0 +1,3 @@
+12. Prosecutor General.___ (1) The Government may appoint any person as Prosecutor General who is not less than forty-five years of age and has been an advocate of the High Court for a period of not less than ten years.
+(2) The Prosecutor General may issue instructions and guidelines for the competent investigation and effective prosecution of the cases of scheduled offences.
+(3) The Prosecutor General may, with prior approval of the Government, withdraw from the prosecution of any accused in a case pending before any Special Court and on submission of such request the Court may discharge or acquit the accused from the case as it may deem fit.

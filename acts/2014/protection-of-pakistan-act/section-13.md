@@ -1,0 +1,1 @@
+13. Protection of judges, prosecutors and witnesses etc.____ The Government shall take appropriate measures to provide adequate security to the prosecution witnesses, investigating officers, prosecutors, Special Judicial Magistrates and Judges of the Special Courts and for this purpose may establish, anywhere in Pakistan, high security prisons with court rooms.

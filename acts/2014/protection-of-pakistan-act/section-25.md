@@ -1,0 +1,2 @@
+25. Removal of difficulties.___ (1) If any difficulty arises in giving effect to any provision of this Act, the President may make such order, not inconsistent with the provisions of this Act, as may appear to him to be necessary for the purpose of removing such difficulty.
+(2) An order under sub-section (1) shall be laid before each House of the Parliament in its first sitting after the order is made.

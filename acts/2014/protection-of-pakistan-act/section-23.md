@@ -1,0 +1,1 @@
+23. Authorization.____ The Federal Government may, by notification in the official gazette, authorize a Provincial Government to perform such functions and exercise such powers under this Act or the rules made thereunder as the Federal Government may deern fit.

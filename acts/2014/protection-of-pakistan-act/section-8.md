@@ -1,0 +1,7 @@
+8. Establishment of Special Courts etc.____ (1) The Government may establish as many Special Courts under this Act as determined by it.
+(2) The Government, after consultation with the Chief Justice of the concerned High Court, may appoint any person as judge of the Special Court constituted under this Act who is or has been a Sessions Judge in any province of Pakistan, or has been an advocate of the High Court for a period of not less than ten years, and is not more than seventy years of age.
+(3) A judge of the Special Court shall have all the powers of a Sessions Court as provided under the Code.
+(4) The Government may provide security of tenure to a judge of the Special Court appointed under this Act as may be prescribed by the rules.
+(5) The Government may, after consultation with the Chief Justice of the concerned High Court, appoint any Magistrate of the First Class serving as a member of the subordinate judiciary under any High Court or any other officer of not less than BS-18 of the Pakistan Administrative Service or Provincial Management Service of any Province or any person who is or has been an advocate of the High Court for a period not less than five years, as Special Judicial Magistrate.
+(6) The Special Judicial Magistrate shall have all the powers of Magistrate of the First Class provided under the Code, unless they are inconsistent with this Act.
+(7) No Special Court shall take cognizance of a scheduled offence except on a report submitted under section 7.

@@ -1,0 +1,6 @@
+9. Place of inquiries, investigations and trials etc.____(l) The Government, on the report of a prosecuting agency, may determine the place of custody, inquiry, investigation and trial of a scheduled offence anywhere in Pakistan.
+(2) Subject to the Constitution,_____
+(a) the Government, Joint Investigation Team, armed forces or civil armed forces may, in the interest of the security of its personnel or for the safety of the detainee or accused or internee, as the case may be, or for any other reasonable cause withhold the information except from a High Court or the Supreme Court regarding the location of the detainee or accused or internee or internment centre established or information with respect to any detainee or accused or internee or his whereabouts:
+Provided that the judge or judges to whom the disclosure is made may decide to treat it as privileged information in the public interest; and
+(b) the Government may not in the interest of the security of Pakistan disclose the grounds for detention or divulge any information relating to a detainee, accused or internee who is an enemy alien or a militant.
+(3) A person convicted of a scheduled offence subject to direction of the Government may be confined at any place in Pakistan including the prisons established by the Provincial and Federal Governments.
