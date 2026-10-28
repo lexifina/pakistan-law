@@ -1,0 +1,2 @@
+28. Power to release seized conveyance.– (1) Where any conveyance is seized which is liable to confiscation, the adjudicating authority may, subject to such conditions as may be prescribed, order its release pending adjudication of the case and on furnishing a guarantee by the owner of the seized conveyance, from a scheduled bank valid for at least one year equal to the value of such conveyance.
+(2) In respect of cases pending before the Special Judge, release of conveyance under sub-section (1) shall not be allowed without prior permission of the Special Judge.

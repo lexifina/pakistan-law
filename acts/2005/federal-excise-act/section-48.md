@@ -1,0 +1,2 @@
+48. Repeal.–(1) Subject to the provisions of sub-section (2), the Central Excises Act, 1944 (I of 1944) shall stand repealed with effect from the date notified under sub-section (3) of section 1.
+(2) Unless otherwise directed by the Federal Government, in case of area where the repealed Act was extended through an order by a Governor of the Province or otherwise through an order by any other authority, the application of the repealed Act shall continue to be in force till this Act is made applicable in that area.

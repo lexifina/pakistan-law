@@ -1,0 +1,32 @@
+33. Appeals to [^157][Commissioner] (Appeals).— [^158][(1)] Any person other than [^159][officer of Inland Revenue] aggrieved by any decision or order [^160][ ] passed under this Act or the rules made there under by a [^155][officer of Inland Revenue up to the rank of [^161][Additional Commissioner Inland Revenue], other than [^162][an SOE or] a decision or order or notice given or action taken for recovery of the arrears of duty under this Act or rules made there under may within thirty days of receipt of such decision or order prefer appeal there from to the [^157][Commissioner] (Appeals).
+[^163][(1A) where in a particular case, the Commissioner (Appeals) is of the opinion that the recovery of tax levied under this Act, shall cause undue hardship to the taxpayer, he, after affording opportunity of being heard to the Commissioner or officer of Inland Revenue against whose order appeal has been made, may stay the recovery of such tax for a period not exceeding thirty days in aggregate.]
+[^164][(1B) An appeal under sub-section (1) shall– (a) be in the prescribed form;
+(b) be verified in the prescribed manner;
+(c) state precisely the grounds upon which the appeal is made;
+(d) be accompanied by the prescribed fee specified in sub-section (1C); and (e) be filed with the Commissioner (Appeals) within the time set out in sub-section (1).
+(1C) The prescribed fee shall be– (a) in the case of an appeal against an assessment– (i) where the appellant is a company, five thousand rupees; or (ii) where the appellant is not a company, two thousand and five hundred rupees; and (b) in any other case– (i) where appellant is a company, five thousand rupees; or
+(ii) where the appellant is not a company, one thousand rupees.]
+[^165][(2) The [^166][Commissioner] (Appeals) may, after giving both parties to the appeal an opportunity of being heard, pass such order as he thinks fit, confirming, varying, altering, setting aside or annulling the decision or order appealed against [^167][:]
+[^168][Provided that such order shall be passed not later than [one hundred and twenty] days from the date of filing of appeal or within such extended period, not exceeding [^169][sixty] days, as the [^170][Commissioner] (Appeals) may, for reasons to be recorded in writing, extend.]
+[^170][Provided further that any period during which the proceeding are adjourned on account of stay order or Alternative Dispute Resolution proceedings or the time taken through adjournment by the petitioner not exceeding thirty days shall be excluded for the computation of these period.]
+(3) In deciding an appeal, the [^170][Commissioner] (Appeals) may make such further inquiry as may be necessary provided that he shall not remand the case for de novo consideration.]
+[^171][(4) The Commissioner (Appeals) shall not admit any documentary material or evidence which was not produced before the Officer Inland Revenue unless the Commissioner (Appeals) is satisfied that the appellant was prevented by sufficient cause from producing such material or evidence before the Officer Inland Revenue.]
+[^172][(5) Registered person shall have an option to directly file an appeal before Appellate Tribunal Inland Revenue without availing right of appeal under this section.]
+
+[^155]: Substituted for “Federal Excise Officer” by Finance Act, 2010 w.e.f. June 5, 2010. The same amendment was made by Finance (Amendment) Ordinance, 2010, promulgated as Ordinance No. III of 2010, dated February 6, 2010, published in the Gazette of Pakistan Extraordinary Part I at pages 23 to 53. This Ordinance was presented in the Parliament but lapsed on 5 June 2010 as Parliament did not approve it. Originally this amendment was made through Finance (Amendment) Ordinance, 2009, promulgated as Ordinance No. XXII of 2009, dated October 28, 2009, published in the Gazette of Pakistan Extraordinary Part I at pages 229 to 259
+[^157]: Substituted for “Collector” by Finance Act, 2010 w.e.f. June 5, 2010. The same amendment was made by Finance (Amendment) Ordinance, 2010, promulgated as Ordinance No. III of 2010, dated February 6, 2010, published in the Gazette of Pakistan Extraordinary Part I at pages 23 to 53. This Ordinance was presented in the Parliament but lapsed on 5 June 2010 as Parliament did not approve it. Originally this amendment was made through Finance (Amendment) Ordinance, 2009, promulgated as Ordinance No. XXII of 2009, dated October 28, 2009, published in the Gazette of Pakistan Extraordinary Part I at pages 229 to 259
+[^158]: Numbered vide Finance Act, 2006.
+[^159]: the words “Officer of Inland Revenue” substituted through Finance Act, 2026.
+[^160]: Expression omitted through Finance, Act, 2025.
+[^161]: Substituted for “Additional Collector” by Finance Act, 2010 w.e.f. June 5, 2010. The same amendment was made by Finance (Amendment) Ordinance, 2010, promulgated as Ordinance No. III of 2010, dated February 6, 2010, published in the Gazette of Pakistan Extraordinary Part I at pages 23 to 53. This Ordinance was presented in the Parliament but lapsed on 5 June 2010 as Parliament did not approve it. Originally this amendment was made through Finance (Amendment) Ordinance, 2009, promulgated as Ordinance No. XXII of 2009, dated October 28, 2009, published in the Gazette of Pakistan Extraordinary Part I at pages 229 to 259.
+[^162]: Expression inserted by Finance Act, 2025.
+[^163]: Sub section (1A) inserted vid Finance Act, 2013.
+[^164]: New sub-sections (1B) and (1C) inserted by Finance Act, 2020.
+[^165]: Added vide Finance Act, 2006.
+[^166]: Substituted for “Collector” by Finance Act, 2010 w.e.f. June 5, 2010. The same amendment was made by Finance (Amendment) Ordinance, 2010, promulgated as Ordinance No. III of 2010, dated February 6, 2010, published in the Gazette of Pakistan Extraordinary Part I at pages 23 to 53. This Ordinance was presented in the Parliament but lapsed on 5 June 2010 as Parliament did not approve it. Originally this amendment was made through Finance (Amendment) Ordinance, 2009, promulgated as Ordinance No. XXII of 2009, dated October 28, 2009, published in the Gazette of Pakistan Extraordinary Part I at pages 229 to 259.
+[^167]: Full stop substituted vide Finance Act, 2007.
+[^168]: Inserted vide Finance Act, 2007.
+[^169]: Substituted vide Finance Act, 2009.
+[^170]: Added vide Finance Act, 2009.
+[^171]: New sub-section (4) inserted by Finance Act, 2020.
+[^172]: New sub-section (5) inserted by Finance Act, 2025.

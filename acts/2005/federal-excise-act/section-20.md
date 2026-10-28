@@ -1,0 +1,2 @@
+20. Appointment of Special Judges for trial of offences.– (1) The Federal Government may, by notification in the official Gazette, appoint as many Special Judges as it may consider necessary, and, where it appoints more than one Special Judge, shall specify in the notification the territorial limits within which each one of them shall exercise jurisdiction.
+(2) A Special Judge shall be a person who is or has been or is qualified to be a Sessions Judge.

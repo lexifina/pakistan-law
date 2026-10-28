@@ -1,0 +1,5 @@
+[^200][43A. Issuance of duplicate of [^201][Federal Excise] documents.– An officer of [^202][Inland Revenue] not below the rank of Assistant Collector may, on payment of one hundred rupees, issue an attested duplicate of any [^202][federal excise] document as is available with the department or has been filed under this Act or rules made there under to a relevant registered person applying for the same.]
+
+[^200]: Inserted vide Finance Act, 2008.
+[^201]: The “Inland Revenue” were substituted for “Federal Excise by Finance Act, 2010 w.e.f. June 5, 2010. The same amendment was made by Finance (Amendment) Ordinance, 2010, promulgated as Ordinance No. III of 2010, dated February 6, 2010, published in the Gazette of Pakistan Extraordinary Part I at pages 23 to 53. This Ordinance was presented in the Parliament but lapsed on 5 June 2010 as Parliament did not approve it. Originally this amendment was made through Finance (Amendment) Ordinance, 2009, promulgated as Ordinance No. XXII of 2009, dated October 28, 2009, published in the Gazette of Pakistan Extraordinary Part I at pages 229 to 259
+[^202]: The words “ Inland Revenue” substituted through Finance Act, 2026.
