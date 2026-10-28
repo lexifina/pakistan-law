@@ -1,0 +1,1 @@
+9. Pecuniary limits of jurisdiction of Civil Judges. The jurisdiction to be exercised in original civil suits as regards the value by any person appointed to be a Civil Judge shall be determined by the High Court either by including him in a class or otherwise as it thinks fit.

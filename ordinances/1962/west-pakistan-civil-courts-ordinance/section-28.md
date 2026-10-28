@@ -1,0 +1,8 @@
+28. Repeal and savings. (1) The enactments specified in the Schedule are hereby repealed to the extent mentioned in the fourth column thereof.
+(2) The districts and headquarters of districts existing for the purposes of civil justice when this Ordinance comes into force shall be deemed to have been made and determined under this Ordinance.
+(3) On the commencement of this Ordinance, if any suit or appeal is pending in the High Court or any other Civil Court, which under this Ordinance is to be tried or heard by some other Court, such suit or appeal shall stand transferred to the Court competent under this Ordinance to try or hear the same.
+(4) (i) The District Judges;
+(ii) the Additional Judges, the Joint Judges and the Assistant Judges; and
+(iii) the First Class Subordinate Judges, the Second Class Subordinate Judges, the Subordinate Judges, the Joint Subordinate Judges and Civil Judges,
+appointed under any of the enactments repealed under sub- section (1) shall, on the commencement of this Ordinance, become District Judges, Additional District Judges and Civil Judges respectively under this Ordinance, and exercise powers and jurisdiction as such.
+(5) Notwithstanding the repeal of the enactments mentioned in the Schedule, everything done, action taken, obligation, liability, penalty or punishment incurred, inquiry or proceeding commenced, officer appointed or person authorised, jurisdiction or power conferred, rule made and order issued under any of the provisions of the said enactments shall, if not inconsistent with the provisions of this Ordinance, continue in force and, so far as may be, be deemed to have been respectively done, taken, incurred, commenced, appointed, authorised, conferred, made or issued under this Ordinance.

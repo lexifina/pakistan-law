@@ -1,0 +1,1 @@
+7. Original Jurisdiction of District Judges in suits. Except as otherwise provided by any enactment for the time being in force, the Court of the District Judge shall have jurisdiction in original civil suits without limit as regards the value.
