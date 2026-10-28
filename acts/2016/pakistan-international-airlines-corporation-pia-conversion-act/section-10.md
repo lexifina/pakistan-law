@@ -1,0 +1,1 @@
+10. Removal of transitional difficulties.⸻ if any difficulty arises during the validity period in giving effect to any provision of this Act, the Federal Government may, be notification in the official Gazette, make such provisions as may appear to it to be necessary for the purpose of removing the difficulty.
