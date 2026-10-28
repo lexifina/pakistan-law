@@ -1,0 +1,1 @@
+26. Officers and servants.—The Board may appoint or employ such officers and servants as it considers necessary for the efficient performance of its functions, on such terms and conditions as it may determine.

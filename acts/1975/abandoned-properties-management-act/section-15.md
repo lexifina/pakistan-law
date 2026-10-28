@@ -1,0 +1,5 @@
+15. Appeal and revision.—(1) Any person aggrieved by an order or decision of the Administrator may, within the prescribed period, which shall not be less than twenty-one days, prefer an appeal to the Board.
+(2) The Board may, after giving the appellant an opportunity of being heard, pass such order as it thinks fit.
+(3) The Board may, at any time, either of its own motion or on the application of any person made within the prescribed period, call for the record of any proceeding under this Act which is pending before, or has been disposed of by the Administrator, for the purpose of satisfying itself as to the legality or propriety of any order passed in the said proceeding and may after perusal of the record pass such order in relation thereto as it thinks fit:
+Provided that the Board shall not, under this sub-section, pass an order revising or modifying an order affecting any person without giving such person an opportunity of being heard.
+(4) An order of the Board in an appeal or revision shall be final.

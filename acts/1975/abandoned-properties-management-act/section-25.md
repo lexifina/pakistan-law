@@ -1,0 +1,1 @@
+25. Delegation of powers.—The Federal Government may, by notification in the official Gazette, direct that all or any of its powers under this Act shall, subject to such conditions, if any, as may be specified in the notification, be exercised also by such officer or authority as may be so specified.

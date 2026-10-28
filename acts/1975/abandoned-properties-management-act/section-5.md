@@ -1,0 +1,3 @@
+5. Appointment of Administrator and Deputy Administrators.—(1) For the purpose of carrying the provisions of this Act into effect, the Federal Government may, by notification in the official Gazette, appoint an Administrator for Pakistan and one or more Deputy Administrators for such areas as may be specified in the notification.
+(2) The Administrator shall exercise his powers and perform his functions subject to the general supervision and control of the Board and shall be guided by any general or special order made by the Board.
+________________________________________________________________________________
