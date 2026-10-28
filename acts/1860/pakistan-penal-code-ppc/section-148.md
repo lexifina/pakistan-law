@@ -1,0 +1,1 @@
+148. Rioting, armed with deadly weapon. Whoever is guilty of rioting, being armed with a deadly weapon or with anything which, used as a weapon of offence, is likely to cause death, shall be punished with imprisonment of either description for a term which may extend to three years, or with fine, or with both.

@@ -1,0 +1,3 @@
+267. Making or selling false weight or measure. Whoever makes, sells or disposes of any instrument for weighing, or any weight, or any measure of length or capacity which he knows to be false, in order that the same may be used as true, or knowing that the same is likely to be used as true, shall be punished with imprisonment of either description for a term which may extend to one year, or with fine, or with both.
+CHAPTER XIV
+OF OFFENCES AFFECTING THE PUBLIC HEALTH, SAFETY, CONVENIENCE,

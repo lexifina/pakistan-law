@@ -1,0 +1,5 @@
+130. Aiding escape of, rescuing or harbouring such prisoner. Whoever knowingly aids or assists any State prisoner or prison of war in escaping from lawful custody, or rescues or attempts to rescue any such prisoner, or harbours or conceals any such prisoner who has escaped from lawful custody, or offers or attempts to offer any resistance to the recapture of such prisoner shall be punished with [^109][ imprisonment for life], or with imprisonment of either description for a term which may extend to ten years, and shall also be liable to fine.
+Explanation.__ A State prisoner or prisoner of war, who is permitted to be at large on his parole within certain limits in [^110][Pakistan], is said to escape from lawful custody if he goes beyond the limits within which he is allowed to be at large.
+
+[^109]: Subs. by the Law Reforms Ordinance, 1972 (12 of 1972),s.2 and Sch., for “transportation for life”.
+[^110]: Subs. by the Central Laws (Statute Reform) Ordinance, 1960(21 of 1960), section 3 and 2nd Sch. (w.e.f. 14th October, 1955), for “the Provinces and the Capital of the Federation” which had been subs. by A. O., 1949, Arts. 3 (2) and 4, for “British India”.

@@ -1,0 +1,1 @@
+344. Wrongful confinement for ten or more days. Whoever wrongfully confines any person for ten days, or more, shall be punished with imprisonment of either description for a term which may extend to three years, and shall also be liable to fine.

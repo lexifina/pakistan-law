@@ -1,0 +1,2 @@
+454. Lurking house-trespass or house-breaking in order to commit offence punishable
+with imprisonment. Whoever commits lurking house-trespass or house-breaking, in order to the committing of any offence punishable with imprisonment, shall be punished with imprisonment of either description for a term which may extend to three years, and shall also be liable to fine ; and if the offence intended to be committed is theft, the term of the imprisonment may be extended to ten years.

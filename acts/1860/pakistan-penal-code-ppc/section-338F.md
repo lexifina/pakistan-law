@@ -1,0 +1,1 @@
+338F. Interpretation.__ In the interpretation and application of the provisions of this Chapter, and in respect of matter ancillary or akin thereto, the court shall be guided by the Injunctions of Islam as laid down in the Holy Quran and Sunnah.

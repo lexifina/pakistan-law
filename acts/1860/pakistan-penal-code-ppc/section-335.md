@@ -1,0 +1,1 @@
+335. Itlaf-i-salahiyyat-i-udw.__ Whoever destroys or permanently impairs the functioning, power or capacity of an organ of the body of another person, or causes permanent disfigurement is said to cause itlaf-i-salahiyyat-i-udw.

@@ -1,0 +1,2 @@
+256. Having possession of instrument or material for counterfeiting Government
+stamp. Whoever has in his possession any instrument or material for the purpose of being used, or knowing or having reason to believe that it is intended to be used, for the purpose of counterfeiting any stamp issued by Government for the purpose of revenue, shall be punished with imprisonment of either description for a term which may extend to seven years, and shall also be liable to fine.

@@ -1,0 +1,3 @@
+328. Exposure and abandonment of child under twelve years by parent or person having
+care of it.__ Whoever being the father or mother of a child under the age of twelve years, or having the care of such child, shall expose or leave such child in any place with the intention of wholly abandoning such child, shall be punished with imprisonment of either description for a term which may extend to seven years, or with fine, or with both.
+Explanation.__ This section is not intended to prevent the trial of the offender for qatl-i-amd or qatl-i-shibh-i-amd or qatl-bis-sabab, as the case may be, if the child dies in consequence of the exposure.

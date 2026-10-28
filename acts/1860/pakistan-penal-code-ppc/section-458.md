@@ -1,0 +1,2 @@
+458. Lurking house-trespass or house-breaking by night after preparation for hurt,
+assault or wrongful restraint. Whoever commits lurking house-trespass by night or house-breaking by night, having made preparation for causing hurt to any person or for assaulting any person, or for wrongfully restraining any person, or for putting any person in fear of hurt, or of assault, or of wrongful restraint, shall be punished with imprisonment of either description for a term which may extend to fourteen years, and shall also be liable to fine.

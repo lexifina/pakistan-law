@@ -1,0 +1,1 @@
+143. Punishment. Whoever is a member of an unlawful assembly, shall be punished with imprisonment of either description for a term which may extend to six months, or with fine, or with both.

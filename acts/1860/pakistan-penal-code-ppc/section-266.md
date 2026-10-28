@@ -1,0 +1,1 @@
+266. Being in possession of false weight or measure. Whoever is in possession of any instrument for weighing, or of any weight, or of any measure of length or capacity, which he knows to be false, and intending that the same may be fraudulently used, shall be punished with imprisonment of either description for a term which may extend to one year, or with fine, or with both.

@@ -1,0 +1,1 @@
+407. Criminal breach of trust by carrier, etc. Whoever, being entrusted with property as a carrier, wharfinger or warehouse-keeper, commits criminal breach of trust in respect of such property, shall be punished with imprisonment or either description for a term which may extend to seven years, and shall also be liable to fine.

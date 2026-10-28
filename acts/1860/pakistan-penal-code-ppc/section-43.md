@@ -1,0 +1,1 @@
+43. “Illegal.” “Legally bound, to do.” The word “illegal” is applicable to everything which is an offence or which is prohibited by law, or which furnishes ground for a civil action : and a person is said to be “legally bound to do” whatever it is illegal in him to omit.

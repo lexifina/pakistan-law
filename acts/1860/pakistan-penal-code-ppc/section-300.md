@@ -1,0 +1,1 @@
+300. Qatl-e-amd. Whoever, with the intention of causing death or with the intention of causing bodily injury to a person, by doing an act which in the ordinary course of nature is likely to cause death, or with the knowledge that his act is so imminently dangerous that it must in all probability cause death, causes the death of such person, is said to commit qatl-e-amd.

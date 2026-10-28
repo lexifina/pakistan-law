@@ -1,0 +1,2 @@
+418. Cheating with knowledge that wrongful loss may ensue to person whose interest
+offender is bound to protect. Whoever cheats with the knowledge that he is likely thereby to cause wrongful loss to a person whose interest in the transaction to which the cheating relates, he was bound either by law, or by legal contract, to protect, shall be punished with imprisonment of either description for a term which may extend to three years, or with fine, or with both.

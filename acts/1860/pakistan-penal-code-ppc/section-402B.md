@@ -1,0 +1,1 @@
+402B. Punishment for hijacking. Whoever commits, or conspires or attempts to commit, or abets the commission of, hijacking shall be punished with death or imprisonment for life, and shall also be liable to forfeiture of property and fine.

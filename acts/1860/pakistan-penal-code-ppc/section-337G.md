@@ -1,0 +1,1 @@
+337G. Punishment for hurt by rash or negligent driving. Whoever causes hurt by rash or negligent driving shall be liable to arsh or daman specified for the kind of hurt caused and may also be punished with imprisonment of either description for a term which may extend to five years as ta'zir.

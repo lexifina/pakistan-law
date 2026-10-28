@@ -1,0 +1,10 @@
+# THE PAKISTAN PENAL CODE
+THE PAKISTAN PENAL CODE
+[^1]Act No. XLV OF 1860
+[6th October, 1860]
+CHAPTER I
+INTRODUCTION
+Preamble. WHEREAS it is expedient to provide a general Penal Code for [^2][Pakistan] ; It is enacted as follows:__
+
+[^1]: The Pakistan Penal Code has been declared in force in__ It has been applied to Phulera in the Excluded Area of Upper Tanawal to the extent the Act is applicable in the N.W.F.P., subject to certain modifications ; see N.W.F.P. (Upper Tanawal) (Excluded Area) Laws Regulation, 1950 and also extended to the Excluded Area of Upper Tanawal other than Phulera by the N.W.F.P. (Upper Tanawal) (Excluded Area) Laws Regulation, 1950 and declared to be in force in that area, w.e.f. 1st June, 1951, see N.W.F.P Gazette, Ext., dated 1-6-1951. It has been amended in its application to the N.W.F.P., see N.W.F.P Acts 3 of 1941 and 26 of 1950. It has also been extended to the Leased Areas of Baluchistan by the Leased Areas (Laws) Order, 1950 (G.G.O. 3 of 1950); and applied in the Federated Areas of Baluchistan, see Gazette of India, 1937, Pt. I, p. 1499. It has also been extended by notification under Article 7 (1) (a) of the N.W.F.P. (Enlargement of the Area and Alteration of Boundary) Order, 1952 (G. G. O. 1 of 1952), to the added area described in the First Schedule to that Order, w.e.f. 7th February, 1952, see N.W.F.P. Government Gazette, 1952, Pt. I, p. 70. It has also been amended in its application to the Province of West Pakistan by the Pakistan Penal Code (West Pakistan Amdt.) Act, 1963 (W.P. Act 6 of 1963), s. 2 (w.e.f. the 18th April, 1963). It has also been amended in its application to the Province of West Pakistan by the Pakistan Penal Code (West Pakistan Amdt.) Act, 1964 (W.P. Act 32 of 1964), s. 2 (w.e.f. 27-4-1964).
+[^2]: Subs. by the Central Laws (Statute Reform) Ordinance, 1960 (21 of 1960), s. 3 and 2nd Sch. (w.e.f.14th October, 1955), for "the Provinces and the Capital of the Federation" which had been subs. by A. O., 1949, Arts. 3(2) and 4, for "British India" .

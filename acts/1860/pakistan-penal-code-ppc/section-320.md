@@ -1,0 +1,1 @@
+320. Punishment for qatl-i-khata by rash or negligent driving.__ Whoever commits qatl-i-khata by rash or negligent driving shall, having regard to the facts and circumstances of the case, in addition to diyat, be punished with imprisonment of either description for a term which may extend to ten years.

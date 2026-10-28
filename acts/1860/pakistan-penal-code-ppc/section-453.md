@@ -1,0 +1,1 @@
+453. Punishment for lurking house-trespass or house-breaking. Whoever commits lurking house-trespass or house-breaking, shall be punished with imprisonment of either description for a term which may extend to two years, and shall also be liable to fine.

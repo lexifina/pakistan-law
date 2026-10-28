@@ -1,0 +1,2 @@
+70. Fine leviable within six years, or during imprisonment. Death not to discharge
+property from liability. The fine, or any part thereof which remains unpaid, may be levied at any time within six years after the passing of the sentence, and if, under the sentence, the offender be liable to impri- sonment for a longer period than six years, then at any time previous to the expiration of that period ; and the death of the offender does not discharge from the liability any property which would, after his death, be legally liable for his debts.

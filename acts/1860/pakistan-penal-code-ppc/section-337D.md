@@ -1,0 +1,1 @@
+337D. Punishment for jaifah.__ Whoever by doing any act with the intention of causing hurt to a person or with the knowledge that he is likely to cause hurt to such person, causes jaifah to such person, shall be liable to arsh which shall be one-third of the diyat and may also be punished with imprisonment of either description for a term which may extend to ten years as ta'zir.

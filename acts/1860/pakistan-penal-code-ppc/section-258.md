@@ -1,0 +1,1 @@
+258. Sale of counterfeit Government stamp. Whoever sells, or offers for sale, any stamp which he knows or has reason to believe to be a counterfeit of any stamp issued by Government for the purpose of revenue, shall be punished with imprisonment of either description for a term which may extend to seven years, and shall also be liable to fine.

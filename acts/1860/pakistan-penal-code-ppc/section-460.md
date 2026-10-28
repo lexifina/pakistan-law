@@ -1,0 +1,4 @@
+[^324][460. Persons jointly concerned in lurking house-trespass or house-breaking by night
+punishable for qatl or hurt caused by one of them.__ If, at the time of the committing of lurking house-trespass by night or house-breaking by night any person guilty of such offence shall voluntarily cause or attempt to commit qatl of, or hurt to, any person, every person jointly concerned in committing such lurking house-trespass by night, or house-breaking by night, shall be punished with imprisonment for life or, with imprisonment of either description for a term which may extend to ten years and shall also be liable to the same punishment for committing qatl or causing hurt to attempting to cause qatl or hurt as is specified in Chapter XVI of this Code.]
+
+[^324]: Subs. by Act II of 1997, ss. 8 & 9.

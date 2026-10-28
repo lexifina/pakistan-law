@@ -1,0 +1,5 @@
+194. Giving or fabricating false evidence with intent to procure conviction of capital offence; Whoever gives or fabricates false evidence, intending thereby to cause, or knowing it to be likely that he will thereby cause, any person to be convicted of an offence which is capital [^171][by any law for the time being in force], shall be punished with [^172][imprisonment for life], or with rigorous imprisonment for a term which may extend to ten years, and shall also be liable to fine ;
+if innocent person be thereby convicted and executed. and if an innocent person be convicted and executed in consequence of such false evidence, the person who gives such false evidence shall be punished either with death or the punishment hereinbefore described.
+
+[^171]: The original words, "by this Code" have successively been amended by Act 27 of 1870, s. 7, Act 9 of 1890, s. 149, and A. 0., 1949, Sch., to read as above.
+[^172]: Subs. by the Law Reforms Ordinance, 1972 (12 of 1972), s. 2 and Sch., for “transportation for life”.

@@ -1,0 +1,3 @@
+282. Conveying person by water for hire in unsafe or overloaded vessel. Whoever knowingly or negligently conveys, or causes to be conveyed for hire, any person by water in any vessel, when that vessel is in such a state or so loaded as to endanger the life of that person, shall be punished with imprisonment of either description for a term which may extend to six months, or with fine which may extend to [^220][three thousand rupees], or with both.
+
+[^220]: Subs. by Ord. 86 of 02, s.2 & Sch.I. * An offence punishable under sections 273, 274, 275 & 276 of the Pakistan Penal Code will be tried and punished by a Military Court, See Notification No. 57/ 1 (1) 1943/AJAG/CMLA/82 dt. 16-11-82 (Ext. Gaz. IBD. Part-I, dt. 21-11-82 page, 153).

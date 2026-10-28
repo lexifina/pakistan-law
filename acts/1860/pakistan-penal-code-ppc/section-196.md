@@ -1,0 +1,1 @@
+196. Using evidence known to be false. Whoever corruptly uses or attempts to uses as true or genuine evidence any evidence which he knows to be false or fabricated, shall be punished in the same manner as if he gave or fabricated false evidence.

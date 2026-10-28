@@ -1,0 +1,3 @@
+[^279][366B. Importation of girl from foreign country. Whoever imports into Pakistan from any country outside Pakistan any girl under the age of twenty-one years with intent that she may be, or knowing it to be likely that she will be, forced or seduced to illicit intercourse with another person, shall be punishable with imprisonment which may extend to ten years and shall also be liable to fine.]
+
+[^279]: Section 366B as amended by A. 0., 1949, Ord. 21 of 1960. Ord. 1 of 1961 have been subs. by the Federal Laws (Revision and Declaration) Ordinance, 1981 (27 of 1981), s. 3 and II Sch., to read as above.

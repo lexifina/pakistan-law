@@ -1,0 +1,3 @@
+67. Imprisonment for non-payment of fine, when offence punishable with fine only. If the offence be punishable with fine only, [^59][the imprisonment which the Court imposes in default of payment of the fine shall be simple, and] the term for which the Court directs the offender to be imprisoned, in default of payment of fine, shall not exceed the following scale, that is to say, for any term not exceeding two months when the amount of the fine shall not exceed fifty rupees, and for any term not exceeding four months when the amount shall not exceed one hundred rupees, and for any term not exceeding six months in any other case.
+
+[^59]: Ins. by the Indian Penal Code Amdt. Act, 1882 (8 of 1882), s. 3

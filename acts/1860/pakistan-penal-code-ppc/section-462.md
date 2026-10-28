@@ -1,0 +1,2 @@
+462. Punishment for same offence when committed by person entrusted with custody.__
+Whoever, being entrusted with any closed receptacle which contains or which he believes to contain property, without having authority to open the same, dishonestly, or with intent to commit mischief, breaks open or unfastens that receptacle, shall be punished with imprisonment of either description for a term which may extend to three years, or with fine, or with both.

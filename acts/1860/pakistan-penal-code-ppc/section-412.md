@@ -1,0 +1,3 @@
+412. Dishonestly receiving property stolen in the commission of a decoity. Whoever dishonestly receives or retains any stolen property, the possession whereof he knows or has reason to believe to have been transferred by the commission of decoity, or dishonestly receives from a person, whom he knows or has reason to believe to belong or to have belonged to a gang of dacoits, property which he knows or has reason to believe to have been stolen, shall be punished with [^314][imprisonment for life], or with rigorous imprisonment for a term which may extend to ten years, and shall also be liable to fine.
+
+[^314]: Subs. by the Law Reforms Ordinance, 1972 (12 of 1972), s. 2 and Sch., for “transportation for life”.

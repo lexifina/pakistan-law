@@ -1,0 +1,1 @@
+427. Mischief causing damage to the amount of fifty rupees. Whoever commits mischief and thereby causes loss or damage to the amount of fifty rupees or upwards, shall be punished with imprisonment of either description for a term which may extend to two years, or with fine, or with both.

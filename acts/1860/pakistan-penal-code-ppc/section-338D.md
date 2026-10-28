@@ -1,0 +1,1 @@
+338D. Confirmation of sentence of death by way of qisas or ta’zir, etc.__ A sentence of death awarded by way of qisas or ta’zir, or a sentence of qisas awarded for causing hurt, shall not be executed, unless it is confirmed by the High Court.
