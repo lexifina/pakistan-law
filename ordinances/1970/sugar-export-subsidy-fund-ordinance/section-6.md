@@ -1,0 +1,4 @@
+6. Power to call for information, etc.___(1) The [^1][Federal Government] may, at any time, by order, direct any sugar mill to maintain such accounts and to furnish to the [^1][Federal] Board of Revenue or to any officer of the [^1][Federal Government] such returns or other information relating to crushing of sugar-cane and production of sugar within such time and giving such particulars as may be specified in the order.
+(2) Any person authorised in this behalf by the [^1][Federal Government] or by the [^1][Federal] Board of Revenue may at all reasonable times enter any sugar factory or any place or premises where sugar is manufactured, stored or kept for sale and may require the production for his inspection of any book, register, record or other paper kept therein and ask for any information relating to the crushing of sugar-cane and production of sugar.
+
+[^1]: Subs. by F.A.O., 1975, Art. 2 and Table.

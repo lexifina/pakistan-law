@@ -1,0 +1,4 @@
+8. Offences by Companies, etc. Where any person guilty of an offence under this Ordinance is a company or other body corporate, every director, manager, secretary or other officer, and every agent and servant thereof and, in the case of an unlimited company or a company limited by guarantee, also every member thereof shall be punishable as if he had committed such offence:
+Provided that no such director, manager, secretary or other officer and no such agent, servant, or member shall be prosecuted under this Ordinance except with the previous approval of the [^2][Federal] Board of Revenue; and the [^2][Federal] Board of Revenue shall not give such approval if it is satisfied after giving such director, manager, secretary, officer, agent, servant or member an opportunity of showing cause against prosecution that the offence was committed without his knowledge or that he used due diligence to prevent its commission.
+
+[^2]: Subs. by F.A.O., 1975, Art. 2 and Table.
