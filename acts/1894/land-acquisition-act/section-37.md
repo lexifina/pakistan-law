@@ -1,0 +1,1 @@
+37. Difference as to condition of land. In case the Collector and persons interested differ as to the condition of the land at the expiration of the term, or as to any matter connected with the said agreement, the Collector shall refer such difference to the decision of the Court.

@@ -1,0 +1,3 @@
+[^46][38A. Industrial concern to be deemed Company for certain purposes. An industrial concern, ordinarily employing not less than one hundred workmen owned by an individual or by an association of individuals and not being a Company, desiring to acquire land for the erection of dwelling houses for workmen employed by the concern or for the provision of amenities directly connected therewith shall, so for as concerns the acquisition of such land, be deemed to be a Company for the purposes of this Part, and the references to Company in sections 5A, 6, 7, 17 and 50 shall be interpreted as references also to such concern.]
+
+[^46]: S. 38A ins. by the Land Acquisition (Amdt.) Act, 1933 (16 of 1933), s. 6.

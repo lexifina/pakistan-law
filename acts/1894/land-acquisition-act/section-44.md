@@ -1,0 +1,1 @@
+44. How agreement with Railway Company may be proved.- In the case of the acquisition of land for the purposes of a Railway Company, the existence of such an agreement as is mentioned in section 43 may be proved by the production of a printed copy thereof purporting to be printed by order of Government.
