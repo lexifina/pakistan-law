@@ -1,0 +1,4 @@
+27. Notice of decision to initiate investigation.—(1) When the Commission has decided to initiate an investigation it shall —
+(a) give notice to all exporters, importers and any representative associations of importers or exporters known to the Commission to be concerned, as well as representatives of the exporting country, the applicant and other interested parties known to the Commission to have an interest therein; and
+(b) publish a copy of such notice in the official Gazette and in at least one issue each of a daily newspaper in the English language and a daily newspaper in the Urdu language having wide circulation in Pakistan.
+(2) The notice of initiation of an investigation referred to in sub-section (1) shall be in such form and contain such information as may be prescribed and the initiation of investigation shall be effective on the date on which such notice is published in the newspapers as provided for in clause (b) of sub-section (1).

@@ -1,0 +1,4 @@
+13. Currency conversion.—(1) Should the price comparison under sections 11 and 12 require a conversion of currencies, the Commission shall make such conversion using the rate of exchange on the date of sale.
+(2) For the purposes of sub-section (1) the date of sale shall normally be the date of contract, purchase order, order confirmation or invoice, whichever establishes the material terms of sale.
+(3) Notwithstanding anything in sub-sections (1) and (2), when a sale of foreign currency on forward markets is used in direct relation to an export sale, the Commission shall use the rate of exchange in the forward sale for all the related transactions.
+(4) The Commission shall ignore fluctuations in exchange rates and shall allow exporters at least sixty days to have adjusted their export prices to reflect sustained movements in exchange rates during the period of investigation.

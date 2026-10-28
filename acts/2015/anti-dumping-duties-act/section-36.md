@@ -1,0 +1,4 @@
+36. Assessments to be on the basis of data relating to defined periods.—(1) The Commission shall base its assessments of dumping and injury on data relating to defined periods which shall be the periods for which information is required by the Commission.
+(2) For the purposes of an investigation of dumping, an investigation period shall normally cover twelve months preceding the month of initiation of the investigation for which data is available and in no case the investigation period shall be shorter than six months.
+(3) For the purposes of an investigation of injury, the investigation period shall normally cover thirty-six months:
+Provided that the Commission may at its sole discretion, select a shorter or longer period if it deems it appropriate in view of available information regarding domestic industry and an investigated product.

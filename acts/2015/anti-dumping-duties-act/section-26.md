@@ -1,0 +1,6 @@
+26. Imposition of anti-dumping measures on behalf of a third country.—(1)An application for imposition of anti-dumping measures may be made to the Commission on behalf of a third country by its authorities provided that—
+(a) such application is supported by price information to show that imported goods are being dumped and by detailed information to show that such dumping is causing injury to domestic industry concerned in the third country; and
+(b) the government of the third country affords all assistance to the Commission to obtain such further information as the Commission may require.
+(2) In considering an application received under sub-section (1), the Commission shall consider the effects of alleged dumping on the industry concerned as a whole in the third country and injury shall not be assessed in relation only to the effect of the alleged dumping on the industry's exports to Pakistan or on the industry's total exports of the product.
+(3) The decision whether or not to initiate an investigation pursuant to an application received under sub-section (1) shall rest with the Commission:
+Provided that the Commission shall not initiate such investigation until the Federal Government has requested and received approval for such an initiation from the Council for Trade in Goods of the WTO.

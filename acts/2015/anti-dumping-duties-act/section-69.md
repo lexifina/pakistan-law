@@ -1,0 +1,2 @@
+69. Operation of the Appellate Tribunal in the absence of the Chairman or a Member.— (1) If the Chairman’s or any of the member’s position becomes vacant, the Government shall designate a new member or one of the existing members to serve as Chairman.
+(2) The absence of a Chairman, or the temporary incapacity of the Chairman, shall not affect the other members’ ability to act as the Appellate Tribunal and to exercise its powers and authority under this Act.

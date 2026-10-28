@@ -1,0 +1,1 @@
+25. Self-initiation.—The Commission may, suo moto, initiate an investigation without having received a written application by or on behalf of domestic industry if it has sufficient evidence of dumping and injury, within the meaning of this Act to justify initiation of an investigation.

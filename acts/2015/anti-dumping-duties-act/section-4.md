@@ -1,0 +1,1 @@
+4. Identification of dumping.— For the purposes of this Act an investigated product shall be considered to be dumped if it is introduced into the commerce of Pakistan at a price which is less than its normal value.

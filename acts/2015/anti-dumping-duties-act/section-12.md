@@ -1,0 +1,4 @@
+12. Comparison methods.—(1) Subject to section 11, existence of dumping margin shall normally be established on the basis of a comparison of a weighted average normal value with a weighted average of prices of all comparable export transactions or by a comparison of normal value and export prices on a transaction-to- transaction basis.
+(2) Normal value established on a weighted average basis may be compared to prices of individual export transactions if—
+(a) the Commission finds a pattern of export prices, which differs significantly among different purchasers, regions or time periods; and
+(b) the Commission provides an explanation as to why such differences cannot be taken into account appropriately by the use of a weighted average-to-weighted average or transaction-to-transaction comparison.

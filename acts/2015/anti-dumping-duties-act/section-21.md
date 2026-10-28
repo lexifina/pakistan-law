@@ -1,0 +1,1 @@
+21. Notice to government of exporting country.—Upon receipt of a duly documented application compliant with the requirements of sections 20 and 24, the Commission shall promptly give notice to the government of each exporting country of the receipt of such application.
