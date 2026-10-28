@@ -1,0 +1,3 @@
+1. Short title, extent and commencement.—(l) This Ordinance may be called the .
+(2) It extends to the whole of Pakistan.
+(3) It shall come into force at once.
