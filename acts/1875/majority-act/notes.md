@@ -1,0 +1,21 @@
+[^1]: For the Statement of Objects and Reasons, see Gazette of India. 1874. Pt. V, p. 153; for Proceedings in Council, see ibid., Supplement, p. 668, and Extra Supplement, dated 12th May, 1874, p.4, and ibid., 1875, Supplement. p.333. It has been applied to Phulera in the Excluded Area of Upper Tanawal to the extent the Act is applicable in the N.W.F.P., subject to certain modifications, see N.W.F.P. (Upper Tanawal) (Excluded Area) Laws Regulation, 1950. It has been extended to the Excluded Area of Upper Tanawal other than (N.W.F.P.) Phulera by the N.W.F.P. (Upper Tanawal) (Excluded Area) Laws Regulation, 1950 and declared to be in force in that area with effect from 1st June, 1951, see N.W.F.P. Gazette, Extraordinary, dated 1st June. 1951. This Act has been declared to be in force in Balochistan, by the British Balochistan Laws Regulation, 1913 (2 of 1913). It has been extended to the Leased Areas of Balochistan. see the Leased Areas (Laws) Order, 1950 (G.G.O. 3 of 1950); and also applied in the Federated Areas of Balochistan see Gazette of India, 1937, Pt. I, p. 1499.
+[^2]: Subs. by the Central Laws (Statute Reform) Ordinance, 1960 (21 of 1960), s. 3 and 2nd sch., (with effect from the 14th October, 1955), for “the Provinces and the Capital of the Federation” which had been subs. by A.O., 1949, Arts. 3(2) and 4, for “British India”.
+[^3]: The word “Indian” omitted by A.O., 1949, Sch.
+[^4]: Tbe original para. as amended by A.O. 1937, A.O., 1949. Arts. 3(2) and 4, and the Federal Laws (Revision and Declaration) Act, 1951 (26 of 1951), s. 4 and III Sch., has been subs. by Ord. 21 of 1960. s. 3 and 2nd Sch. (with effect from the 14th October. 1951) to read as above.
+[^5]: Subs by A.O., 1961, Art. 2 and Sch: for “Her Majesty’s subject in” (with effect from the 23rd March. 1956).
+[^6]: Subs by A.O., 1949, Sch., for “India”.
+[^7]: C1ause (c) omitted by the Federal Laws (Revision and Declaration) Ordinance, 1981 (27 of 1981), s. 3 and IInd Sch.
+[^8]: Subs by the Guardians and Wards Act,1890 (8 of 1890), s. 52, for “every minor of whose person or property a guardian has been or shall be appointed by any Court of Justice, and every minor under the jurisdiction of any Court of Wards”.
+[^9]: Subs. by Ord. 27 of 1981, s.3 and 2nd Sch., for “Chapter XXXI of the Code of Civil Procedure”.
+[^10]: Subs. ibid. for “Indian Succession Act (No. X of 1865)”.
+[^11]: Subs. by the Central Laws (Statute Reform) Ordinance, 1960 (21 of 1960), s. 3 and 2nd Sch. (with effect from the 14th October, 1955), for “the Provinces and the Capital of the Federation”, which had been subs. by A.O. 1949. Arts 3(2) and 4 for “British India”.
+[^12]: Subs. by Ord. 27 of 1981 s. 3 and 2nd Sch., for “the provinces” which was subs. by A.O. 1949, Sch., for “British India”.
+[^13]: Subs. by the Federal Laws (Revision and Declaration) Act. 1951 (26 of 1951), s. 4 and III Sch., for “1850”.
+[^14]: Subs. ibid., for “British Indian”.
+[^15]: Subs. ibid., for”1871”.
+[^16]: Subs. by the Federal Laws (Revision and Declaration) Ordinance, 1981 (27 of 1981), s. 3 and IInd Sch., for “the Provinces” which was subs. by A. O., 1949, Sch., for “British India”.
+[^17]: Subs. by the Federal Laws (Revision and Declaration) Act, 1951 (26 of 1951), s. 4 and III Sch., for “1852)”.
+[^18]: Subs. ibid., for “British India”.
+[^19]: Subs. ibid., for “1873”.
+[^20]: Subs. ibid., for “1850”.
+[^21]: Subs. ibid., for “1868”.
