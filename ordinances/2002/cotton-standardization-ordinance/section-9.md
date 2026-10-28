@@ -1,0 +1,2 @@
+9. Appointment of officers and staff.⸺ (1) The Board may appoint such officers and employees as it may consider necessary for the efficient performance of its functions on such terms and conditions as may be prescribed with the prior approval of the Federal Government.
+(2) All appointments under sub-section (1) shall be made in accordance with the prescribed educational, technical or professional qualifications, experience and age limits and after advertisement of the vacancies in the prominent newspapers.

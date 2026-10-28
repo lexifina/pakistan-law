@@ -1,0 +1,2 @@
+19. Delegation.⎯ (1) The Federal Government may, by notification in the official Gazette, and subject to such conditions as may be specified in the notification, direct that all or any of its powers under this Ordinance or rules made thereunder shall also be exercisable by a Provincial Government or any authority subordinate to it.
+(2) The Board may delegate all or any of its powers under this Ordinance to the Chairman, a member or any officer of the Institute.

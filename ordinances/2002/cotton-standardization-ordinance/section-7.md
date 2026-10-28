@@ -1,0 +1,1 @@
+7. Power of Board to associate other persons. The Board may, in such manner and on such terms as it may deem fit, seek the advice or assistance of any person in carrying out the purposes of this Ordinance and invite any person to take part in discussions during any of its meeting without the right to vote.
