@@ -1,0 +1,1 @@
+4. Penalty. Whoever obstructs or prevents any operations under this Ordinance, or fails to comply with any provisions of the rules made thereunder, shall, on a complaint made in writing by any Revenue Officer, be punished with imprisonment which may extend to six months, or with fine which may extend to one thousand rupees or with both.

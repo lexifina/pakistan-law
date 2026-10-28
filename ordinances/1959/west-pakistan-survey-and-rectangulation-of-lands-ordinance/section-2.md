@@ -1,0 +1,1 @@
+2. Power to direct survey and rectangulation. Notwithstanding anything contained in any other law for the time being in force, the Board of Revenue, West Pakistan, may, by notification, direct that survey and rectangulation of land in any area be carried out; provided that, as far as possible, the area of an owner’s holding shall not, as a result of such operations, be reduced.
