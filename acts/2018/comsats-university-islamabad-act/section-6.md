@@ -1,0 +1,4 @@
+6. Teaching at the University.___(1) Ali recognized teaching in various courses shall be conducted by the University or the colleges in the prescribed manner and may include lectures, tutorials, discussion, seminars, demonstrations, distance learning and other methods of instruction as well as practical work in the laboratories, hospitals, workshops and other governmental or private organizations.
+(2) The authority responsible for organizing recognized teaching shall be such as may be prescribed.
+(3) The degree awarding programmes of the university shall conform to the approved criteria of the Commission.
+(4) No degree shall be granted unless student has passed an examination in Islamic and Pakistan Studies at the Bachelor’s degree level or, in case of non-muslim student, in Ethics and Pakistan Studies at his option.

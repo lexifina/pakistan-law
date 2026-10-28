@@ -1,0 +1,2 @@
+39. Flaws in the constitution of authorities.— Where there is a flaw in the constitution of an authority, as constituted by this Act, the Statutes or the Regulations on account of the abolition of a specified office under Government or because an organization, institution or other body outside the
+University has been dissolved or has ceased to function, or because of some other similar reason, such flaw shall be removed in such manner as the Senate may direct.
