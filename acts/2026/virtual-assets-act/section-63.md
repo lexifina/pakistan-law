@@ -1,0 +1,1 @@
+63. Jurisdiction.—Any Virtual Asset Service Provider, Licensee, or any other Person aggrieved by an order of the Authority may prefer an appeal before the Virtual Assets Appellate Tribunal within thirty days of the date on which the order was communicated, in accordance with the Prescribed Rules.

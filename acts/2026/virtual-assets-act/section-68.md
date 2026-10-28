@@ -1,0 +1,1 @@
+68. Powers to make regulations.—The Authority may make Regulations in the consultation with Division concerned as deemed necessary for the implementation of and for carrying out the purposes of this Act.

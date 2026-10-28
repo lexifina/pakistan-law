@@ -1,0 +1,6 @@
+19. Application for License.—(1) Any Person intending to incorporate a company, under the Companies Act, 2017 (XIX of 2017) or any other law for the time being in force, with the primary objective of engaging in Virtual Asset Services shall first apply to the Authority for a No-Objection Certificate before commencing the process of such incorporation.
+(2) An application for a No-Objection Certificate under sub-section (1) shall be made in such form and manner, accompanied by such information and fee as may be prescribed by the Authority.
+(3) Upon review of an application for No-Objection Certificate, the Authority may, having regard to the objects of this Act and the need to ensure the integrity of the Virtual Asset market, grant the approval or certificate, subject to any conditions, or refuse the application, providing written reasons for refusal.
+(4) An application for a license, following incorporation of the company, shall be made to the Authority in such form and manner as may be prescribed. It shall be accompanied by-
+(a) the prescribed fee, which shall be non-refundable unless otherwise determined by the Authority; and
+(b) such information and documents as may be prescribed or required by the Authority.

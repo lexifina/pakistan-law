@@ -1,0 +1,2 @@
+39. Data localization framework.— (1) A Licensee may store or process data outside Pakistan, subject to compliance with applicable laws relating to data protection, cybersecurity, and cross-border data transfers, and subject to such safeguards as shall be prescribed by Regulations.
+(2) Nothing in this section shall prevent the Authority from requiring immediate localization or restricted cross-border transfer of specific datasets where necessary in the interest of national security, financial stability, consumer protection, or enforcement effectiveness.

@@ -1,0 +1,1 @@
+51. Prohibition on Initial Virtual Asset Offerings.—No Person shall conduct or purport to conduct an Initial Virtual Asset Offering, in or from Pakistan, except in accordance with this Act and the Rules or Regulations made thereunder.

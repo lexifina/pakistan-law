@@ -1,0 +1,3 @@
+37. Regulation of Virtual Asset Mining Activities.—(1) The Authority may, in consultation with relevant government entities, issue Regulations, standards, and guidelines for mining activities.
+(2) Pure mining, by itself, does not constitute a Virtual Asset Service requiring license under section 18 and Schedule I. Mining operations involving customer assets or funds, however, shall be treated as Virtual Asset Services and require licensing.
+(3) The Authority may establish a registration or declaration framework for mining operators exceeding thresholds of scale, energy use, or hash rate, as set by Regulations.

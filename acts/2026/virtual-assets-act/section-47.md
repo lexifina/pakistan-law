@@ -1,0 +1,4 @@
+47. Travel rule and record-keeping obligations. (1) A Licensee shall obtain, hold and transmit originator and beneficiary information in any transfer of Virtual Assets meeting or exceeding the threshold prescribed by the Authority, in a manner consistent with Recommendations of Financial Action Task Force, as updated from time to time.
+(2) Such obligations shall be implemented in compliance with applicable data protection, data governance, and cybersecurity laws, ensuring the confidentiality, integrity, and security of the information.
+(3) The Authority may prescribe detailed procedures, standards, and formats for record-keeping, reporting, and transmission of information through Regulations.
+(4) A Licensee shall maintain records of transactions, customer due-diligence data and risk assessments for a period prescribed by Regulations, which shall not be less than the period required under the Anti-Money Laundering Act, 2010 (VII of 2010).

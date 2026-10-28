@@ -1,0 +1,1 @@
+55. Liability of officers of bodies corporate.—Where an offence under this Act is committed by a body corporate with the consent, connivance or neglect of any director, manager, secretary or similar officer, such Person shall be deemed to have committed the offence.

@@ -1,0 +1,1 @@
+73. Removal of difficulties.—If a procedural or operational difficulty arises in giving effect to any of the provisions of this Act, the Federal Government may, within six months of the commencement of this Act, make such order not inconsistent with the provisions of this Act, as may appear to it to be necessary or expedient for removing such difficulty.
