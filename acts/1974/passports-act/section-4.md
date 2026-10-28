@@ -1,0 +1,5 @@
+4. Punishment for contravention of sections 3, etc. —(1) A citizen of Pakistan who is of the age of twelve years or more shall be punishable with imprisonment for a term which may extend to one year, or with fine, or with both, if he—
+(a) contravenes or attempts to contravene or abets the contravention of any of the provisions of section 3; or
+(b) enters or attempts to enter Pakistan by any means whatever without being in possession of a passport or otherwise than at such port or place, or by such route, as may be prescribed.
+(3) Notwithstanding anything contained in the Code of Criminal Procedure, 1898 (Act V of 1898.), an offence punishable under subsection (1) or sub-section (2) shall be non- bailable.
+(2) A person departing from or entering, or attempting to depart from or enter, Pakistan in whose custody or charge a person who has not attained the age of twelve years departs from or enters, or attempts to depart from or enter, Pakistan in contravention of section 3 or clause (b) of sub-section (1) shall, in addition to any penalty to which he may be otherwise liable, be liable to the penalty provided for in that sub-section.
