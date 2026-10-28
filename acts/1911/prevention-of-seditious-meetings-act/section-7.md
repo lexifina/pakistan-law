@@ -1,0 +1,3 @@
+7. Penalty for delivery of speeches in public places. Whoever, in a proclaimed area, in a public place or a place of public resort, otherwise than at a public meeting held in accordance with, or exempted from, the provisions of section 4, without the permission in writing of the Magistrate of the District [^12]* * *, previously obtained, delivers any lecture, address or speech on any subject likely to cause disturbance or public excitement to persons then present, may be arrested without warrant, and shall be punished with imprisonment for a term which may extend to six months, or with fine, or with both.
+
+[^12]: The words and comma “or of the Commissioner of Police, as the case may be” omitted, ibid.
