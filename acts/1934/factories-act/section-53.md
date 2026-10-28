@@ -1,0 +1,2 @@
+53. Effect of certificate granted to adolescent.___(1) An adolescent who has been granted a certificate of fitness to work in a factory as an adult, under clause (b) of sub-section (2) of section 52, and who, while at work in a factory, carries a token giving reference to the certificate, shall be deemed to be an adult for all the purposes of Chapter IV.
+(2) An adolescent who has not been granted a certificate of fitness work in a factory as an adult under sub-section (2) of section 52 shall, notwithstanding his age, be deemed to be a child for the purposes of this Act.

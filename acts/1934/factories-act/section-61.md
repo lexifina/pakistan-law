@@ -1,0 +1,5 @@
+61. Enhanced penalty in certain cases after previous conviction. If any person who has been convicted at any offence punishable under clauses (b) to [^58][(g)] inclusive of section 60 is again guilty of an offence Involving a contravention of the same provision, he shall be punishable on the second conviction with fine which may extend to seven hundred and fifty rupees and shall not be less than one hundred rupees, and if he is again so guilty, shall be punishable on the third or any subsequent conviction with fine which may extend to one thousand rupees and shall not be less than two hundred and fifty rupees :
+Provided that for the purposes of this section no cognizance shall be taken of any conviction made more than two years before the commission of the offence which is being punished :
+Provided further that the Court, if it is satisfied that there are exceptional circumstances warranting such a course, may, after recording its reasons writing, impose a smaller fine than is required by this section.
+
+[^58]: Subs. by Act No. III of 1945, s.5.

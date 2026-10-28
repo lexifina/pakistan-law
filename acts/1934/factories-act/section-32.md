@@ -1,0 +1,2 @@
+32. Prohibition of employment of women and children near cotton openers. ___ No woman or child shall be employed in any part of a factory for pressing cotton in which a cotton opener is at work :
+Provided that if the feed end of a cotton opener is in a room separated from the delivery end by a partition extending to the roof or to such height as the Inspector may in any particular case specify in writing, women and children may be employed on the side of the partition where the feed end is situated.

@@ -1,0 +1,5 @@
+31. Casing of new machinery.___(1) In all machinery driven by power and installed in any factory after the commencement of the Labour Laws (Amendment) Ordinance, 1972___
+(a) every set screw, belt or key on any revolving shaft, spindle, wheel or pinion shall be so sunk, encased or otherwise effectively guarded as to prevent danger ; and
+(b) all spur, worm and other toothed or friction gearing which does not require frequent adjustment while in motion shall be completely encased unless it is so situated as to be as safe as it would be if it were completely encased.
+(2) Whoever sells or lets on hire or, as agent of a seller or hirer, causes or procures to be sold or let on hire, for use in a factory any machinery driven by power which does not comply with the provisions of sub-section (1), shall be punishable with imprisonment, for a term which may extend to three months, or with fine which may extend to five hundred rupees, or with both.
+(3) The Provincial Government may make rules specifying further safe-guards to be provided in respect of any other dangerous part of any particular machine or class or description of machines.

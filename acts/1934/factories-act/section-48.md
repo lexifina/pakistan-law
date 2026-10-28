@@ -1,0 +1,1 @@
+48. Restriction on double employment.___No adult worker shall be allowed to work in any factory on any day on which he has already been working in any other factory, save in such circumstances as may be prescribed.

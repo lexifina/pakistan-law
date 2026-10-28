@@ -1,0 +1,2 @@
+33F. Excessive weights.___(1) No person shall be employed in any factory to lift, carry or move any load so heavy as to be likely to cause him injury.
+(2) The Provincial Government may make rules prescribing the maximum weights which may be lifted, carried or moved by adult men, adult women, adolescents and children employed in factories or in any class or description of factories or in carrying on any specified process.

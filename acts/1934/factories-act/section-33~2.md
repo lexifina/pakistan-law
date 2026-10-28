@@ -1,0 +1,3 @@
+33. H. Powers to require specifications of defective parts or tests of stability.___If it appears to the Inspector that any building or part of a building, or any part of the ways, machinery or plant in a factory, is in such a condition that it may be dangerous to human life or safety, he may serve on the Manager of the factory an order in writing, requiring him before a specified date___
+(a) to furnish such drawings, specifications and other particulars as may be necessary to determine whether such building, ways, machinery or plant can be used with safety, or
+(b) to carry out such tests as may be necessary to determine the strength or quality of any specified parts and to inform the Inspector of the results thereof.

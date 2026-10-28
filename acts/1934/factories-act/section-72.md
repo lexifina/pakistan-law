@@ -1,0 +1,1 @@
+72. Presumption as to employment.___If a child over the age of six years is found inside any part of a factory in which children are working, he shall, until the contrary is proved, be deemed to be working in the factory.

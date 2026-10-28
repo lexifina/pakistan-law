@@ -1,0 +1,2 @@
+75. Limitation of prosecutions.___No Court shall take cognizance of any offence under this Act or any rule or order thereunder, other than an offence under section 62 or section 64, unless complaint thereof is made within six months of the data on which the offence is alleged to have been committed.
+Provided that when the offence consists of disobeying a written order made by an Inspector, complaint thereof may be made within twelve months of the date on which the offence is alleged to have been committed.
