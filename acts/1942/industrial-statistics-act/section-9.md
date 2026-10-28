@@ -1,0 +1,3 @@
+9. Penalty for improper disclosure of information or returns. If any person engaged in connection with collection of statistics under this Act willfully discloses any information or the contents of any return given or made under this Act otherwise than in the execution of his duties under this Act or for the purposes of the prosecution of an offence under this Act or under the Pakistan Penal Code (XLV of 1860), he shall be punishable with imprisonment for a term which may extend to six months, or with fine which may extend to [^8][four thousand] rupees, or with both imprisonment and fine.
+
+[^8]: Subs. by ord. VI of 2000, ss. 2 and 3.

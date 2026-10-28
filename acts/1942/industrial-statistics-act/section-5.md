@@ -1,0 +1,2 @@
+5. Power of statistics authority to call for returns and information.—(1) The statistics authority may serve or cause to be served on any person a notice requiring him to furnish, at such intervals and in such form and with such particulars as may be prescribed, such information or returns relating to any matter in respect of which statistics are to be collected and to such authority or person and in such manner and at such times as may be prescribed.
+(2) The notice referred to in sub-section (1) may be served by post.
