@@ -1,0 +1,5 @@
+18. Recall of Administrator General’s administration, and grant of probate, etc., to
+executor or next-of-kin.___If an executor or next-of-kin of the deceased, who has not been personally served with a citation or who has not had notice thereof in time to appear pursuant thereto establishes to the satisfaction of the Court a claim to probate of a will or to letters of administration in preference to the Administrator General, any letters of administration granted in accordance with the provisions of this Act to the Administrator General may be revoked, and probate or letters of administration may be granted to such executor or next-of-kin as the case may be:
+Provided that no letters of administration granted to the Administrator General shall be revoked for the cause aforesaid, except in cases in which a will of the deceased is proved in the [^17][Division], unless the application for that purpose is made within six months after the grant to the Administrator General and the Court is satisfied that there has been no unreasonable delay in making the application, or in transmitting the authority under which the application is made.
+
+[^17]: Subs. by A. O., 1937.

@@ -1,0 +1,1 @@
+30. Power to examine on oath.___The Administrator General may, whenever he desires, for the purposes of this Act, to satisfy himself regarding any question of fact, examine upon oath (which he is hereby authorised to administer) any person who is willing to be so examined by him regarding such question.

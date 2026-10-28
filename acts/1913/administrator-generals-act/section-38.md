@@ -1,0 +1,7 @@
+38. Transfer of certain assets from Pakistan to executor or administrator in country of
+domicile for distribution.___Where a person not having his domicile in [^25][Pakistan] has died leaving assets in any [^26][Province] and in the country in which he had his domicile at the time of his death, and proceedings for the administration of his estate with respect to assets in any such [^26][Province] have been taken under section 31 or section 32, and there has been a grant of administration in the country of domicile with respect to the assets in that country,
+the holder of the certificate granted under section 31 or section 32, or the Administrator General, as the case may be, after having given the prescribed notice for creditors and others to send in to him their claims against the estate of the deceased, and after having discharged, at the expiration of the time therein named, such lawful claims as he has notice of, may, instead of himself distributing any surplus or residue of the deceased’s property to persons residing out of [^25][Pakistan] who are entitled thereto transfer, with the consent of the executor or administrator, as the case may be, in the country of domicile, the surplus or residue to him for distribution to those persons.
+(f) Liability
+
+[^25]: Subs. by the Central Laws (Statute Reform) Ordinance, 1960 (XXI of 1960), s. 3 and Sch., II. (with effect from the 14th October, 1955).
+[^26]: Subs. and omitted by the Federal Laws (Revision and Declaration) Ordinance, 1981 (XXVII of 1981), s.3 and Sch. II.

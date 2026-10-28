@@ -1,0 +1,3 @@
+13. Grant of administration to Administrator General in certain cases.___If, in the course of proceedings to obtain letters of administration under the provisions of section 9, section 10, or section 11, no person appears and establishes his claim to probate of a will, or to a grant of letters of administration as next-of-kin of the deceased, within such period as to the Court seems reasonable,
+or if a person who has established his claim to a grant of letters of administration as next-of-kin of the deceased fails to give such security as may be required of him by law,
+the Court may grant letters of administration to the Administrator General.
