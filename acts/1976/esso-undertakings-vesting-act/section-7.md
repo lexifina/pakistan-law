@@ -1,0 +1,1 @@
+7. Lease.— On the expiry of the term of any lease, licence or tenancy referred to in sub-section (4) of section 4, such lease, licence or tenancy shall, if so desired by the Federal Government, be renewed on the same terms and conditions on which the lease, licence or tenancy was held by Esso immediately before the commencing day.
