@@ -1,0 +1,1 @@
+7. Entry into Mazar with weapon, etc. No person shall enter the Quaid-i-Azam’s Mazar with any weapon, instrument or other article which can be used as a weapon of offence or for causing injury or damage to any person or property.
