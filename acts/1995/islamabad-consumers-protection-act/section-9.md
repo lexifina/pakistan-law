@@ -1,0 +1,4 @@
+9. Penalties.—(1) Where any right of consumer required to be protected under section 5 of the Act is in any way infringed, the person responsible for such infringement shall be punished with imprisonment which may extend to two years, or with fine which may extend to forty thousand rupees, or with both.
+(2) Whoever makes advertisement through print or electronic-media or by chalking on walls or in any other manner in contravention of section 7, he shall be punished with imprisonment which may extend to two years, or with fine which may extend to thirty thousand rupees, or with both.
+(3) The Authority may, where it deems appropriate, order for payment of compensation to the consumer to the extent the consumer has suffered any damage or loss through any unfair trade practice.
+(4) The Authority may, where it deems necessary for protection of the rights of other consumers, order for confiscation of any goods or material or direct for their destruction.

@@ -1,0 +1,1 @@
+10. Appeal. An appeal against the order of Authority shall lie to the High Court and the provisions of the Code of Criminal Procedure, 1898 (V of 1898) in respect of appeals to the High Court shall, mutatis mutandis, apply.

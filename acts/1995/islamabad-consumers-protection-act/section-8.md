@@ -1,0 +1,4 @@
+8. Procedure for disposal of the complaints.—(1) A complainant may in respect of any goods sold or delivered or any service provided or supplied or against any unfair trade practice file a complaint with the Authority.
+(2) The Council may, in the case of any unfair trade practice coming to its notice, directly make complaint to the Authority through an officer authorised by it.
+(3) Where on examination of the complaint received under sub- section (1) or sub-section (2), the Authority is of the opinion that any right of the consumer has been infringed, it shall cause the notice of the complaint to be served on the respondent who shall be required to give his reply within a period of seven days.
+(4) After considering the complaint and the reply of the respondent and after providing the parties and opportunity of being heard, or if no reply is received and after such enquiry as the Authority may deem appropriate it may pass such orders as the circumstance may require.
