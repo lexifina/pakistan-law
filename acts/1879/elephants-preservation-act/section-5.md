@@ -1,0 +1,2 @@
+5. License to kill and capture wild elephants. The Collector or Deputy Commissioner of any district may, subject to such rules as may for the time being be in force under this Act, grant licenses to kill, or to capture, or to kill and capture, wild elephants in such district:
+Provided that no such license shall authorize any person to enter upon any land without the consent of the owner or occupier thereof.
