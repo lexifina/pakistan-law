@@ -1,0 +1,2 @@
+72. Employers not to dismiss or punish employee during the period of sickness, etc.– (1) No employer shall dismiss, discharge or reduce or otherwise punish an employee during the period in which the employee is in receipt of sickness benefit, maternity benefit, injury benefit or medical care.
+(2) No notice of dismissal or discharge or reduction given to an employee during the period specified in sub-section (1) shall be valid or operative.

@@ -1,0 +1,2 @@
+76. Removal of difficulties.– (1) If any difficulty arises in giving effect to the provisions of Chapters III and V, Government may, by order notified in the official Gazette, make such provision or give such direction as appears to it to be necessary for the removal of the difficulty.
+(2) Any order made under sub-section (1) shall have effect notwithstanding anything inconsistent therewith in any rules or regulations.

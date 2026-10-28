@@ -1,0 +1,3 @@
+52. Repayment of benefit improperly received.– (1) When a person has received any benefit or payment under this Ordinance to which he is not lawfully entitled, he shall be liable to repay to the Institution the value of the benefit or the amount of such payment, and, in the case of his death, his legal heirs shall be liable to repay the same from the assets of the deceased:
+Provided that the Institution may waive repayment where there was no misrepresentation on the part of the beneficiary and the repayment would cause undue hardship to him, or as the case may be, to his survivors.
+(2) For the purposes of this section, the value of any benefit received otherwise than in cash shall be determined in accordance with the regulations.

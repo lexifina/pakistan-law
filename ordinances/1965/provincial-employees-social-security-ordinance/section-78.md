@@ -1,0 +1,1 @@
+78. Protection of proceedings of the Governing Body.– No act or proceeding of the Governing Body shall be invalid or questioned merely on the ground of existence of any vacancy therein or of any defect in the constitution thereof or in the appointment or qualification of any member.

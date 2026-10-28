@@ -1,0 +1,1 @@
+65. Stay of payment pending appeals.– Where the Institution has appealed against an order of a Social Security Court that Court may, and, if so directed by the High Court shall, pending the decision of the appeal, direct that the payment of any sum required to be paid by the order appealed against shall be withheld.

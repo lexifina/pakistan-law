@@ -1,0 +1,4 @@
+9. Supersession of the Governing Body.– (1) If, in the opinion of Government, the Governing Body has persistently failed to perform the duties imposed upon it by or under this Ordinance, or has abused its powers, Government may, by notification, supersede the Governing Body:
+Provided that before such supersession, Government shall give the Governing Body a reasonable opportunity to show why it should not be superseded, and shall consider any explanation or objection which it submits.
+(2) Upon the publication of a notification under subsection (1), the person holding office as Chairman and members shall cease to hold such office.
+(3) Immediately upon the supersession of a Governing Body, Government shall constitute another Governing Body by appointing new members in accordance with the provisions of section 5.
