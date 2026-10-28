@@ -1,0 +1,1 @@
+11. Penalty for solemnizing marriage contrary to section 4. Any priest knowingly and willfully solemnizing any marriage contrary to and in violation of section 4 shall, on conviction thereof, be punished with simple imprisonment for a term which may extend to six months, or with fine which may extend to two hundred rupees, or with both.

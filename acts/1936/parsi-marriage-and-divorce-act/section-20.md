@@ -1,0 +1,3 @@
+20. Parsi District Matrimonial Courts. Every Court so constituted [^9][* * *] shall be entitled the Parsi District Matrimonial Court [^9][of the place at which it is constituted]. Subject to the provisions contained in section 21, the local limits of the jurisdiction of such Court shall be conter-minous with the limits of the district in which it is held. The Judge of the principal Court of original civil jurisdiction at such place shall be the Judge of such Matrimonial Court, and in the trial of cases under this Act he shall be aided by seven delegates.
+
+[^9]: Omitted and subs. by A. O., 1949.

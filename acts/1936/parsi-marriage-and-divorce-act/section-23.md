@@ -1,0 +1,1 @@
+23. Court seals. A seal shall be made for every Court constituted under this Act, and all decrees and orders and copies of decrees and orders of such Court shall be sealed with such seal, which shall be kept in the custody of the presiding judge.

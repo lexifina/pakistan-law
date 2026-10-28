@@ -1,0 +1,1 @@
+33. Joining of co-defendant. In every such suit for divorce on the ground of adultery, the plaintiff shall, unless the Court shall otherwise order, make the person with whom the adultery is alleged to have been committed a co-defendant, and in any such suit by the husband the Court may order the adulterer to pay the whole or any part of the costs of the proceedings.
