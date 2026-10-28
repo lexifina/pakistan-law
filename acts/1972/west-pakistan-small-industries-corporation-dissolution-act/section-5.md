@@ -1,0 +1,2 @@
+5. Transfer of employees of Corporation.― Persons who were in the whole time employment of the corporation immediately before the commencement of this Act shall be transferred to, and appointed by, the Provinces in accordance with the rules made by the President in this behalf:
+Provided that the persons so transferred shall be appointed on such terms and conditions as the President may by order determine.
