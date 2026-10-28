@@ -1,0 +1,2 @@
+41. Immunity against disclosure of information relating to security procedure.—(1) Subject to sub-section (2), no person shall be compelled to disclose any password, key or other secret information exclusively within his private knowledge, which enables his use of the security procedure or advanced electronic signature.
+(2) Sub-section (1) shall not confer any immunity where such information is used for the commission of any offence under any law for the time being in force.

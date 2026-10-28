@@ -1,0 +1,1 @@
+45. Removal of difficulties.—The Federal Government may, by notification in the official Gazette, make provisions for removal of difficulties in a manner not inconsistent with the provisions of this Ordinance.

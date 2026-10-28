@@ -1,0 +1,3 @@
+9. Presumption relating to advanced electronic signature.—In any proceedings, involving an advanced electronic signature, it shall be presumed unless evidence to contrary is adduced, that:
+(a) the electronic document affixed with an advanced electronic signature, as is the subject-matter of or identified in a valid accreditation certificate is authentic and has integrity; or
+(b) the advanced electronic signature is the signature of the person to whom it correlates, the advanced electronic signature was affixed by that person with the intention of signing or approving the electronic document and the electronic document has not been altered since that point in time.

@@ -1,0 +1,1 @@
+29. Amendment of Presidential Order No. X of 1984.—For the purposes of this Ordinance, the Qanun-e-Shahadat Order, 1984, (P.O. No. 10 of 1984) shall be read subject to the amendments specified in the Schedule to this Ordinance.

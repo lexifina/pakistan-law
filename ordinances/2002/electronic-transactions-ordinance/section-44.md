@@ -1,0 +1,3 @@
+44. Prior publication of rules and regulations.—(1) All rules and regulations proposed to be made by the Federal Government and the Certification Council under this Ordinance shall be published in the official Gazette and in at least one English and one Urdu daily with nationwide circulation, in draft form at least thirty days before the intended date of coming into operation.
+(2) The Certification Council shall keep record of all comments received on the draft of the rules or regulations, and shall prepare a report thereon addressing each comment.
+(3) The notification of the rules or regulations in their final form in the official Gazette shall be accompanied with a report of the Certification Council referred to in sub-section(2).

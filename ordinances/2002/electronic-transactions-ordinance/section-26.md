@@ -1,0 +1,1 @@
+26. Decision of Certification Council.__ All applications and matters coming before the Certification Council shall be decided through a speaking order, as expeditiously as possible but not later than ninety days except in extraordinary circumstances and for reasons to be recorded.
