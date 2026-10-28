@@ -1,0 +1,1 @@
+236. Person falsely contracting as agent not entitled to performance. A person with whom a contract has been entered into in the character of agent is not entitled to require the performance of it if he was in reality acting, not as agent, but on his own account.

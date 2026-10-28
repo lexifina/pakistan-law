@@ -1,0 +1,1 @@
+217. Agent’s right of retainer out of sums received on principal’s account. An agent may retain, out of any sums received on account of the principal in the business of the agency, all moneys due to himself in respect of advances made or expenses properly incurred by him in conducting such business, and also such remuneration as may be payable to him for acting as agent.

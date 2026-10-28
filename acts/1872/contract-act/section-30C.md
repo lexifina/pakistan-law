@@ -1,0 +1,2 @@
+30C. Payment by guardian, executor etc., in respect of void agreements not to be
+allowed credit. No guardian, executor, administrator, heir or personal representative of any minor or deceased person, as the case, may, be shall be entitled to or allowed any credit in his account for or in respect of any payment made by him on behalf of such minor or deceased person in respect of any such agreement, or any such commission, brokerage, fee, reward or claim as is referred to in sections 30A and 30B.]

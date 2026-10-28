@@ -1,0 +1,4 @@
+132. Liability of two persons primarily liable, not affected by arrangement between
+them that one shall be surety on other’s default. Where two persons contract with a third person to undertake a certain liability, and also contract with each other that one of them shall be liable only on the default of the other, the third person not being a party to such contract, the liability of each of such two persons to the third person under the first contract is not affected by the existence of the second contract, although such third person may have been aware of its existence.
+Illustration
+A and B make a joint and several promissory note to C. A makes it, in fact, as surety for B, and C knows this at the time when the note is made. The fact that A, to the knowledge of C, made the note as surety for B, is no answer to a suit by C against A upon the note.

@@ -1,0 +1,1 @@
+9. Promises, express and implied. In so far as the proposal or acceptance of any promise is made in words, the promise is said to be express. In so far as such proposal or acceptance is made otherwise than in words, the promise is said to be implied.

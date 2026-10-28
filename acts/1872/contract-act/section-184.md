@@ -1,0 +1,1 @@
+184. Who may be an agent. As between the principal and third persons any person may become an agent, but no person who is not of the age of majority and of sound mind can become an agent, so as to be responsible to his principal according to the provisions in that behalf herein contained.

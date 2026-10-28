@@ -1,0 +1,4 @@
+204. Revocation where authority has been partly exercised. The principal cannot revoke the authority given to his agent after the authority has been partly exercised so far as regards such acts and obligations as arise from acts already done in the agency.
+Illustrations
+(a) A authorizes B to buy 1,000 bales of cotton on account of A, and to pay for it out of A’s money remaining in B’s hands. B buys 1,000 bales of cotton in his own name, so as to make himself personally liable for the price. A cannot revoke B’s authority so far as regards payment for the cotton.
+(b) A authorizes B to buy 1,000 bales of cotton on account of A, and to pay for it out of A’s moneys remaining in B’s hands. B buys 1,000 bales of cotton in A’s name and so as not to render himself personally liable for the price. A can revoke B’s authority to pay for the cotton.

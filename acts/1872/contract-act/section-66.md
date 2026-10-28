@@ -1,0 +1,1 @@
+66. Mode of communicating or revoking rescission of voidable contract. The rescission of a voidable contract may be communicated or revoked in the same manner, and subject to the same rules, as apply to the communication or revocation of a proposal.

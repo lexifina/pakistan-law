@@ -1,0 +1,1 @@
+131. Revocation of continuing guarantee by surety’s death. The death of the surety operates, in the absence of any contract to the contrary, as a revocation of a continuing guarantee, so far as regards future transactions.

@@ -1,0 +1,3 @@
+7. Acceptance must be absolute. In order to convert a proposal into a promise, the acceptance must__
+(1) be absolute and unqualified ;
+(2) be expressed in some usual and reasonable manner, unless the proposal prescribes the manner in which it is to be accepted. If the proposal prescribes a manner in which it is to be accepted, and the acceptance is not made in such manner, the proposer may, within a reasonable time after the acceptance is communicated to him, insist that his proposal shall be accepted in the prescribed manner, and not otherwise; but if he fails to do so, he accepts the acceptance.

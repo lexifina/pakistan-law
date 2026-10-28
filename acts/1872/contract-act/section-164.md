@@ -1,0 +1,1 @@
+164. Bailor’s responsibility to bailee. The bailor is responsible to the bailee for any loss which the bailee may sustain by reason that the bailor was not entitled to make the bailment, or to receive back the goods or to give directions, respecting them.

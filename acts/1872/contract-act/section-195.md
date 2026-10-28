@@ -1,0 +1,4 @@
+195. Agent’s duty in naming such person. In selecting such agent for his principal, an agent is bound to exercise the same amount of discretion as a man of ordinary prudence would exercise in his own case; and, if he does this, he is not responsible to the principal for the acts or negligence of the agent so selected.
+Illustrations
+(a) A instructs B, a merchant, to buy a ship for him. B employs a ship surveyor of good reputation to choose a ship for A. The surveyor makes the choice negligently and the ship turns out to be unseaworthy and is lost. B is not, but the surveyor is, responsible to A.
+(b) A consigns goods to B, a merchant, for sale. B in due course, employs an auctioneer in good credit to sell the goods of A, and allows the auctioneer to receive the proceeds of the sale. The auctioneer afterwards becomes insolvent without having accounted for the proceeds. B is not responsible to A for the proceeds.

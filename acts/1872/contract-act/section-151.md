@@ -1,0 +1,1 @@
+151. Care to be taken by bailee. In all cases of bailment the bailee is bound to take as much care of the goods bailed to him as a man of ordinary prudence would, under similar circumstances, take of his own goods of the same bulk, quality and value as the goods bailed.

@@ -1,0 +1,1 @@
+209. Agent’s duty on termination of agency by principal’s death or insanity. When an agency is terminated by the principal dying or becoming of unsound mind, the agent is bound to take, on behalf of the representatives of his late principal, all reasonable steps for the protection and preservation of the interests entrusted to him.

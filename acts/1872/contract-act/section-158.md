@@ -1,0 +1,1 @@
+158. Repayment by bailor of necessary expenses. Where, by the conditions of the bailment, the goods are to be kept or to be carried, or to have work done upon them by the bailee for the bailor, and the bailee is to receive no remuneration, the bailor shall repay to the bailee the necessary expenses incurred by him for the purpose of the bailment.

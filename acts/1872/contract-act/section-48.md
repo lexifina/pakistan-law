@@ -1,0 +1,2 @@
+48. Application for performance on certain day to be at proper time and place. When a promise is to be performed on a certain day, and the promisor has not undertaken to perform it without application by the promisee, it is the duty of the promisee to apply for performance at a proper place and within the usual hours of business.
+Explanation.—The question “what is a proper time and place” is, in each particular case a question of fact.

@@ -1,0 +1,3 @@
+227. Principal how far bound, when agent exceeds authority. When an agent does more than he is authorized to do, and when the part of what he does, which is within his authority, can be separated from the part which is beyond his authority, so much only of what he does as is within his authority is binding as between him and his principal.
+Illustration
+A, being owner of a ship and cargo, authorizes B to procure an insurance for 4,000 rupees on the ship. B procures a policy for 4,000 rupees on the ship, and another for the like sum on the cargo. A is bound to pay the premium for the policy on the ship, but not the premium for the policy on the cargo.

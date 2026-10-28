@@ -1,0 +1,4 @@
+36. Agreement contingent on impossible events void. Contingent agreements to do or not to do anything, if an impossible event happens, are void, whether the impossibility of the event is known or not to the parties to the agreement at the time when it is made.
+Illustrations
+(a) A agrees to pay B 1,000 rupees if two straight lines should enclose a space. The agreement is void.
+(b) A agrees to pay B 1,000 rupees if B will marry A’s daughter C. C was dead at the time of the agreement. The agreement is void.
