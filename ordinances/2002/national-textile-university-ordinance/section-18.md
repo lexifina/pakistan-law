@@ -1,0 +1,2 @@
+18. Pension, insurance, gratuity, provident fund and benevolent Fund.___(1) The University shall constitute for the benefit of its officers teachers and other employees in such manner and subject to such condition as may be prescribed such pension, insurance, gratuity, provident fund and benevolent fund and other welfare schemes as it may deem fit.
+(2) Where any Provident Fund has been constituted under this Ordinance, the provisions of the Provident Funds Act, 1925 (XIX of 1925), shall apply to such Fund as if it were the Government Provident Fund.

@@ -1,0 +1,1 @@
+16. Academic and administrative staff. ___The academic and administrative staff of the University shall be selected with a view to achieve its stated objectives and the basic criteria of their selection shall be the highest standards of competence, integrity and efficiency.
