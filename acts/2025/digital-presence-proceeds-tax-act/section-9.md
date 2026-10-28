@@ -1,0 +1,2 @@
+9. Furnishing of information by social media and online platforms regarding
+advertisement.__ Every social media and online platform having digital presence in Pakistan is required to file a quarterly statement in the manner as prescribed providing client-wise information of local vendors or foreign vendors with or without a permanent establishment whose advertisements are relayed in Pakistan through its platform and the amount received.

@@ -1,0 +1,3 @@
+6. Responsibility to collect digital presence proceeds tax on advertisement at social media
+platform.__ (1) Every foreign vendor having digital presence in Pakistan making any payment in whole or part to social media platforms or any other online platform for online advertisement in Pakistan which is chargeable to tax under section 3, shall deduct tax from the gross amount paid at the rate specified in the Schedule of this Act.
+(2) Every foreign vendor who has deducted the tax under this section in a month is required to deposit the deducted amount in the government treasury before the 7th of immediately succeeding month.
