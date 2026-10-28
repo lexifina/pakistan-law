@@ -1,0 +1,4 @@
+11. False statements.___ Any person who,___
+(a) for the purpose of obtaining employment or procuring essential work, knowingly describes himself, or allows himself to be described, to any member of the Board or Advisory Committee as a person practising or engaged in any profession, occupation or employment when in fact he does not practise or engage himself in such profession, occupation or employment, or
+(b) for the purpose of obtaining release from any essential work, knowingly makes, or allows to be made, any false statement to any member of the Board or Advisory Committee, or
+(c) being an owner, manager, or officer discharging managerial functions, knowingly furnishes, or allows to be furnished, false information relating to the undertaking, shall be guilty of an offence under this Ordinance.
