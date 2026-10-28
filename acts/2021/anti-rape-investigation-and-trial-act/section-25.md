@@ -1,0 +1,1 @@
+25. Public reporting mechanism.— The ministry of law and justice, upon recommendations of the special committee, frame rules for establishing a reporting mechanism for receiving information from the public about suspicious persons or those suspected to have committed the scheduled offences.

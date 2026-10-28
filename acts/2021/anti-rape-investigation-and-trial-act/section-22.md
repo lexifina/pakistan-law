@@ -1,0 +1,5 @@
+22. False investigation or complaint.—(1) Whoever, being a public servant, entrusted to investigate scheduled offences, fails to carry out the investigation properly or diligently or causes the conduct of false investigation or fails to pursue the case in any court of law properly and in breach of duties, shall be guilty of an offence punishable with imprisonment of either description which may extend to three years and with fine.
+(2) Whoever gives to any public servant any information in relation to scheduled offences which he knows or believes to be false, intending thereby to cause, or knowing it to be likely that he will thereby cause, such public servant—
+(a) to do or omit anything which such public servant ought not to do or omit if the true state of facts respecting which such information is given were known by him; or
+(b) to use the lawful power of such public servant to the injury or annoyance of any person,
+shall be punished with imprisonment of either description for a term which may extend to three years and with fine.

@@ -1,0 +1,11 @@
+3. Establishment of Special Courts, etc.— (1) The Federal Government, in consultation with the Chief Justice of the High Court concerned, shall establish as many Special Courts throughout the country, as it may deem necessary, to try the scheduled offences.
+(2) The Federal Government, in consultation with the Chief Justice of the High Court concerned, shall appoint any person as a Judge of the Special Court, who is or has been a Sessions Judge or Additional Sessions Judge, or has been an advocate of the High Court for a period of not less than ten years, and is not more than sixty-eight years of age at the time of appointment.
+(3) In addition to or in lieu of the establishment of Special Courts under sub-section (1), the Federal Government may, in consultation with the Chief Justice of the High Court concerned, designate, throughout the country, as many Courts of Additional Sessions Judges or such other courts as Special Courts, as it may deem fit:
+Provided that where gender based violence (GBV) courts or juvenile courts or child protection courts have already been designated, they shall be deemed to be the Special Courts under this Act:
+Provided further that where more than one Special Court is designated or established in one jurisdiction, the concerned Courts of Sessions shall allocate the case.
+(4) A Judge of the Special Court shall have the same powers and jurisdiction as are vested in the Court of Sessions under the Code.
+(5) A Judge of the Special Court shall be appointed for a period of three years on such terms and conditions as may be determined by the Federal Government.
+(6) A Judge of a Special Court shall only be removable before the expiry of his tenure if he is found guilty of misconduct.
+(7) The disciplinary proceedings against a Judge of a Special Court shall be conducted in the same manner and under the same legal provisions and rules as prescribed for a District and Sessions Judge.
+(8) During his tenure, a Judge of a Special Court may be transferred to another Special Court within the same Province, by the Chief Justice of the High Court concerned, for reasons to be recorded in writing.
+(9) The trial of scheduled offences shall ordinarily be conducted in the Special Court within whose territorial jurisdiction the offences are committed.
