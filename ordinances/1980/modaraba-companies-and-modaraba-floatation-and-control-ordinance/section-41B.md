@@ -1,0 +1,1 @@
+41B. Power to issue directives, circulars, codes, guidelines, etc.__The Commission may issue such directive, circulars, codes, guidelines or notifications as are necessary to carry out the purposes of this ordinance and the rules and regulations made thereunder.]

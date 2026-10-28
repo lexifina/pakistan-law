@@ -1,0 +1,1 @@
+39. Delegation of powers. The Registrar may, by notification in the official Gazette, delegate, subject to such limitations, restrictions or conditions, if any, as he may, form time to time specify, such of his powers and functions under this Ordinance as he may deem fit to any officer subordinate to him.

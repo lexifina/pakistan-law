@@ -1,0 +1,5 @@
+27. Powers of Tribunal on hearing application for winding up of modaraba.__ (1) If, after hearing the application for winding up of a modaraba, the Tribunal decides to wind up the same it shall appoint a liquidator in consultation with the Registrar and approve a general scheme of winding up.
+(2) After a winding up order has been passed by the Tribunal, the modaraba company shall forthwith hand over charge of the modaraba to the liquidator and furnish him with such statements, documents, records, information and other material as may be required by him.
+(3) The liquidator shall conduct the winding up proceedings in the prescribed manner under the control and directions of the Tribunal.
+(4) The winding up proceedings shall be completed within a period of one year from the date of appointment of the liquidator unless the Tribunal, for special reasons to be recorded in writing, extends the period.
+(5) During the winding up proceedings, the Tribunal may allow the administrator appointed by the Registrar under section 20, if any, to continue to function may appoint an administrator to manage the modaraba till the disposal of the proceedings.

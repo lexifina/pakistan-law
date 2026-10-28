@@ -1,0 +1,2 @@
+26. Procedure of the Tribunal.__(1) Matters before the Tribunal shall come up for regular hearing as expeditiously as possible and, except in extraordinary circumstances and on grounds to be recorded, the Tribunal shall hear the cases from day to day.
+(2) In the exercise of its civil jurisdiction, the Tribunal shall, in all suits before it, including suits for recovery of money, follow the summary procedure provided for in Order XXXVII of the First Schedule to the Code of Civil Procedure, 1908 (Act V of 1908).

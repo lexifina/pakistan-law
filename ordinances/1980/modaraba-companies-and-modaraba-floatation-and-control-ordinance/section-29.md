@@ -1,0 +1,1 @@
+29. Finality of orders. Subject to the provisions for appeal as provided in section 30, no Court or other authority shall call or permit to be called in question any order, judgment or sentence of the Tribunal or the legality or propriety of anything done or intended to be done by the Tribunal under this Ordinance.

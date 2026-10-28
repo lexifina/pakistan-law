@@ -1,0 +1,1 @@
+10. Business of modaraba. No modaraba shall be a business which is opposed to the Injunctions of Islam and the Registrar shall not permit the floatation of a modaraba unless the Religious Board has certified in writing that the modaraba is not a business opposed to the Injunctions of Islam.

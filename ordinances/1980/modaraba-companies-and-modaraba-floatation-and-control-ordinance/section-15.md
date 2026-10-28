@@ -1,0 +1,3 @@
+15. Audit of accounts.__ (1) The accounts of a modaraba shall be audited by an auditor who is a Chartered Accountant within the meaning of the Chartered Accountants Ordinance, 1961 (X of 1961), appointed by the modaraba company with the approval of the Registrar and such auditor shall have the same powers, duties and liabilities as an auditor of a company has under the Companies Act,
+1913 (VII of 1913), and such other powers, duties and liabilities as are, or may be, provided in this Ordinance and the rules.
+(2) In addition to other matters, the auditor shall also state in his report whether in his opinion the business conducted, investments made and expenditures incurred by the modaraba are in accordance with the objects, terms and conditions of the modaraba.

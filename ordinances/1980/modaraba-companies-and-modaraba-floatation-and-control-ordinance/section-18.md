@@ -1,0 +1,1 @@
+18. Remuneration of modaraba company. The remuneration of a modaraba company in respect of a modaraba floated by it shall be a fixed percentage of the net annual profits of the modaraba and shall not exceed ten percent of such net annual profits computed in the manner to be prescribed.

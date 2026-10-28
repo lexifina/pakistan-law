@@ -1,0 +1,3 @@
+33. Liability of director manager or officer of a company.__(1) Where the person guilty of an offence referred to in sub-section (1) of section 31 or in section 32 is a company or other body corporate, every director, manager or other officer responsible for the conduct of its affairs shall, unless he proves that the offence was committed without his knowledge, or that he exercised all diligence to prevent its commission, be deemed to be guilty of the offence.
+(2) Any sum directed to be paid under section 32 shall be recoverable as an arrear of land revenue.
+(3) No prosecution for an offence against this Ordinance or the rules shall be instituted in respect of the same facts on which a penalty has been imposed under section 32.

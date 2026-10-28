@@ -1,0 +1,1 @@
+9. Religious Board. The Federal Government shall, for the purposes of the Ordinance, constitute a Religious Board which shall consist of such members and shall have such functions, terms and conditions as may be prescribed.
