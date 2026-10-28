@@ -1,0 +1,2 @@
+7. Punishment or prosecution of Revenue-officers no bar to civil remedies. Nothing in any law for the time being in force which authorizes the punishment departmentally of any Revenue-officer for any offence or breach of duty, or which sanctions his prosecution criminally for such offence or breach, shall be held to bar any remedy which may be had in the Civil Court against such officer.
+8 to 10. [Suits against Revenue-officers. Appeals from their proceedings. Power for Local Government to call for record.] Rep. by the Bombay Revenue Jurisdiction Act, 1880 (XV of 1880).
