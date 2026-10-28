@@ -1,0 +1,1 @@
+38. Removal of difficulties.—If any difficulty arises in giving effect to any provision of this Order, the President may make such order, not inconsistent with the provisions of this Order, as may appear to him to be necessary for the purpose of removing such difficulty.

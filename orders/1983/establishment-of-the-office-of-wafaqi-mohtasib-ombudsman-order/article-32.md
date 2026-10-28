@@ -1,0 +1,1 @@
+32. Representation of President.—Any person aggrieved by a decision or order of the Mohtasib may, within thirty days of the decision or order, make a representation to the President, who may pass such order thereon as he may deem fit.

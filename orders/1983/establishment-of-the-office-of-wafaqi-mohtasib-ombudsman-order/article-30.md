@@ -1,0 +1,1 @@
+30. Immunity.—No suit, prosecution or other legal proceeding shall lie against the Mohtasib, his Staff, Inspection Team, nominees, member of a standing or advisory committee or any person authorised by the Mohtasib for anything which is in good faith done or intended to be done under this Order.

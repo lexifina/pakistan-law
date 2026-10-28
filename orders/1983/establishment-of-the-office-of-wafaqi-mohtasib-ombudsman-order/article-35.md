@@ -1,0 +1,1 @@
+35. Expenditure to be charged on Federal Consolidated Fund.— The remuneration payable to the Mohtasib and the administrative expenses of the Office, including the remuneration payable to staff nominees and grantees, shall be an expenditure charged upon the Federal Consolidated Fund.

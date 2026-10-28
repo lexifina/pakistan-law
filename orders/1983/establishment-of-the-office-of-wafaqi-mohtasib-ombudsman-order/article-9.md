@@ -1,0 +1,8 @@
+9. Jurisdiction, functions and powers of the Mohtasib.—(1) The Mohtasib may on a complaint by an aggrieved person, on a reference by the President, the Federal Council or the National Assembly, as the case may be, or on a motion of the Supreme Court or a High Court made during the course of any proceedings before it or of his own motion, undertake any investigation into any allegation of maladministration on the part of any Agency or any of its officers or employees;
+Provided that the Mohtasib shall not have any jurisdiction to investigate or inquire into any matters which :—
+(a) are sub judice before a Court of competent jurisdiction or judicial Tribunal or board in Pakistan on the date of receipt of a complaint, reference or motion by him ; or
+(b) relate to the external affairs of Pakistan or the relations or dealings of Pakistan with any foreign state or government; or .
+(c) relate to, or are connected with, the defence of Pakistan or any part thereof, the military, naval and air forces of Pakistan, or the matters covered by the laws relating to those forces.
+(2) Notwithstanding anything contained in clause (1), the Mohtasib shall not accept for investigation any complaint by or on behalf of a public servant or functionary concerning any matter relating to the Agency in which he is, or has been, working in respect of any personal grievance relating to his service therein.
+(3) For carrying out the objectives of this Order and, in particular for ascertaining the root causes of corrupt practices and injustice, the Mohtasib may arrange for studies to be made or research to be conducted and may recommend appropriate steps for their eradication.
+(4) The Mohtasib may set up regional offices as, when and where required.

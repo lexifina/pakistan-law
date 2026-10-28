@@ -1,0 +1,1 @@
+7. Acting Mohtasib.—At any time when the office of Mohtasib is vacant, or. the Mohtasib is absent or is unable to perform his functions due to any cause, the President shall appoint as acting Mohtasib.

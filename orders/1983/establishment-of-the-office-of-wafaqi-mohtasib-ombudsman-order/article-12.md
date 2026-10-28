@@ -1,0 +1,3 @@
+12. Defiance of recommendations.—(1) If there is a “Defiance of recommendations” by any public servant in any Agency with regard to the implementation of a recommendation given by the Mohtasib, the Mohtasib, may refer the matter to the President who may, in his discretion direct the Agency to implement the recommendation and inform the Mohtasib accordingly.
+(2) In each instance of “Defiance of Recommendations” a report by the Mohtasib shall become a part of the personal file or Character Roll of the public servant primarily responsible for the defiance:
+Provided that the public servant concerned had been granted an opportunity to be heard in the matter.

@@ -1,0 +1,2 @@
+33. Informal resolution of disputes.—(l) Notwithstanding anything contained in this Order, the Mohtasib and a member of the staff shall have the authority to informally conciliate, amicably resolve, stipulate, settle, or ameliorate any grievance without written memorandum without the necessity of docketing any complaint or issuing any official notice.
+(2) The Mohtasib may appoint for purposes of liaison counsellors, whether honorary or otherwise, at local levels on such terms and conditions as the Mohtasib may deem proper.
