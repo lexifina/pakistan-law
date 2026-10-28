@@ -1,0 +1,1 @@
+3. Act to override other laws, etc. This Act shall have effect notwithstanding anything to the contrary contained in any other law or any decree, judgement or order of any court or other authority, or any agreement, contract or instrument.

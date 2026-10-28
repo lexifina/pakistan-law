@@ -1,0 +1,2 @@
+4. Cancellation of allotments and transfers of evacuee land.—(1) All allotments and transfers of evacuee land in any Katchi Abadi shall stand cancelled as from the appointed day, and the allottees or transferees of such land shall be paid such compensation therefore as may be determined by Government.
+(2) Nothing in sub-section (1) shall apply to such evacuee land as was occupied by its allottee or transferee on the appointed day and does not exceed his verified claim.

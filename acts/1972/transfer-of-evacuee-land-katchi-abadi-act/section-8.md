@@ -1,0 +1,1 @@
+8. Penalty. Any person who resists or interferes with the enforcement of the provisions of this Act or any scheme or order made thereunder shall be punishable with rigorous imprisonment for a term which may extend to one year, or with fine, or with both.
