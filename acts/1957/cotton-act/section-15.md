@@ -1,0 +1,1 @@
+15. Cognizance of offences. No court shall take cognizance of any offence punishable under this Act except on a report in writing of the facts constituting such offence made by a person who is a public servant as defined in section 21 of the Pakistan Penal Code (Act XLV of 1860).
