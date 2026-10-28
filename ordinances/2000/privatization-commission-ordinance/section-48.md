@@ -1,0 +1,1 @@
+48. Removal of Difficulties.— If any difficulty arises in giving effect to any provision of this Ordinance, the Federal Government may make such order, not inconsistent with the provisions of this Ordinance, as may appear to it to be necessary for the purposes of removing the difficulty.

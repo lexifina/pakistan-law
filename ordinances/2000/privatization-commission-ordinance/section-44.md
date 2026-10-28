@@ -1,0 +1,1 @@
+44. Exemption from taxes.— Notwithstanding anything contained in any other Federal law for the time being in force, the Commission shall not be liable to pay, and shall be exempt from the payment of, any taxes, duties, levies, charges and fees payable under, or in pursuance to any Federal law, in respect of any of its business, assets, income, or wealth.

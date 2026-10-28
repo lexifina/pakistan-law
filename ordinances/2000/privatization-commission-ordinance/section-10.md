@@ -1,0 +1,3 @@
+10. Employees of the Commission.—(1) To carry out the purposes of this Ordinance, the Commission may, from time to time, employ persons to be employees of the Commission who shall be paid such remuneration and allowances and shall hold their employment on such terms and conditions as may be determined by the Commission.
+(2) The employees of the Commission shall hold office during the pleasure of the Commission and shall be liable to disciplinary action in accordance with the regulations made by the Commission.
+Provided that the civil servants appointed to the Commission shall be governed by theCivil Servants Act, 1973 (Act LXXI of 1973) and rules made thereunder unless absorbed in the Commission.

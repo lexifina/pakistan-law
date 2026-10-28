@@ -1,0 +1,1 @@
+40. Rules.— The Commission may, with the approval of the Federal Government, by notification in the official Gazette, make rules, not inconsistent with the provisions of this Ordinance, for exercising its powers and carrying out of its functions under this Ordinance.

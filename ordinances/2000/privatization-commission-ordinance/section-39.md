@@ -1,0 +1,2 @@
+39. Immunity of the Commission and its employees.—(1) The Chairman, Secretary, members, consultants, officers, or other employees of the Commission shall make such declaration of fidelity and secrecy as may be prescribed.
+(2) No suit, prosecution or other legal proceedings shall lie against the Commission, the Chairman, Secretary, members, consultants, officers or other employees of the Commission in respect of anything done or intended to be done in good faith under this Ordinance.

@@ -1,0 +1,2 @@
+17. Power to obtain finance and receive grants.— The Commission may, from time to time and with the approval of the Federal Government, obtain finance in respect of any sums required by the Commission for meeting any of its obligations or performing any of its functions.
+(2) The Commission may, with the approval of the Federal Government, also accept grants from entities both domestic and international, including multilateral agencies.

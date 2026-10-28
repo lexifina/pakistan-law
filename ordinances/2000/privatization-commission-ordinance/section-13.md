@@ -1,0 +1,4 @@
+13. Disclosure of interest.—(1) Where a person is present at a meeting of the Board or committee of the Board and that person or his family or his professional or business partner or associate has direct or indirect interest in the subject of consideration in that meeting, that person shall—
+(a) forthwith disclose such an interest; and
+(b) not take part in any consideration on that matter unless the Board or the committee thereof otherwise directs.
+(2) Where a member of the Commission, staff or other employee of the Commission, including an adviser, consultant or his family has a direct or indirect interest in any matter relating to Privatisation such person shall forthwith disclose that interest to the Commission and the Commission shall have the right to take such action as it considers appropriate.

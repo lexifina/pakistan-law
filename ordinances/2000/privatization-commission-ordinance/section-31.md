@@ -1,0 +1,5 @@
+31. Transfer of cases.—(1) All legal proceedings whatsoever and matters related to or under or in connection with or arising from privatisation, the privatisation process or privatisation programme pending on the commencement of [^13][the Privatization Commission (Amendment) Act, 2023 (VII of 2023) shall stand transferred to the Privatization Appellate Tribunal] having jurisdiction provided that nothing contained herein shall affect any proceedings pending before the Supreme Court of Pakistan.
+(2) In respect of matters transferred to [^13][the Privatization Appellate Tribunal under sub-section (1), the Privatization Appellate Tribunal] shall proceed from the stage at which the proceedings had reached immediately prior to the transfer and shall not be bound to recall and rehear any witness and may act on the evidence already recorded or produced before the [^14][the High Court] from which the proceedings were transferred.
+
+[^13]: Subs., and omitted by Act No. XXII of 2024, ss.3-5.
+[^14]: Subs., and omitted by Act No. XXII of 2024, ss.5-7

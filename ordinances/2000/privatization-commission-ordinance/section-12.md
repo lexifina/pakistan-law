@@ -1,0 +1,1 @@
+12. Public Servants.— The Chairman, Secretary, members, officers, employees and other persons authorized to perform or exercise any function or power under this Ordinance or rendering services to the Commission as agents, advisers or consultants shall be deemed to be public servants within the meaning of section 21 of the Pakistan Penal Code, 1860 (Act XLV of 1860).

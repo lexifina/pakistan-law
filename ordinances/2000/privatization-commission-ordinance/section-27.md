@@ -1,0 +1,2 @@
+27. Investigations.—(1) The Federal Government or any of its agencies authorized by it, may of its own or on a complaint oversee, scrutinize or investigate any privatisation transaction within one year of the completion of the privatisation.
+(2) After the expiry of the period referred to in sub-section (1), the Federal Government or any of its agencies shall not be empowered to carry out any such scrutiny or investigation.
