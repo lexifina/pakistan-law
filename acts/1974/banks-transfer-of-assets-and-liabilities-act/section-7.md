@@ -1,0 +1,1 @@
+7. Delivery of undertaking.—Where any part of the undertaking of a specified office or branch is in the possession or under the control of any person, such person shall, within seven days of the commencement of this Act, deliver the same to a representative of the National Bank of Pakistan duly authorised in that behalf.

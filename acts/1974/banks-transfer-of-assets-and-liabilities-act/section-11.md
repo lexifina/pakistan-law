@@ -1,0 +1,1 @@
+11. Extension of limitation.—For the purpose of computing the period of limitation for the recovery of any money due to or from any of the specified offices and branches the period between the 16th December, 1971, and the date of transfer of the undertakings of the specified offices and branches by virtue of section 4 shall be excluded.

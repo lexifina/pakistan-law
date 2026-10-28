@@ -1,0 +1,1 @@
+6. Excepted liabilities.—Notwithstanding anything contained in this Act, the Federal Government may by order direct that any borrowings, liabilities or obligations specified in such order shall not form part of the undertaking of a specified office or branch transferred by virtue of section 4.

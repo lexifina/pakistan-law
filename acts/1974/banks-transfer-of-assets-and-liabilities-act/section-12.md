@@ -1,0 +1,1 @@
+12. References in other laws.— Any reference to any of the specified offices and branches in any law, other than this Act, or in any contract or other instrument shall, in so far as it relates to any of the undertakings transferred by virtue of section 4 and if not inconsistent with any provision of this Act, be construed as a reference to the National Bank of Pakistan.

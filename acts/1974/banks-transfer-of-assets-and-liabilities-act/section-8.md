@@ -1,0 +1,2 @@
+8. Police assistance.___ (1) A magistrate may, by warrant, authorise a police officer not below the rank of Inspector to enter upon and search for any property of the undertaking of a specified office or branch in any premises where it may reasonably be expected to be found and to seize such property.
+(2) Any property seized under sub-section (1) shall be delivered to the National Bank of Pakistan.

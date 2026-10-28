@@ -1,0 +1,1 @@
+3. Act to over-ride other laws.—The Provisions of this Act and any rule or order made thereunder shall have effect notwithstanding anything contained in any other law for the time being in force, or in any contract, agreement, award, memorandum, article or other instrument whatsoever.
