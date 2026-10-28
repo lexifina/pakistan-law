@@ -1,0 +1,2 @@
+19. Cash memorandum to be given in certain cases.— Every dealer when selling tea for cash shall, if the sale for five rupees or more in all cases, and if the sale is for less than five rupees, when so requested by the purchaser, give the purchaser a cash memorandum containing particulars of the transaction:
+Provided that the provisions of this section shall apply only to those dealers who are liable to pay income-tax.

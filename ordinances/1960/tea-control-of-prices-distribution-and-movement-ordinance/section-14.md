@@ -1,0 +1,1 @@
+14. Disposal of imports.— No importer shall sell or otherwise dispose of any consignment of tea imported by him except in accordance with such written instructions as may be issued to him by the Controller General in this behalf.
