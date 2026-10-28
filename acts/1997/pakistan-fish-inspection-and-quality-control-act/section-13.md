@@ -1,0 +1,1 @@
+13. Power to search.—Any Fishery Officer may search any fish processing plant or fish consignment intended for export which he has reason to believe to be not fresh, decomposed, unwholesome or contaminated.

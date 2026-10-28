@@ -1,0 +1,1 @@
+8. Handling of fish and fishery products.—No Person who is suffering from leprosy, tuberculoses,polio or such other contagious diseases as the Government may, by notification in the official Gazette, specify, shall handle, carry or process fish or work in a fish processing and packing plant or establishment.

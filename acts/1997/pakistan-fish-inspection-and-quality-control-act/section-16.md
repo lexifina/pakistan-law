@@ -1,0 +1,1 @@
+16. Indemnity.—No suit, prosecution or legal proceedings shall lie against the Federal Government, Marine Fisheries Department, a Fishery Officer or any other person for anything in good faith done or intended to be done under this Act or the Rules.

@@ -1,0 +1,2 @@
+15. Revision.—(1) Any person aggrieved by an order passed by the Inspection Committee may apply for revision to the Federal Government within thirty days from the date of issue of such order and the decision of the Federal Government thereon shall be final.
+(2) The Federal Government may, on receipt of an application under sub-section (1) above, stay the operation of the order of the Committee till the disposal of the application.

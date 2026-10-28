@@ -1,0 +1,1 @@
+7. Fish Export.—No person shall process and export or market for export or have in his possessionfor export or deal in, any fish or fish products intended for human consumption which are decomposed, unwholesome or contaminated with pathogenic organisms.

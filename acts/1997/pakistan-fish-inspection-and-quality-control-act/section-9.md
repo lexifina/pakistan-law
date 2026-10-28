@@ -1,0 +1,1 @@
+9. Quality evaluation of fish and fishery products.—All fish and fishery products found to be of sub-standard quality shall be detained by the Fishery Officer and shall be disposed of in such manner as may be prescribed.
