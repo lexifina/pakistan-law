@@ -1,0 +1,1 @@
+25. Exemption from taxes.⸺Notwithstanding anything contained in the Wealth Tax Act, 1963 (XV of 1963), and the Income Tax Ordinance, 1979 (XXXI of 1979), or any other law for the time being in force relating to wealth tax, income tax or super tax, the Bank shall not be liable to pay any wealth tax, income tax or super tax on its income or wealth.

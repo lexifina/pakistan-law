@@ -1,0 +1,3 @@
+30. Removal of difficulties.⸺If any difficulty arises in giving effect to any of the provisions of this Ordinance, the State Bank may make such order not inconsistent with the provisions of this Ordinance, as may appear to it to be necessary for the purposes of removing the difficulty:
+Provided that no such power shall be exercised after the expiry of two years from the commencement of this Ordinance.
+_______________

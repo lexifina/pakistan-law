@@ -1,0 +1,1 @@
+4. Bank to be a subsidiary of the State Bank.⸺The Bank shall be a subsidiary of the State Bank, and the State Bank shall exercise control over the Bank in accordance with the provisions of this Ordinance.

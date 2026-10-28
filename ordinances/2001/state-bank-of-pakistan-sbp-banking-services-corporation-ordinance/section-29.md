@@ -1,0 +1,2 @@
+29. Ordinance to override, etc.⸺(1) Except the application of any provision of the Act to the Bank as a subsidiary of the State Bank, this Ordinance shall have effect notwithstanding anything contained in any law for the time being in force or in any agreement, contract, or other applicable document or instrument.
+(2) The Banking Companies Ordinance, 1962 (LVII of 1962), shall not apply to the Bank.

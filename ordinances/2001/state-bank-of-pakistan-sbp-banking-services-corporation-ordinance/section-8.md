@@ -1,0 +1,2 @@
+8. Chairman.⸺(1) The Governor shall be the Chairman of the Bank.
+(2) The Chairman shall, whenever present, preside over meetings of the Board, but if at any meeting the Governor is not present, a Deputy Governor of the State Bank, designated for this purpose by the Governor, shall attend the meeting on behalf of the Governor and preside over such meeting provided that if the Deputy Governor being present, is not willing to act, or is also absent, the Directors present shall choose one of their member to be the Chairman of such meeting.
