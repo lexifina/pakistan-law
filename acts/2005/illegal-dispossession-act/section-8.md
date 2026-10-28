@@ -1,0 +1,4 @@
+8. Delivery of possession of property to owner, etc.___(1) On conclusion of trial, if the Court finds that an owner or occupier of the property was illegally dispossessed or property was grabbed in contravention of section 3, the Court may, at the time of passing order under [^3][sub-sections (2) and (3)] of that section, direct the accused or any person claiming through him for restoration of the possession of the property to the owner or, as the case may be, the occupier, if not already restored to him under section 7.
+(2) For the purpose of sub-section (1), the Court may, where it is required, direct the officer-in-charge of the police station for such assistance as may be required for restoration of the possession of the property to the owner or, as the case may be, the occupier.
+
+[^3]: Subs. by the Illegal Dispossession (Amendment) Act, 2017 (XXVIII of 2017), s. 4.
