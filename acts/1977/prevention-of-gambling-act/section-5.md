@@ -1,0 +1,1 @@
+5. Penalty for gaming in a public place. Whoever is found gaming in any public place, street or thoroughfare, shall be punishable with imprisonment for a term which may extend to one year, or with fine which may extend to five hundred rupees, or with both.

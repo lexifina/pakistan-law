@@ -1,0 +1,1 @@
+7. Enhanced punishment for subsequent offences. Whoever, having been convicted of any offence under this Act, again commits any such offence shall be punishable for every such subsequent offence with imprisonment for a term which may extend to three years, or with fine which may extend to two thousand rupees, or with both.
