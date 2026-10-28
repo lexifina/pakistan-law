@@ -1,0 +1,1 @@
+19. Re-instated employees not to claim other service benefits.__ Any sacked employee in corporation or autonomous or semi-autonomous organization or Government service who is re- Instated under this Act shall not he entitled to claim seniority or arrears of pay or other service benefits save as provided in this Act.

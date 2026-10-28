@@ -1,0 +1,2 @@
+20. Act to override other laws.__ (1) The provisions of this Act shall have effect, notwithstanding anything to the contrary, contained in any other law, for the time being in force, or in any judgment of any tribunal or court including the Supreme Court and a High Court.
+(2) Provisions of this Act shall supersede any law, rules or procedure applicable or in force in any corporation or autonomous or semi-autonomous organization or Government service, to the extent and whenever and wherever any inconsistency arises.
