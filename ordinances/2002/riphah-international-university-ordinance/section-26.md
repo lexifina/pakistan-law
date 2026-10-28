@@ -1,0 +1,1 @@
+26. First Statute.____ Notwithstanding anything contained in this Ordinance, the Statutes set out in the Schedule to this Ordinance shall be deemed to be the First Statutes made under section 23 and shall remain in force until they are amended or replaced by new Statutes made in accordance with this Ordinance.
