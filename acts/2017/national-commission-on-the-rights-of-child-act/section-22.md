@@ -1,0 +1,1 @@
+22. Power to make rules.—Within six months of the commencement of this Act, the Federal Government may, in consultation with the Commission and by notification in the official Gazette, make rules to carry out purposes of this Act.

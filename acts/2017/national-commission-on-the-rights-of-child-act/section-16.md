@@ -1,0 +1,1 @@
+16. Delegation of functions. —The Commission or the Chairperson may, by notification in the official Gazette, delegate its functions subject to such conditions as it or he may specify in this behalf to anybody or individual that is part of the Commission.
