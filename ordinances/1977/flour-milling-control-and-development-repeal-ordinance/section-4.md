@@ -1,0 +1,2 @@
+4. Continuance in service of the employees. Every wholetime employee of an establishment on the date of making of an order under section 5 of the repealed Act, in respect of the establishment, and every whole-time employees who has worked continuously in an establishment since before the first day of July, 1977, shall continue in his office on the same terms and conditions as are applicable to his appointment:
+Provided that this section shall not apply to employees who had resigned or been removed by the Corporation from its service.
