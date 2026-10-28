@@ -1,0 +1,4 @@
+82. Power to issue Directions to Authority and obtain reports and returns.__ (1) Without prejudice to the foregoing provisions of this Act, the Authority shall, in exercise of its powers and in performance of its functions under this Act, be bound by such directions on questions of policy, as the Federal Government may give in writing to it from time to time:
+Provided that the Authority shall, as far as practicable, be given an opportunity to express its views before any direction is given under this sub-section.
+(2) If any dispute arises between the Ministry and the Authority as to whether a question is or is not a question of policy, the decision of the Federal Government thereon shall be final.
+(3) The Authority shall furnish to the Ministry such returns or other information with respect to its activities as the Ministry may, from time to time, require.

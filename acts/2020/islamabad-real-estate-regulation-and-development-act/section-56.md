@@ -1,0 +1,1 @@
+56. Filling of vacancies.__ A vacancy caused to the office of the Chairperson or any other Member, as the case may be, shall be filled-up by the relevant authorities and the process within a period of one month from the date on which such vacancy occurs.

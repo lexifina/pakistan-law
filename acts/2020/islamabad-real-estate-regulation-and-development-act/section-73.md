@@ -1,0 +1,3 @@
+73. Appeal to High Court.__ (1) Any person aggrieved by any decision or order of the Appellate Tribunal, may, file an appeal to the Islamabad High Court, within a period of sixty days from the date of communication of the decision or order of the Appellate Tribunal, to him, on any one or more of the grounds specified in section 100 of the Code of Civil Procedure, 1908 (Act No. V of
+1908):
+Provided that the Islamabad High Court may entertain the appeal after the expiry of the said period of sixty days, if it is satisfied that the appellant was prevented by sufficient cause from preferring the appeal in time.

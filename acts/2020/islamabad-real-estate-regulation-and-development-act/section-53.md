@@ -1,0 +1,3 @@
+53. Term of Office of Chairperson and Members.__ (1) The Chairperson of the Appellate Tribunal or a Member of the Appellate Tribunal shall hold office, as such for a term not exceeding five years from the date on which he enters upon his office, but shall not be eligible for re-appointment:
+Provided that the Chairperson or member of the Tribunal, he shall not hold office after he has attained the age of sixty-five years.
+(2) Before notifying any person as Chairperson or Member, the Ministry of Interior, Government of Pakistan shall satisfy itself that the person does not have any such financial or other interest, as is likely to affect prejudicially his functions as such member.

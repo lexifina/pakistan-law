@@ -1,0 +1,3 @@
+## CHAPTER VIII
+## FINANCE, ACCOUNTS, AUDITS AND REPORTS
+74. Grants and Loans by Federal Government.__ The Federal Government may, after due appropriation made by the Parliament in this behalf, make to the Authority any grants and loans of such sums of money as seed money that Government may consider necessary and release it to the senior Administration Officer of the Authority to spend it on establishment of the office of the Authority with the assistance of the Ministry of Interior, Government of Pakistan. The Authority, in time, shall generate its own sources of funding for its function as well.

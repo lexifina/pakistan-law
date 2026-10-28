@@ -1,0 +1,2 @@
+23. Terms of office of Chairperson and Members of the Authority.__ (1) The Chairperson and Members shall hold office for a term not exceeding five years from the date on which they enter upon their office, or until they attain the age of sixty five years, whichever is earlier and shall not be eligible for re-appointment.
+(2) Before appointing any person as a Chairperson or Member, the Ministry shall satisfy itself that the person does not have any such financial or other interest as is likely to affect prejudicially his functions as such Member.

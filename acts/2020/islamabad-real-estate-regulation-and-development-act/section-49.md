@@ -1,0 +1,2 @@
+49. Compounding of Offences.__ Notwithstanding anything contained in the Code of Criminal Procedure, if any person is punished with imprisonment under this Act, the punishment may, either before or after the institution of the prosecution, be compounded by the court on such terms and conditions and on payment of such sums as may be prescribed:
+Provided that the sum prescribed shall not, in any case, exceed the maximum amount of the fine which may be imposed for the offence so compounded.

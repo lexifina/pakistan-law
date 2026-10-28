@@ -1,0 +1,2 @@
+70. Penalty for failure to comply with orders of Appellate Tribunal by Real Estate
+Agent.__ If any real estate agent, who fails to comply with, or contravenes any of the orders or directions of the Authority, he shall be liable to a penalty for every day during which such default continues, which may cumulatively extend up to five per cent of the estimated cost of plot, apartment or building, as the case may be, of the real estate project, for which the sale or purchase has been facilitated and as determined by the Authority.

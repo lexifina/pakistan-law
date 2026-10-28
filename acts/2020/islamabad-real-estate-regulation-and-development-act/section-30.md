@@ -1,0 +1,5 @@
+30. Meetings of Authority.__ (1) The Authority shall meet at such places and times, and shall follow such rules of procedure in regard to the transaction of its business, as may be specified by the regulations made by the Authority.
+(2) If the Chairperson for any reason, is unable to attend a meeting of the Authority, any other Member chosen by the Members present amongst themselves at the meeting, shall preside at the meeting.
+(3) All questions which come up before any meeting of the Authority shall be decided by a majority of votes by the Members present and voting, and in the event of an equality of votes, the Chairperson or in his absence, the person presiding shall have a second or casting vote.
+(4) The questions which come up before the Authority shall be dealt with as expeditiously as possible and the Authority shall dispose of the same within a period of sixty days from the date of receipt of the application:
+Provided that where any such application could not be disposed of within the said period of sixty days, the Authority shall record its reasons in writing for not disposing of the application within that period.

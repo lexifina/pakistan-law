@@ -1,0 +1,1 @@
+86. Act to have overriding effect.__ The provisions of this Act shall have an overriding effect, notwithstanding anything inconsistent therewith contained in any other law for the time being in force.

@@ -1,0 +1,1 @@
+85. Members etc. to be public servants.__ The Chairperson, Members and other officers and employees of the Authority, and the Appellate Tribunal and the inquiry officer shall be deemed to be public servants within the meaning of section 21 of the Pakistan Penal Code.
