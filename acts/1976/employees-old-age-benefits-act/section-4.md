@@ -1,0 +1,2 @@
+4. Administration. (1) As soon as may be, after the commencement of this Act, the Federal Government shall establish or nominate by notification an Institution to be called the Employees’ Old-Age Benefits Institution.
+(2) The Institution shall be a body corporate having perpetual succession and a common seal, with powers, subject to the provisions of this Act, to acquire, hold and dispose of property, both movable and immovable, and shall by the aforesaid name sue or be sued.

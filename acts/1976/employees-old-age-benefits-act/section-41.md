@@ -1,0 +1,1 @@
+41. Exemption from taxes. Notwithstanding anything contained in any other law, the Federal Government may, by order in writing, exempt the Institution from any tax, duty, or rate leviable by the Federal Government or by a local authority under the control of the Federal Government.

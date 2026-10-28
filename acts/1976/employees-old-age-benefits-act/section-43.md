@@ -1,0 +1,1 @@
+43. Delegation of powers. The Board may direct that all or any of its powers and functions may, in relation to such matters and subject to such conditions, if any, as may be specified, be also exercisable by any, officer or authority subordinate to the Institution.

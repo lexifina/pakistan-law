@@ -1,0 +1,3 @@
+30. Repayment of allowance improperly received.—(1) When a person has received any allowance under this Act to which he is not lawfully entitled, he shall be liable to repay to the Institution the amount of the allowance in such manner as may be provided by regulations :
+Provided that the Institution may waive repayment of a n a l l o w a n c e where payment thereof was not due to misrepresentation on the part of the insured person receiving it and the repayment would cause undue hardship to him.
+(2) Sums due to the Institution by virtue of the foregoing sub-section may be recovered by deduction from a n a l l o w a n c e payable under this Act.

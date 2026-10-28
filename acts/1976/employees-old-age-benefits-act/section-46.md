@@ -1,0 +1,1 @@
+46. Power to exempt. The Federal Government may, subject to such conditions as it thinks fit to impose, by notification in the official Gazette, exempt any establishment or industry from all or any of the provisions of this Act.

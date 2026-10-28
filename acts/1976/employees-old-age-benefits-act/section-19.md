@@ -1,0 +1,5 @@
+19. Budget, accounts and audit.—(1) The Institution shall draw up annually a budget showing the anticipated receipts and expenditure during the following year and shall submit it to the Board for the approval of the Federal Government.
+(2) The Institution shall maintain accounts of its income and expenditure in such form and manner as may be prescribed.
+(3) The books of account of the Institution shall be balanced on the thirtieth of June each year and its accounts shall be audited by auditors approved by the Federal Government at such time and in such manner as may be prescribed.
+(4) The auditors shall at all reasonable times have access to the books of accounts and other documents of the Institution and may, for the purposes of the audit call for such explanation and information as they may require and may examine any principal or other officer of the Institution.
+(5) The auditors shall forward to the Federal Government their report together with an audited copy of the accounts of the Institution.

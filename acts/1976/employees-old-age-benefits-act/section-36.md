@@ -1,0 +1,1 @@
+36. Assessment of invalidity. The Institution shall appoint medical boards which shall, in such manner as may be provided by regulations, assess the degree of invalidity sustained by an insured person.
