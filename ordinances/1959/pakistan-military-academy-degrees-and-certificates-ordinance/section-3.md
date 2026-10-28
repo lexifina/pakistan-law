@@ -1,0 +1,4 @@
+3. Conferment of degrees, etc., on cadets and officers.___[^1][(1)] The Academy shall have the power to confer a degree on, or grant a certificate to, any gentleman cadet of the Academy on his successful completion of the appropriate course at the Academy, and such power shall include the power to confer a degree on, or grant a certificate to, any officer who at any time before the commencement of this Ordinance was commissioned from the Academy.
+[^1][(2) The provisions of sub-section (1) shall apply to those gentlemen cadets of the Academy who, before the commencement of the Pakistan Military Academy (Degrees and Certificates) (Amendment) Ordinance, 1962, had successfully completed their training at the Royal Military Academy, Sandhurst, or who, after such commencement, successfully complete their training at that Academy.]
+
+[^1]: Re-numbered and added by ordinance No. XIX of 1962, s.2.
