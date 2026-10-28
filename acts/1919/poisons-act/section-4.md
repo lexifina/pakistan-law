@@ -1,0 +1,5 @@
+4. Power to regulate possession of any poison in certain areas.___(1) The [^11][Provincial Government] [^12]* * * may by rule regulate the possession of any specified poison in any local area in which the use of such poison for the purpose of committing murder or mischief by poisoning cattle appears to it to be of such frequent occurrence as to render restrictions on the possession thereof desirable.
+(2) In making any rule under sub-section (1), the [^11][Provincial Government] may direct that any breach thereof shall be punishable with imprisonment for a term which may extend to one year, or with fine which may extend to one thousand rupees, or with both, together with confiscation of the poison in respect of which the breach has been committed, and of the vessels, packages or coverings in which the same is found.
+
+[^11]: Subs. by A. O., 1937 for "L. G.".)
+[^12]: The words “subject to the control of the G.G. in C." were rep. by A. O., 1937. The word s"subject to the control" had been substituted for the words “with the previous sanction" by the Devolution Act, 1920 (38 of 1920), s. 2 and Sch. I.
