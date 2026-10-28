@@ -1,0 +1,1 @@
+29. Indemnity. No suit, prosecution or other legal proceeding shall lie against the Federal Government, or a Provincial Government, or a Commission or any other person for anything in good faith done under this Act or any rule or order made there under.

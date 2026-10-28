@@ -1,0 +1,2 @@
+21. Power to make rules. A Commission may make rules for carrying out the purposes of this Act, including rules on matters relating to or connected with the presentation, hearing and determination of appeals from, and applications for revision and review of, orders made under this Act:
+Provided that the rules made under this section, in case of Federal Land Commission shall be subject to approval of the Federal Government, and in case of a Provincial Land Commission, to the approval of the Provincial Government concerned.

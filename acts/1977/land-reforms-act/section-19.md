@@ -1,0 +1,1 @@
+19. Powers and functions of a Provincial Land Commission. Subject to the provisions of this Act, a Provincial Land Commission shall exercise all powers and perform all functions necessary for the implementation of this Act in the Province concerned.

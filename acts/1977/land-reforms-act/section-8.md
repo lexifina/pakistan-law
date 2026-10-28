@@ -1,0 +1,2 @@
+8. Certain restrictions on cutting of trees and dismantling or removal of permanent
+installations or structures. A person, who owns or possesses land in excess to his entitlement under this Act, or any one on his behalf shall not, with effect from the commencement of this Act, cut or remove any tree or dismantle, demolish, damage or remove any permanent installation or structure, including buildings and tubewells on land, owned or possessed by him until the land in excess to his entitlement has been surrendered by him under this Act.

@@ -1,0 +1,1 @@
+26. Removal of doubt. If any dispute or doubt arises as to the extent or scope of any power or the manner in which it shall be exercisable by a Commission, the matter shall be referred to the Federal Government whose decision thereon shall be final.

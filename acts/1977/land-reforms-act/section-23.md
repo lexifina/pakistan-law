@@ -1,0 +1,1 @@
+23. Reconstitution of a Commission. The Federal Government may, at any time, by notification in the official Gazette, reconstitute a Commission to comprise such persons as it deems fit, and the Commission so reconstituted shall be deemed to be a Commission under paragraph 4 or 4A, as the case may be, of the Land Reforms Regulation, 1972.
