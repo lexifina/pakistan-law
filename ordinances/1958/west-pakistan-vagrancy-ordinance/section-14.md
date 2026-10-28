@@ -1,0 +1,1 @@
+14. Place of detention or imprisonment. A vagrant arrested under this Ordinance shall remain in custody, or, if convicted serve his term of imprisonment in the prescribed manner, as the case may be, in the nearest welfare home or such other place as Government may, by general or special order, direct.

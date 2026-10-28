@@ -1,0 +1,1 @@
+21. Appeal. Any person aggrieved by an order of a Magistrate under this Ordinance may within thirty days of such order appeal to the District Magistrate and if such order is made by the District Magistrate, to the Sessions Court.

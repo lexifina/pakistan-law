@@ -1,0 +1,2 @@
+[^1]: Subs. by the West Pakistan Laws (Extension to Karachi) Ordinance, 1964 (Ordinance No. VII of 1964), published in the Gazette of West Pakistan (Extraordinary), dated May 25, 1964, pp. 1679-1688, s. 2 read with Schedule, Serial No. 15.
+[^2]: Subs. by the West Pakistan Laws (Extension to Karachi) Ordinance, 1964 (Ordinance No. VII of 1964), published in the Gazette of West Pakistan (Extraordinary), dated May 25, 1964, pp. 1679-1688, s. 2 read with Schedule, Serial No. 15.

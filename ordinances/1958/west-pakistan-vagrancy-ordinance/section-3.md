@@ -1,0 +1,2 @@
+3. Welfare homes. (1) Government shall establish and maintain one or more welfare homes at such place or places as it thinks fit for the custody and detention of vagrants.
+(2) Government may, by notification, declare any existing charitable or other institution with previous consent of the controlling authority of such institution and on such conditions as may be mutually agreed upon between Government and the said authority, to be a welfare home for the purposes of this Ordinance.

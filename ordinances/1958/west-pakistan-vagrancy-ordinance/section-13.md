@@ -1,0 +1,3 @@
+13. Compulsory contribution by persons bound to maintain vagrants. (1) If the Magistrate is satisfied that a vagrant or a person bound to maintain a vagrant has sufficient means, he shall make an order directing such vagrant or the person bound to maintain such vagrant, as the case may be, to contribute in the prescribed manner towards the maintenance of such vagrant in a welfare home:
+Provided that no order under this sub-section shall be made without giving the person from whom contribution is required the opportunity of being heard.
+(2) If any contribution directed by the Magistrate under the last preceding sub-section remains unpaid, the same may be recovered as arrears of land revenue.
