@@ -1,0 +1,1 @@
+31. Prosecution for Offence under any other Law.__ Nothing contained in this Act shall be deemed to prevent any person from being prosecuted under any other law for any act or omission which constitutes an offence under this Act or from being liable under any other law to any higher punishment or penalty than that provided by this Act.

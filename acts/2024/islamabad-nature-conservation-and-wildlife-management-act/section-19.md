@@ -1,0 +1,3 @@
+19. Restriction on Transfer of Trophy or Meat.__ (1) No person who is not in possession of a certificate of lawful possession in respect of a trophy or meat shall transfer such trophy or meat to any other person by way of gift, sale or otherwise.
+(2) No person shall receive by gift, purchase or otherwise any trophy or meat unless he is at the same time given the certificate of lawful possession clearly mentioning theron the nature of the transfer and the name of the person to whom the trophy or meat is transferred.
+(3) The person to whom a trophy or meat is transferred shall submit the certificate of lawful possession given to him by the transferor to the Board who shall endorse it in favour of the transferee and make necessary amendments in the prescribed register.

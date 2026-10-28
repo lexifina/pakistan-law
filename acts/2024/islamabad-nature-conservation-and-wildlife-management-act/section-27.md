@@ -1,0 +1,3 @@
+27. Power of Seizure.__ (1) The Board may seize any wild animal which is in the possession of a person who is not authorized to possess it under this Act or any rules or regulations made hereunder, together with any firearm, net, trap, snare, bow, arrow, vehicle, boat or anything whatsoever used or suspected to have been used in contravention of any provision of this Act or the rules and regulations made hereunder.
+(2) The property seized under sub-section (1) shall be dealt with in accordance with the orders of the Court:
+Provided that, if the property is subject to natural decay, it may at any time be sold with the permission of the Court and the proceeds shall be dealt with in accordance with the orders of the Court.

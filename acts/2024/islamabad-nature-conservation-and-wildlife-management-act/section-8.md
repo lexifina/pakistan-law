@@ -1,0 +1,7 @@
+8. Disclosure of Conflict of Interest by non ex-officio Board Member.__ (1) For the purpose of this section, a person shall be deemed to have conflict of interest in a matter if he has any interest, pecuniary or otherwise, in such matter which could reasonably be regarded as giving rise to a conflict between his duty to honestly perform his functions under this Act and such interest, so that his ability to consider and decide any question impartially or to give any advice without bias, may reasonably be regarded as impaired.
+(2) A Board Member having conflict of interest in any matter to be discussed or decided by the Board or a committee shall upon becoming. aware of the conflict of interest disclose his interest and the nature thereof in writing to the Board or committee, as the case may be.
+(3) Upon disclosure of conflict of interest, the Board Member shall:
+(a) not take part nor be present in any deliberation or decision of the Board or a committee on any matter in which he has a conflict of interest; and
+(b) be dis-regarded for the purpose of constitution of a quorum of the Board or a committee in any meeting on any matter in which he has a conflict of interest.
+(4) Non-disclosure of conflict of interest as required under this section may be a ground for removal from the Board if it is established that such non-disclosure was willful and deliberate.
+(5) A person who has any conflict of interest in any matter shall not take part, or continue to take part, in any matter with respect to which the conflict of interest has arisen.
