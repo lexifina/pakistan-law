@@ -1,0 +1,2 @@
+9. Bar of jurisdiction.___ (1) No court shall call in question, or permit to be called in question any provision of this Act, or of any rule or order made or anything done or any action taken or purporting to be made, done or taken thereunder.
+(2) No court shall grant any injunction, make any order or entertain any proceedings in relation to anything done or intended or purporting to be done under this Act.

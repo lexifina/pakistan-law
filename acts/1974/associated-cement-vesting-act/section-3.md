@@ -1,0 +1,6 @@
+3. Vesting of Associated Cement in Corporation.— As from the commencing day,—
+(a) the Associated Cement shall vest in the Corporation and all powers which immediately before that day were exerciseable by the Federal Government in relation to the Associated Cement shall be exerciseable by the Corporation ;
+(b) all rights, properties, assets, liabilities, debts and obligations of the Federal Government relating to the Associated Cement shall be the rights, properties, assets, liabilities, debts and obligations of the Corporation;
+(c) any contract made, or deemed to have been made, on behalf of the President for the purposes of the Associated Cement shall be deemed to have been made on behalf of the Corporation;
+(d) all suits and other legal proceedings in relation to the Associated Cement instituted, or deemed to have been instituted, by or against the Federal Government shall be deemed to be suits and proceedings instituted by or against the Corporation and may be proceeded with accordingly ; and
+(e) all orders and instructions issued by the President or the Federal Government before the commencing day in relation to the Associated Cement shall, to the extent they are not inconsistent with the provisions of this Act, be deemed to be orders and instructions issued by the Corporation.
