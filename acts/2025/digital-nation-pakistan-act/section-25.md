@@ -1,0 +1,1 @@
+25. Power to make rules.―The Authority may, with the approval of the Federal Government, by notification in the official Gazette, make rules, not inconsistent with the provisions of this Act, for exercising its powers and carrying out its functions under this Act.

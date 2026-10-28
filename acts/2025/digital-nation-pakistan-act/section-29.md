@@ -1,0 +1,1 @@
+29. Bar of jurisdiction.—Notwithstanding anything contained in any other law for the time being in force and except as provided under this Act, no decision or action taken under this Act or rules or regulations made thereunder shall be questioned by any agency or challenged in any court or tribunal, nor shall any injunction be granted against such decisions or actions.

@@ -1,0 +1,1 @@
+18. Assignment of expertise.―During the period the Authority is developing the Masterplan or, upon its approval, overseeing the implementation of any project contained in the implementation plan, the Authority may request any Division, public authority, public entity, or autonomous or regulatory body to assign an official with requisite expertise to the Authority.
