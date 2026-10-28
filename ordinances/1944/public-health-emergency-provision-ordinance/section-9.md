@@ -1,0 +1,10 @@
+9. Power to supersede local authorities.—(1) If the appropriate Government is of opinion that any local authority has failed to comply, or has delayed in complying, with any order or rule made or direction given under this Ordinance or has failed to act in accordance with or give effect to any notification issued under section 10, the appropriate Government may by order in writing supersede the local authority for such period as may be specified in the order.
+(2) When an order of supersession has been made under sub-section (1),—
+(a) all the members of the local authority shall, as from the date of supersession, vacate their offices as such members;
+(b) all the powers and duties which may by or under any law for the time being in force be exercised or performed by or on behalf of the local authority shall, during the period of supersession, be exercised and performed by such person as the appropriate Government may authorise in this behalf;
+(c) all property vested in the local authority shall, during the period of supersession, vest in the appropriate Government.
+(3) On the expiration of the period of supersession specified in the order under sub-section (1), the appropriate Government may by order in writing,—
+(a) extend the period for such further term as it may consider necessary; or
+(b) direct that the local authority shall be reconstituted in the manner provided for its constitution by or under the law relating thereto, and in such case any persons who vacated their offices under clause (a) of sub-section (2) shall not be deemed to be disqualified thereby for election, appointment or nomination; or
+(c) direct that the local authority shall be reconstituted by the persons who vacated their offices under clause (a) of sub-section (2) and shall recommence func-tioning as if it had not been superseded:
+Provided that the appropriate Government may at any time before the expiration of the period of supersession whether as originally specified under sub-section (1) or as extended under this sub-section, make an order under clause (b) or clause (c) of this sub-section.
