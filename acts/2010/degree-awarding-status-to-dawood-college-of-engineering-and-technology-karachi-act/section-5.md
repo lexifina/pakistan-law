@@ -1,0 +1,1 @@
+5. College open to all classes, creeds, etc.__ (1) The College shall be open to all persons of either gender and of whatever religion, caste, race, creed, class, colour or domicile and no person shall be denied the privileges of the College on the ground of gender, religion, race, caste, creed, class, colour or domicile.

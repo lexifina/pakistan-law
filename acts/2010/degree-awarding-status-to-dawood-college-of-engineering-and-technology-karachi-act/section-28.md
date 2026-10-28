@@ -1,0 +1,2 @@
+28. Rules.__ (1) The Authorities and other bodies of the College may make rules, to be published in the official Gazette, not inconsistent with this Act, statutes or the regulations, to regulate any matter relating to the affairs of the College including rules to regulate the conduct of business and the time and place of meetings and related matters.
+(2) Rules shall become effective upon approval by the Syndicate.
