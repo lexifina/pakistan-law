@@ -1,0 +1,1 @@
+5. Punishment for solemnising a child marriage. Whoever performs, conducts or directs any child marriage shall be punishable with simple imprisonment which may extend to one month, or with fine which may extend to one thousand rupees, or with both, unless he proves that he had reason to believe that the marriage was not a child marriage.
