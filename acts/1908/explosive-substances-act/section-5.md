@@ -1,0 +1,3 @@
+5. Punishment for making or possessing explosives under suspicious circumstances. Any person who makes or knowingly has in his possession or under his control any explosive substance, under such circumstances as to give rise to a reasonable suspicion that he is not making it or does not have it in his possession or under his control for a lawful object, shall, unless he can show that he made it or had it in his possession or under his control for a lawful object, be punishable with [^6][imprisonment for a term which may extend to fourteen years].
+
+[^6]: Subs. ibid., s. 4, for “transportation for a term which may extend to fourteen years, to which fine may be added, or with imprisonment for a term which may extend to five years, to which fine may be added”.
