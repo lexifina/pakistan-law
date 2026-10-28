@@ -1,0 +1,3 @@
+[^3][3. Power to issue one-rupee notes. Notwithstanding anything contained in any law for the time being in force, the Federal Government may issue Pakistan one-rupee notes and any such note shall be current in Pakistan in the same manner and to the same extent and as fully as the rupee coin called the Government rupee issued under the provisions of the Pakistan Coinage Act (XIII of 1906), and shall be legal tender in Pakistan for the payment of any amount until such time as they are called in by the Federal Government].
+
+[^3]: Omitted and subs. by the Federal Laws (Revision and Declaration) Ordinance, 1981 (Ordinance No. XXVII of 1981), s. 3 and 2nd Sch.
