@@ -1,0 +1,1 @@
+8. Bar on trial de novo. A Special Judge, unless he otherwise decides, shall not be bound to recall or rehear any witness, whose evidence has already been recorded, or to re-open proceedings already held, but may act on the evidence already produced or recorded and continue the trial from the stage which the case has reached.
