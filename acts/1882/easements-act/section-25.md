@@ -1,0 +1,1 @@
+25. Liability for expenses necessary for preservation of easement. —The expenses incurred in constructing works, or making repairs, or doing any other act necessary for the use of preservation of an easement, must be defrayed by the dominant owner.

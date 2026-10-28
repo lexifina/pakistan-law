@@ -1,0 +1,4 @@
+9. Servient owners. —Subject to the provisions of section 8, a servient owner may impose on the servient heritage any easement that does not lessen the utility of the existing easement. But he cannot, without the consent of the dominant owner, impose an easement on the servient heritage which would lessen such utility.
+Illustrations
+(a) A has, in respect of his mill, a right to the uniterrupted flow thereto from sunrise to noon of the water of B’s stream. B may grant to C the right to divert the water of the stream from noon to sunset: Provided that A’s supply is not thereby diminished.
+(b) A has, in respect of his house, a right of way over B’s land. B may grant to C, as the owner of a neighbouring farm, the right to feed his cattle on the grass growing on the way: Provided that A’s right of way is not thereby obstructed.

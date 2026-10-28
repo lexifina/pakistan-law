@@ -1,0 +1,1 @@
+11. Lessee. —No lessee or other person having a derivative interest may impose on the property held by him as such an easement to take effect after the expiration of his own interest, or in derogation of the right of the lessor or the superior proprietor.

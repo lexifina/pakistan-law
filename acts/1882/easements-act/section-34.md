@@ -1,0 +1,1 @@
+34. When cause of action arises for removal of support. —The removal of the means of support to which a dominant owner is entitled does not give rise to a right to recover compensation unless and until substantial damage is actually sustained.

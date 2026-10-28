@@ -1,0 +1,4 @@
+18. Customary easements. —An easement may be acquired in virtue of a local custom. Such easements are called customary easements.
+Illustrations
+(a) By the custom of a certain village every cultivator of village land is entitled, as such, to graze his cattle on the common pasture. A, having become the tenant of a plot of uncultivated land in the village, breaks up and cultivates that plot. He thereby acquires an easement to graze his cattle in accordance with the custom.
+(b) By the custom of a certain town no owner or occupier of a house can open a new window therein so as substantially to invade his neighbour’s privacy. A builds a house in the town near B’s house. A thereupon acquires an easement that B shall not open new win downs in his house so as to command a view of the portions of A’s house which are ordinarily excluded from observation, and B acquires a like easement with respect to A’s house.

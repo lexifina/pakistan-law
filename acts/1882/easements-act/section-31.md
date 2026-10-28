@@ -1,0 +1,3 @@
+31. Obstruction in case of excessive user. —In the case of excessive user of an easement the servient owner may, without prejudice to any other remedies to which he may be entitled, obstruct the user, but only on the servient heritage: Provided that such us er cannot be obstructed when the obstruction would interfere with the lawful enjoyment of the easement.
+Illustration
+A, having a right to the free passage over B’s land of light to four windows, six feet by four, increases their size and number. It is impossible to obstruct the passage of light to the new windows without also obstructing the passage of light to the ancient windows. B cannot obstruct the excessive user.

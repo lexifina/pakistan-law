@@ -1,0 +1,7 @@
+27. Servient owner not bound to do anything. —The servient owner is not bound to do anything for the benefit of the dominant heritage, and he is entitled, as against the dominant owner, to use the servient heritage in any way consistent with the enjoyment of the easement: but he must not do any act tending to restrict the easement or to render its exercise less convenient.
+Illustrations
+(a) A, as owner of a house, has a right to lead water and send sewage through B’s land. B is not bound, as servient owner, to clear the watercourse or scour the sewer.
+(b) A grants a right of way through his land to B as owner of a field. A may feed his cattle on grass growing the way, provided that B’s right of way is not thereby obstructed; but he must not build a wall at the end of his land so as to prevent B from going beyond it, nor must he narrow the way so as to render the exercise of the right less easy than it was at the date of the grant.
+(c) A, in respect of his house, is entitled to an easement of support from B’s wall. B is not bound, as servient owner, to keep the wall standing and in repair. But he must not pull down or weaken the wall so as to make it incapable of rendering the necessary support.
+(d) A, in respect of his mill, is entitled to a watercourse through B’s land. B must not derive stakes so as to obstruct the watercourse.
+(e) A, in respect of his house, is entitled to a certain quantity of light passing over B’s land. B must not plant trees so as to obstruct the passage to A’s windows of that quantity of light.

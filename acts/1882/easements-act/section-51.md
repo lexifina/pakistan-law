@@ -1,0 +1,6 @@
+51. Revival of easement. —An easement extinguished under section 45 revives (a) when the destroyed heritage is, before twenty years have expired, restored by the deposit of alluvion; (b) when the destroyed heritage is a servient building and before twenty years have ex pired such building is rebuilt upon the same site; and (c) when the destroyed heritage is a dominant building and before twenty years have expired such building is rebuilt upon the same site and in such a manner as not to impose a greater burden on the servient heritage.
+An easement extinguished under section 46 revives when the grant or bequest by which the unity of ownership was produced is set aside by the decree of a competent Court. A necessary easement extinguished under the same section revives when the unity of ownership ceases from any other cause.
+A suspended easement revives if the cause of suspension is removed before the right is extinguished under section 47.
+Illustration
+A, as the absolute owner of field Y, has a right of way thither over B’s field Z. A obtains from B
+a lease of Z for twenty years. The easement is suspended so long as A remains lessee of Z. But when A assigns the lease to C, or surrenders it to B, the right of way revives.
