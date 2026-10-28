@@ -1,0 +1,1 @@
+8. Notice of action.— No action lies unless the plaintiff has, within two months after the publication of the defamatory matter has come to his notice or knowledge, given to the defendant, fourteen days notice in writing of his intention to bring an action, specifying the defamatory matter complained of.
