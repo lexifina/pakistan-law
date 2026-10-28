@@ -1,0 +1,4 @@
+14. Claim not duly notified to be barred. Every such claim (other than claims [^17][of the Government] not notified to the manager within the time and in the manner required by such notice shall, except as provided in section 19, clause (d), be deemed for all purposes and on all occasions, whether during the continuance of the management or afterwards, to have been duly discharged:
+Provided that, when proof is made to the manager that the claimant was unable to comply with the provisions of section 12, the manager may receive such claim within the further period of six months from the expiration of the original period of six months.
+
+[^17]: The original words “to Government” have successively been amended by A.O., 1937, and A.O., 1961, Art. 2 (with effect from the 23rd March, 1956), to read as above.

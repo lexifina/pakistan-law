@@ -1,0 +1,4 @@
+27. Termination of management.—(1) When the debts and liabilities mentioned in the liquidation-scheme and the amount of any loan received under section 24, clause (c), together with the interest (if any) due there on, have been paid and discharged, the manager shall publish in the [^26][official Gazette] a notice fixing a date for the termination of the management.
+(2) On the date so fixed the management shall terminate, and the owner shall be restored to the possession and enjoyment of the property under management, or of such part thereof as has not been sold by the manager under the power conferred by section 24, but subject to the leases and mortgages (if any) granted and made by the manager under the powers conferred by sections 10, 23 and 24.
+
+[^26]: Subs. ibid., for “Sindh official Gazette”.

@@ -1,0 +1,1 @@
+26. Manager’s receipt to be a discharge. The manager's receipt for any moneys, rents or profits raised or received by him under this Act shall discharge the person paying the same therefrom and from being concerned to see to the application thereof.

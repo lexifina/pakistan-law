@@ -1,0 +1,1 @@
+16. Power to rank debts and to fix interest. If such amount cannot be paid at once, the manager shall then proceed to rank such debts and liabilities according to the order in which they shall be paid, and to fix the interest (if any) to be paid thereon, respectively, from the date of the final decision thereon to the date of the payment and discharge thereof.

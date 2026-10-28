@@ -1,0 +1,5 @@
+10. Powers of manager. The manager shall, during the management of the property, have all powers which the owner thereof might, as such, have legally exercised, and shall receive and recover all rents, [^13][profits and other sums] due in respect of the property under management, and for the purpose of recovering such rents, [^13][profits and other sums] shall have, in addition to any powers possessed by a jagirdar or zamindar, as the case may be, all the powers possessed by a Collector under the law for the time being in force for the recovery of land-revenue due to Government, [^14][including the power conferred by section 176 of the Bombay Land -revenue Code, 1879 (Bom.V of 1879)]:
+Provided that he shall not, before the liquidation-scheme hereinafter mentioned has been sanctioned, demise the property under management, or any part thereof, for any term exceeding two years, to take effect in possession.
+
+[^13]: Subs. by the Sindh Incumbered Estates (Amdt.) Act, 1906 (2 of 1906), s. 5 (a), for “and profits”.
+[^14]: Ins. ibid., s.5 (b)

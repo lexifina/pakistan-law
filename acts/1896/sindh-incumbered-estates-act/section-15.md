@@ -1,0 +1,1 @@
+15. Determination of debts and liabilities. The manager shall inquire into the history and merits of every claim received under sections 12 and 14, and shall, in accordance with the rules to be made under this Act, determine the amount of the debts and liabilities (if any) justly due to the several claimants.
