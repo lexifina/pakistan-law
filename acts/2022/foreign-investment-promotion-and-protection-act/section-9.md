@@ -1,0 +1,1 @@
+9. Secrecy of banking transaction.— Secrecy of banking transactions of an investor in a qualified investment or of the qualified investment shall be strictly observed by all banks and financial institutions, by whosoever owned, controlled or managed, except as otherwise provided in accordance with applicable anti-money laundering laws for the time being in force.

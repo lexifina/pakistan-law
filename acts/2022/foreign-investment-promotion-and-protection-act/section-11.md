@@ -1,0 +1,2 @@
+11. Investor obligations. (1) The Federal Government shall ensure that, in connection with designating a qualified investment, the investor will commit in the related investment agreement to commercially reasonable investor obligations in favour of Pakistan that the Federal Government considers appropriate and in the national interest.
+(2) All remedies of the Federal Government or any Federal Government entity for a failure by the investor to comply with the obligations referred to in sub-section (1) shall be limited to the remedies provided in the investment agreement.

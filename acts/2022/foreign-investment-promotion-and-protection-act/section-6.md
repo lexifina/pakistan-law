@@ -1,0 +1,1 @@
+6. Implementation of investment incentives.— The concerned Governments, shall ensure the implementation of protected benefits granted to investors and the qualified investments under this Act and any investment agreement mentioned in section 5.
