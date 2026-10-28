@@ -1,0 +1,3 @@
+14. Issue of summons. Whenever any charge is made before any magistrate of any offence under this Act on which it is necessary to issue a summons to the proprietor of a stage-carriage, the Magistrate shall issue such summons directed to such proprietor or his nearest agent, and may transmit such summons by letter-post, which shall be deemed to be good service thereof.
+The letter shall be registered at the post-office, and the cost of the registration shall be borne by the Government in the first instance, but may be charged as costs in the case.
+The summons shall allow a reasonable time, in reference to the distance to which the summons is sent, for the appearance of such proprietor or his agent as aforesaid.

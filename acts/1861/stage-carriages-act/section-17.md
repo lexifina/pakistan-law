@@ -1,0 +1,2 @@
+17. Offender may be apprehended and detained in custody until return of warrant of
+distress. In case any such penalties shall not be forthwith paid, such Magistrate may order the offender to be apprehended and detained in safe custody until the return can be conveniently made to such warrant of distress, unless the offender shall give security to the satisfaction of such Magistrate for his appearance at such place and time as shall be appointed for the return of the warrant of distress.

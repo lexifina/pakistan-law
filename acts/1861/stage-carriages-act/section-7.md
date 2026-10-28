@@ -1,0 +1,1 @@
+7. Penalty for letting for hire unlicensed carriage. Whoever lets for hire any stage-carriage without the same being licensed as provided by this Act, shall be liable, on a first conviction, to a fine not exceeding one hundred rupees, and on any subsequent conviction, to a fine which may extend to five hundred rupees.

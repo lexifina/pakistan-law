@@ -1,0 +1,4 @@
+[^23][22. Extent of Act. This Act, as amended by subsequent Acts, extends to [^24][the whole of Pakistan]; but it shall not apply to carriages ordinarily plying for hire within the limits of any municipality or cantonment or other place in which any law for the regulation of carriages is for the time being in force.
+
+[^23]: Ss. 22 and 23 were added by s. 5 of the Stage Carriages Act (1861) Amendment Act, 1898 (1 of 1898). The original s. 22 regarding the com- mencement of this Act as originally passed was rep. by the Repealing Act, 1870 (14 of 1870).
+[^24]: Subs. by the Central Laws (Statute Reform) Ordinance, 1960 (21 of 1960), s.3 and 2nd Sch. (with effect from the 14th October, 1955), for “all the Provinces and the Capital of the Federation” which was previously subs. for the whole of British India” by A. O., 1949 Arts. 3(2) and 4.

@@ -1,0 +1,1 @@
+5. Particulars to be painted on conspicuous part of carriage. On any stage-carriage being licensed the proprietor there of shall cause the number of the license and all the other particulars of the license to be distinctly painted in the English language and character upon a conspicuous part of such stage-carriage.

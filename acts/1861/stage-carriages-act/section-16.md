@@ -1,0 +1,1 @@
+16. Recovery of penalties, etc. All penalties imposed under this Act, or any balance of any fine, costs or charges as mentioned in section 11 of this Act, may in case of non-payment or non-recovery thereof be levied by distress and sale of the moveable property of the offender by warrant under the hand of the Magistrate who imposed the same.

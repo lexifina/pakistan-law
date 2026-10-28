@@ -1,0 +1,1 @@
+20. Jurisdiction. On complaint made before any Magistrate of any offence committed under this Act, it shall not be necessary to prove that the offence was committed within the local limits of such Magistrate or other officer.

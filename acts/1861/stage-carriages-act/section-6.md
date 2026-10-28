@@ -1,0 +1,1 @@
+6. Penalty for letting carriage without having particulars painted. The proprietor of any licensed stage-carriage who shall let such stage-carriage for hire without the particulars specified in section 3 being painted on such carriage in the manner directed in the last preceding section shall be liable to a fine not exceeding one hundred rupees.

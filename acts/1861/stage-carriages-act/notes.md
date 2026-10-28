@@ -1,0 +1,24 @@
+[^1]: Short title given by the Short Titles Act, 1897 (14 of 1897). Cf. “The Stage-Carriages Act, 1832” (2.& 3 Wm IV, c. 120); “The London Hackney Carriages Act, 1833” (3 & 4 Wm. IV, c. 48); “The Railway Passenger Duty Act, 1842” (5 & 6 Vict., c. 79) ; “The Railway Passenger Duty Act 1847” (10 &11 Vict.,c.42); “The Excise Act, 1848” (11 & 12 Vict.,c.118), s. 2: This Act as amended by the Stage-Carriages Act (1861) Amendment Act 1898 (1 of 1898), has been declared to apply to all the Provinces and the Capital of the Federation, but not so as to supersede or contravene provisions of local laws dealing with the same subject-see s. 22. For local laws, see the Bombay Public Conveyance Act, 1920 (Bom. 7 of 1920) C.f. also the Hackney Carriage Act, 1879 (14 of 1879). It has been declared in force in Baluchistan under s. 3 of the British Baluchistan Laws ResuIation, 1913 (2 of 1913).
+[^2]: The Act has been declared in force in British Baluchistan by Baluchistan Regulation II of 1913, s. 3. It has also been extended to the Leased Areas of Baluchistan, see the Leased Areas (Laws) Order, 1950 (G.G.O. 3 of 1950); and applied in the Federated Areas of Baluchistan, see Gaz. of India, 1937, Pt. l, p. 1499. This Act has been repealed to the extent of Islamabad Capital Territory, see Ordinance: No. 27 of 1981, s. 4 and 3rd sch.
+[^3]: Subs. by the Central Laws (Statute Reform) Ordinance, 1960 (21 of 1960) s. 3. and 2nd Sch. (with effect from the 14th October, 1955), for" the Provinces and the Capital of the Federation" which was subs. for" British India" by A. O. 1949, Arts. 3 (2) and 4.
+[^4]: All expressions and provisions in this Act applied to horses, also apply to all other animals employed in drawing stage-carriages, see section 21, infra.
+[^5]: Subs. by the Central Laws (Statute Reform) Ordinance, 1960 (21 of 1960), s.3 and 2nd Sch. (with effect from the 14th October, 1955), for “the Provinces and the Capital of the Federation” which was subs. for “British India” by A.O., 1949, Arts. 3(2) and 4.
+[^6]: Proviso to s.1 which read:- “Provided that this Act shall not apply to carriages not ordinarily used for journeys of a greater distance than twenty miles” rep. by s.2 of the Stage- Carriages Act, (1861) Amendment Act, 1898 (1 of 1898)
+[^7]: For definition of “Magistrate” , see s. 21, infra.
+[^8]: The words “or by the *Commissioner of Police of a Presidency-town” rep. by the Federal Laws (Revision and Declaration) Act, 1951 (26 of 1951), s. 3 and II Sch. The word “Chief” was previously rep. by the Repealing and Amending Act, 1914 (10 of 1914), s. 3 and Sch. II.
+[^9]: The words “or *Commissioner of Police” rep. by Act 26 of 1951, s. 3 and Sch. II. The word “Chief” was previously rep. by Act 10 of 1914, s. 3 and Sch. II.
+[^10]: Subs. by Act 1 of 1898, s. 3, for the original paragraph.
+[^11]: Subs, by A.O., 1937, for “L.G”.
+[^12]: The words “or*Commissioner of Police” omitted by A. O., 1949, Sch. The word “Chief” was previously rep. by the Repealing and Amending Act, 1914 (10 of 1914), s. 3 and Sch. II.
+[^13]: The words “or *Commissioner of Police” omitted by A. O., 1949, Sch. The word “'Chief” was previously rep. by the Repealing and Amending Act 1914 (10 of 1914), s. 3 and Sch. ll.
+[^14]: The original words “provided he is not a European British subject” omitted by A. O., 1961, Art. 2 and Sch. (with effect from the 23rd March, 1956).
+[^15]: Ins. by the Stage-Carriages Act (1861) Amendment Act, 1898 (1 of 1898), section 4.
+[^16]: Subs. by A. O., 1937, for “L. G.”.
+[^17]: For rules under section 20A see different Local Rules and Orders.
+[^18]: As to officers exercising the powers of a Magistrate, see s. 3 (2) of the Code of Criminal Procedure, 1898 (Act 5 of 1898).
+[^19]: The definition of British India was rep. by A. O., 1937. See now the General Clauses Act, 1897 (10 of 1897), s. 3 (7) and s. 4A. (1).
+[^20]: Subs. by s. 1 of the Stage-Carriages Act (1861) Amendment Act, 1876(16 of 1876), for the original third clause.
+[^21]: Subs. by the Central Laws (Statute Reform) Ordinance, 1960 (21 of 1960), s. 3 and 2nd Sch. (with effect from the 14th October, 1955), for “the Provinces and the Capital of the Federation” which was subs. for “British India” by A. O., 1949, Arts. 3(2) and 4.
+[^22]: The clauses relating to “number” and “gender” rep. by the Repealing and Amending Act, 1914 (10 of 1914).s. 3 and Sch. II.
+[^23]: Ss. 22 and 23 were added by s. 5 of the Stage Carriages Act (1861) Amendment Act, 1898 (1 of 1898). The original s. 22 regarding the com- mencement of this Act as originally passed was rep. by the Repealing Act, 1870 (14 of 1870).
+[^24]: Subs. by the Central Laws (Statute Reform) Ordinance, 1960 (21 of 1960), s.3 and 2nd Sch. (with effect from the 14th October, 1955), for “all the Provinces and the Capital of the Federation” which was previously subs. for the whole of British India” by A. O., 1949 Arts. 3(2) and 4.
