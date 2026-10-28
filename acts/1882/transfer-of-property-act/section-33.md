@@ -1,0 +1,2 @@
+33. Transfer conditional on performance of act, no time being specified for
+performance.— Where, on a transfer of property, an interest therein is created subject to a condition that the person taking it shall perform a certain act, but no time is specified for the performance of the act, the condition is broken when he renders impossible, permanently or for an indefinite period, the performance of the act.

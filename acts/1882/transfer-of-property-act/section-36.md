@@ -1,0 +1,2 @@
+36. Apportionment of periodical payments on determination of interest of person
+entitled.— In the absence of a contract or local usage to the contrary, all rents, annuities, pensions, dividends and other periodical payments in the nature of income shall, upon the transfer of the interest of the person entitled to receive such payments, be deemed, as between the transferor and the transferee, to accrue due from day to day, and to be apportionable accordingly, but to be payable on the days appointed for the payment thereof.

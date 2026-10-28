@@ -1,0 +1,1 @@
+32. Such condition must not be invalid.— In order that a condition that an interest shall cease to exist may be valid, it is necessary that the event to which it relates be one which could legally constitute the condition of the creation of an interest.

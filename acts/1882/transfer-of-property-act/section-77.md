@@ -1,0 +1,2 @@
+77. Receipts in lieu of interest.— Nothing in section 76, clauses (b), (d), (g) and (h), applies to cases where there is a contract between the mortgagee and the mortgagor that the receipts from the mortgaged property shall, so long as the mortgagee is in possession of the property, be taken in lieu of interest on the principal money, or in lieu of such interest and defined portions of the principal.
+Priority

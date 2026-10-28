@@ -1,0 +1,1 @@
+18. Transfer in perpetuity for benefit of public.— The restrictions in sections 14, 16 and 17 shall not apply in the case of a transfer of property for the benefit of the public in the advancement of religion, knowledge, commerce, health, safety, or any other object beneficial to mankind.]

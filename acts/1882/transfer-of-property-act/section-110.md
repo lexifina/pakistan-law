@@ -1,0 +1,3 @@
+110. Exclusion of day on which term commences.—Where the time limited by a lease of immoveable property is expressed as commencing from a particular day, in computing that time such day shall be excluded. Where no day of commencement is named, the time so limited begins from the making of the lease.
+Duration of lease for year. Where the time so limited is a year or a number of years, in the absence of an express agreement to the contrary, the lease shall last during the whole anniversary of the day from which such time commences.
+Option to determine lease. Where the time so limited is expressed to be terminable before its expiration, and the lease omits to mention at whose option it is so terminable, the lessee, and not the lessor, shall have such option.

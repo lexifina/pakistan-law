@@ -1,0 +1,1 @@
+131. Notice to be in writing, signed.—Every notice of transfer of an actionable claim shall be in writing, signed by the transferor or his agent duly authorised in this behalf, or, in case the transferor refuses to sign, by the transferee or his agent, and shall state the name and address of the transferee.

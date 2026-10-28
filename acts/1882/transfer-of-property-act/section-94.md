@@ -1,0 +1,1 @@
+94. Rights of mesne mortgagee.—Where a property is mortgaged for successive debts to successive mortgagees, a mesne mortgagee has the same rights against mortgagees posterior to himself as he has against the mortgagor.]
