@@ -1,0 +1,1 @@
+28. Persons in service of the Corporation to be public servants.⸺Every person in service of the Corporation shall be deemed to be a public servant within the meaning of section 21 of the Pakistan Penal Code (Act XLV of 1860).

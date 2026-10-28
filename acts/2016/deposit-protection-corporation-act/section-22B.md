@@ -1,0 +1,7 @@
+22B. Terms and conditions for provision of financial support for resolution.⸺(1) No financial support shall be provided by the Corporation for resolution of a member institution unless the State Bank, based on its assessment shared with the Corporation, has concluded that:
+(a) as a result of resolution, protected deposits shall be owed by a viable member institution;
+(b) the resolution of the member institution requires financial support to be provided by the Corporation;
+(c) as a result of resolution, holders of all classes of share capital and any subordinated debt have absorbed or will absorb the losses immediately before an order is made under section 42D of the Banking Companies Ordinance, 1962 (LVII of 1962);
+(d) any financial support by the Corporation under sub-section (1) shall not exceed the estimated amount needed to reimburse eligible depositors under sub-section 2 of section 21 and any direct costs associated for such reimbursement:
+Provided that where all assets and liabilities of a member institution are transferred under a scheme of amalgamation, the estimated recoveries of the Corporation in the event of the winding-up of the member institution shall be deducted from the amount provided by the Corporation for such financial support.
+(2) Where the protected deposits have been transferred to a transferee institution or a bridge institution during resolution, the Corporation shall be deemed to have discharged its reimbursement obligations in relation to protected deposits in the member institution under resolution.

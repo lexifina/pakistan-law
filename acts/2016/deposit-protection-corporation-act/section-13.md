@@ -1,0 +1,8 @@
+13. Disqualifications of the directors.—No person shall be appointed or hold office as director who—
+(a) is a member of the Senate, National Assembly, any Provincial Assembly or an elected member of a local council or local body constituted under any law relating to local councils or local bodies;
+(b) is a director, officer or employee of any banking company or financial institution or has an interest as a shareholder in a banking company or financial institution:
+Provided that nothing in this clause shall apply where the director is in the employment of the, State Bank or its subsidiaries or where the director is, in addition to holding the office of director, entrusted with additional duties by the Board or State Bank;
+(c) has been convicted of tax evasion under any law or has been convicted or proceedings are pending against him under section 412 of the Companies Ordinance, 1984 (XLVII of 1984) or section 83 of the Banking Companies Ordinance, 1962 (LVII of 1962) or has been convicted by a court of law for an offence involving moral turpitude;
+(d) has been deprived of the right to hold a position of financial responsibility;
+(e) is in default of payments due from him to any banking company, financial institution, cooperative society, Government department, Government controlled or managed company or corporation and for the purpose of this clause, default in payment by the spouse, dependent children and companies, firms and other business concerns under the control or management of a person shall be considered as the default of such person; or
+(f) holds an office in a political party.
