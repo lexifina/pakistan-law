@@ -1,0 +1,1 @@
+15. lndemnity.___ No suit prosecution or any other legal proceedings shall lie against the Government or any other person exercising any power or performing any function under this Act or the rules made thereunder for anything done in good faith.

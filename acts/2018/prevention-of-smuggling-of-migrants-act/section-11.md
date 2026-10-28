@@ -1,0 +1,1 @@
+11. Investigating agency.___ The Federal Investigation Agency, or such other agency as may be specially empowered by the Government through notification in the official Gazette, shall be responsible for investigation of offences under this Act.
