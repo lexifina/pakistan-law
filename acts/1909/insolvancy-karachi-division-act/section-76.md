@@ -1,0 +1,1 @@
+76. Right of insolvent to surplus.—The insolvent shall be entitled to any surplus remaining after payment in full of his creditors, with interest, as provided by this Act and of the expenses of the proceedings taken thereunder.

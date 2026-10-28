@@ -1,0 +1,1 @@
+111. Saving of jurisdiction of Administrator General. The provisions of sections 108, 109 and 110 shall not apply to any case in which probate or letters of administration to the estate of a deceased debtor have been granted to an Administrator-General.

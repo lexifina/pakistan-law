@@ -1,0 +1,1 @@
+48. Rules as to proof of debts. With respect to the mode of proving debts, the right of proof by secured and other creditors, the admission and rejection of proofs, and the other matters referred to in the Second Schedule, the rules in that schedule shall be observed.

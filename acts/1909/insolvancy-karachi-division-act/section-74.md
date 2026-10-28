@@ -1,0 +1,3 @@
+[^38]74. No suit for a dividend. No suit for a dividend shall lie against the official assignee, but, where the official assignee refuses to pay any dividend, the Court may, on the application of the creditor who is aggrieved by such refusal, order him to pay it, and also to pay out of his own money interest thereon at such rate as may be prescribed for the time that it is withheld, and the costs of the application.
+
+[^38]: S, 74 has been amended in its application to Karachi by the Presidency- towns Insolvency (Bom, Amdt.) Act, 1933 (Bom, 20 of 1933), s.2, as amended by the Karachi Insolvency Amendment Act, 1935 (Born. 3 of 1935), Section 2.

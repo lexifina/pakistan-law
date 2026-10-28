@@ -1,0 +1,5 @@
+60. Appropriation of portion of pay or other income to creditors.—(1) Where an insolvent is an officer of [^33][the Pakistan Army or Navy], or an officer or clerk or otherwise employed or engaged in the civil service of the [^34][State], the official assignee shall receive for distribution amongst the creditors so much of the insolvent’s pay or salary liable to attachment in execution of a decree as the Court may direct.
+(2) Where an insolvent is in the receipt of a salary or income other than as aforesaid, the Court may, at any time after adjudication and from time to time, make such order as it thinks just for the payment to the official assignee, for distribution among the creditors of so much of such salary or income as may be liable to attachment in execution of a decree, or of any portion thereof.
+
+[^33]: Subs. by A.O., 1961, Art. 2 and Sch. (with effect from the 23rd March, 1956), for “the Army or Navy or of [the Royal Pakistan Navy]”. The word in crotchets were amended by A.O., 1937 and A.O., 1949.
+[^34]: Subs. by A.O., 1961, Art. 2 and Sch., for “Crown” (with effect from the 23rd March, 1956).

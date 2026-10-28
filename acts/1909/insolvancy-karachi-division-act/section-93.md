@@ -1,0 +1,1 @@
+93. Continuance of proceedings on death of debtor. If a debtor by or against whom an insolvency petition has been presented dies, the proceedings in the matter shall, unless the Court otherwise orders, be continued as if he were alive.

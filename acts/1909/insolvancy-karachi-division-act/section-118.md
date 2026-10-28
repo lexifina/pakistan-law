@@ -1,0 +1,3 @@
+118. Formal defect not to invalidate proceedings.—(1) No proceeding in insolvency shall be invalidated by any formal defect or by any irregularity unless the Court before which an objection is made to the proceeding is of opinion that substantial injustice has been caused by the defect or irregularity, and that the injustice cannot be remedied by any order of that Court.
+(2) No defect or irregularity in the appointment of an official assignee or member of a committee of inspection shall vitiate any act done by him in good faith.
+119. [Application of Trustee Act to insolvency of trustee.] Omitted by the Federal Laws (Revision and Declaration) Ordinance, 1981 (XXVII of 1981), s. 3 and Second Schedule.

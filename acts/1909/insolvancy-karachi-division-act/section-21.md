@@ -1,0 +1,5 @@
+## Annulment of adjudication
+21. Power for Court to annul adjudication in certain cases.—(1) Where, in the opinion of the Court, a debtor ought not to have been adjudged insolvent, or where it is proved to the satisfaction of the Court that the debts of the insolvent are paid in full, the Court may, on the application of any person interested, by order annul the adjudication [^24][and the Court may, of its own motion or on application made by the official assignee or any creditor, annul any adjudication made on the petition of a debtor who was, by reason of the provisions of sub-section (2) of section (14), not entitled to present such petition].
+(2) For the purposes of this section, any debt disputed by a debtor shall be considered as paid in full, if the debtor enters into a bond, in such sum and with such sureties as the Court approves, to pay the amount to be recovered in any proceeding for the recovery of or concerning the debt, with costs, and any debt due to a creditor who cannot be found or cannot be identified shall be considered as paid in full if paid into Court.
+
+[^24]: Ins. by the Insolvency (Amdt.) Act, 1927 (11 of 1927), s. 3.

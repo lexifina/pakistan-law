@@ -1,0 +1,1 @@
+70. Joint and separate properties. Where one partner in a firm is adjudged insolvent, a creditor to whom the insolvent is indebted jointly with the other partners in the firm or any of them shall not receive any dividend out of the separate property of the insolvent until all the separate creditors have received the full amount of their respective debts.

@@ -1,0 +1,1 @@
+67. Persons injured by disclaimer may prove. Any person injured by the operation of a disclaimer under the foregoing provisions shall be deemed to be a creditor of the insolvent to the amount of injury, and may accordingly prove the same as a debt under the insolvency.

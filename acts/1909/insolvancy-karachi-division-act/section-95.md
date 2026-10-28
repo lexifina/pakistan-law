@@ -1,0 +1,1 @@
+95. Power to present petition against a partner. Any creditor whose debt is sufficient to entitle him to present an insolvency petition against all the partners in a firm may present a petition against any one or more partners in the firm without including the others.

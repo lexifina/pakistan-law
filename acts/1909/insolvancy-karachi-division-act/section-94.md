@@ -1,0 +1,1 @@
+94. Power to stay proceedings. The Court may, at any time, for sufficient reason, make an order staying the proceedings under an insolvency petition, either altogether or for a limited time, on such terms and subject to such conditions as the Court thinks just.

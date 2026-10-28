@@ -1,0 +1,1 @@
+96. Power to dismiss petition against some respondents only. Where there are more respondents than one to a petition, the Court may dismiss the petition as to one or more of them without prejudice to the effect of the petition as against the other or others of them.

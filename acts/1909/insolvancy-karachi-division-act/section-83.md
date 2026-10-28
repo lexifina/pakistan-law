@@ -1,0 +1,3 @@
+[^45]83. Name under which to sue or be sued. The official assignee may sue and be sued by the name of “the official assignee of the property of, an insolvent,” inserting the name of the insolvent, and by that name may hold property of every description, make contracts, enter into any engagements binding on himself and his successors in office, and do all other acts necessary or expedient to be done in the execution of his office.
+
+[^45]: Ss. 82 and 83 have been subs. in the application of the Act to Karachi, see the Presidency-towns Insolvency (Bom. Amdt.) Act, 1933 (Bom. 20 of, 1933), s. 4. as amended by the Karachi Insolvency Law (Amdt.) Act, 1935 (Bom. 3 of 1935), s. 2.

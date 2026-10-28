@@ -1,0 +1,2 @@
+26. Meetings of creditors.—(1) At any time after the making of an order of adjudication against an insolvent, the Court, on the application of a creditor or of the official assignee, may direct that a meeting of creditors shall be held to consider the circumstances of the insolvency and the insolvent’s schedule and his explanation thereof and generally as to the mode of dealing with the property of the insolvent.
+(2) With respect to the summoning of and proceedings at a meeting of creditors the rules in the First Schedule shall be observed.

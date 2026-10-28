@@ -1,0 +1,5 @@
+12. Conditions on which creditor may petition.—(1) A creditor shall not be entitled to present an insolvency petition against a debtor unless—
+(a) the debt owing by the debtor to the creditor, or, if two or more creditors join in the petition, the aggregate amount of debts owing to such creditors, amounts to five hundred rupees, and
+(b) the debt is a liquidated sum payable either immediately or at some certain future time, and
+(c) the act of insolvency on which the petition is grounded has occurred within three months before the presentation of the petition.
+(2) If the petitioning creditor is a secured creditor, he shall in his petition either state that he is willing to relinquish his security for the benefit of the creditors in the event of the debtor being adjudged insolvent or give an estimate of the value of the security. In the latter case he may be admitted as a petitioning creditor to the extent of the balance of the debt due to him after deducting the value so estimated in the same way as if he were an unsecured creditor.

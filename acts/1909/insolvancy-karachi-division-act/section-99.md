@@ -1,0 +1,3 @@
+99. Proceedings in partnership name.- (1) Any two or more persons, being partners, or any person carrying on business under a partnership name, may take proceedings or be proceeded against under this Act in the name of the firm :
+Provided that in that case the Court may, on application by any person interested, order the names of the persons who are partners in the firm, or the name of the person carrying on business under a partnership name, to be disclosed in such manner and verified on oath or otherwise, as the Court may direct.
+(2) In the case of a firm in which one partner is an infant, an adjudication order may be made against the firm other than the infant partner.
