@@ -1,0 +1,4 @@
+41. Bar of suit and limitation of suit and other legal
+proceedings.– (1) No suit shall be brought in any civil court to set aside or modify any order passed, or any assessment, levy or collection of any duty, under this Act.
+(2) No suit prosecution or other legal proceeding shall lie against the Federal Government or against any officer of the Government in respect of any order passed in good faith or any act in good faith done or ordered to be done under this Act.
+(3) Notwithstanding anything in any other law for the time being in force, no investigation or inquiry shall be undertaken or initiated by any governmental agency against any officer or official for anything done in his official capacity under this Act, rules, instructions or direction made or issued there under without the prior approval of the Board.

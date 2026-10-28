@@ -1,0 +1,5 @@
+5. Zero rate of duty and drawback of duty etc.—(1) Notwithstanding the provisions of section 3, the goods exported out of Pakistan or such goods as may be, by a notification in the official Gazette, specified by the Federal Government shall be charged to duty at the rate of zero per cent and adjustment of duty in terms of section 6 shall be admissible on such goods.
+(2) The Board may, by notification in the official Gazette, grant drawback of duty paid on any goods used in the manufacture of any goods manufactured in and exported out of Pakistan, or shipped as provisions or stores for consumption on board a ship or aircraft proceeding to a destination outside Pakistan, at such rate or rates and subject to such conditions and limitations as may be specified in the notification.
+[^53][(3) Notwithstanding anything in sub-sections (1) and (2), the Board may, by notification in the official Gazette, prohibit the payment of drawback, refund or adjustment of duty upon the exportation of goods or any specified goods or class of goods to any specified foreign port or territory.]
+
+[^53]: Added vide Finance Act, 2007.

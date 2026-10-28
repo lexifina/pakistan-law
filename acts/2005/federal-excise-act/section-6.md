@@ -1,0 +1,8 @@
+6. Adjustment of duties of excise.— (1) For the purpose of determining net liability of duty in respect of any goods, the duty already paid on goods specified in the First Schedule and used directly as input goods for the manufacture or production of such goods shall be deducted from the amount of duty calculated on such goods.
+(2) Adjustment of duty of excise under sub-section (1) shall be admissible only if a person registered under this Act holds a valid proof to the effect that he has paid the price of goods purchased by him including the amount of duty and received the price of goods sold by him including the amount of duty through banking channels including online payment whether through credit card or otherwise.
+[^54][(2A) From the date to be notified by the Board, adjustment of duty of excise under sub-section (1) shall be admissible only if the supplier of input goods and services has declared such supply in his return and he has paid amount of tax due as indicated in his return].
+[^55][(2AB) Notwithstanding anything contained in this Act or the rules made thereunder, the Board may, by notification in the official Gazette, may impose restrictions on wastage of material on which input tax has been claimed in respect of the goods or class of goods.]
+(3) Notwithstanding the provisions of sub-section (1), the Board may, by a notification in the official Gazette, disallow or restrict whole or part of the amount of or otherwise regulate the adjustment of duty in respect of any goods or class of goods.
+
+[^54]: New sub-section added through Finance Act, 2016.
+[^55]: New sub-section inserted by Finance Act, 2020.

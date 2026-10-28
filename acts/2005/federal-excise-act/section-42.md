@@ -1,0 +1,2 @@
+42. Observance of Board's orders, directions and instructions.–
+All officers and persons employed in the execution of this Act and the rules made there under shall observe and follow the orders, directions and instructions of the Board provided that no such order, direction or instruction shall be given by the Board so as to interfere with the discretion of an officer in deciding the issues or matters brought before him for adjudication under this Act or rules made there under.
