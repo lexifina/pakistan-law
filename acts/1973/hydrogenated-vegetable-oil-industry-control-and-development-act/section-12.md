@@ -1,0 +1,2 @@
+12. Regulations.—(1) A Board may, with the prior approval in writing of the Federal Government, make such regulations as appear to it to be necessary for carrying out the purpose of this Act.
+(2) In particular and without prejudice to the generality of the foregoing power, such regulations may provide for the manner of payment and collection of the payments required to be made by the Managing Director under sub-section (2) of section 9.

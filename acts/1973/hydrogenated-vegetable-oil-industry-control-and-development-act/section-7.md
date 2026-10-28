@@ -1,0 +1,4 @@
+7. Board of Management.—(1) The Federal Government may, by notification in the official Gazette, set up a Board of Management to control, manage and direct the affairs of establishments in respect of which Managing Directors have been appointed and where it sets up more than one Board, shall specify in the notification the establishment or class of establishments in respect of which each Board shall, exercise its powers and perform its functions under this Act.
+(2) A Board shall consist of a Chairman and such number of members, not exceeding nine, as the Federal Government may appoint.
+(3) A Board shall be a body corporate having perpetual succession and a common seal, with power to acquire and hold property, and shall by the name assigned to it by the notification issued under sub-section (1) sue and be sued.
+(4) The Chairman and members of a Board shall hold office during the pleasure of the Federal Government on such terms and conditions as it may determine.

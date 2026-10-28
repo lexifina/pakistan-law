@@ -1,0 +1,6 @@
+8. Functions of Boards. —(1) The function of the Board shall be to ensure that the establishments in respect of which it is to exercise and perform its powers and functions under this Act are managed efficiently and in accordance with sound business principles and, in respect of any such establishment, the Board may, from time to time.—
+(a) exercise such of the powers of the Managing Director and issue such directions to him as it may consider necessary;
+(b) require the Managing Director to furnish it with such information relating to the affairs of the establishment in respect of which he is the Managing Director as the Board may require in connection with the performance of its functions; and
+(c) remove from office its auditor and appoint another person to hold that office for such period and on such remuneration payable by the establishment as the Board may determine.
+(2) The exercise by the Board under sub-section (1) of the powers of a Managing Director shall have effect as if it were the exercise of those powers by the Managing Director himself.
+(3) It shall be the duty of a Managing Director to comply with all directions issued to him by the Board under sub-section (1) and to furnish the Board with the information required by it.

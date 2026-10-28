@@ -1,0 +1,4 @@
+24. Duty to deliver possession of property and documents relating thereto.—(1) Where the management of a managed establishment has been transferred to a corporation under section 13 then
+(a) every person in whose possession, custody or control there is any property of such establishment shall forthwith deliver the property to the corporation; and
+(b) any person who, on the date of transfer of the establishment to the corporation, has in his possession, custody or control any books, documents or other papers relating to such establishment shall be liable to account for the said books, documents and papers to the corporation, and shall deliver them to such person as the corporation may direct.
+(2) Without prejudice to the provisions of sub-section (1), it shall be lawful for the corporation to take all necessary steps for acquiring possession of all properties which have been transferred to and vested in it under this Ordinance.

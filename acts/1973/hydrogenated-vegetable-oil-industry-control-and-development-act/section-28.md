@@ -1,0 +1,1 @@
+28. Indemnity.—No suit, prosecution or other legal proceeding shall lie against the Government, a Board, a Managing Director or any other person for anything in good faith done under this Act or any rule or order made there under.
