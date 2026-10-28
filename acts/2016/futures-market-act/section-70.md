@@ -1,0 +1,4 @@
+70. Power of the Commission to appoint auditor for special Audit. Where the Commission is satisfied that it is in the interest of a regulated person, his customers or in the public interest to do so, it may appoint in writing an auditor to conduct special audit at the expense of the regulated person, to examine, audit and report, either generally or in relation to any matter, on the books, accounts and records of the regulated person and on money, securities or other property held on account of any other person by the regulated person or by a nominee appointed by the regulated person, if—
+(a) the regulated person has failed to lodge audited accounts with the Commission under section 68;
+(b) the Commission has received a report under section 69; or
+(c) the Commission has reason to believe that the regulated person has failed to comply with the financial resources regulations, with section 62 (customer assets) or section 63 (accounts and records to be kept).

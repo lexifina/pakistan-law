@@ -1,0 +1,1 @@
+77. Bucketing. Any person who executes or holds himself out as having executed, an order for the purchase or sale of a futures contract on a futures market, without having effected a bona fide purchase or sale of the futures contract in accordance with the regulations and practices of the futures market shall be deemed to have committed an offence under this Act.

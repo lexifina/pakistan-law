@@ -1,0 +1,1 @@
+105. Penalty to be imposed by the Commission. Where a penalty is provided for any offence, contravention of or default in complying with, any of the provisions of this Act, rules or regulations made under this Act such penalty shall be imposed by the Commission after providing a reasonable opportunity of being heard to the party.

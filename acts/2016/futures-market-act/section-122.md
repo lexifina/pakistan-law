@@ -1,0 +1,1 @@
+122. Removal of difficulties. If any difficulty arises in giving effect to any provisions of this Act, the Federal Government may make such orders as may appear to be necessary for the purpose of removing the difficulty.

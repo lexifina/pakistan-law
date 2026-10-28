@@ -1,0 +1,4 @@
+## PART VIII
+## OTHER MARKET ABUSES
+76. False trading.— (1) Any person who, creates or causes to be created, or do anything that is calculated to create, a false or misleading appearance of active trading in a futures contract on a futures market, or a false or misleading appearance with respect to the market for, or the price of, futures contracts on a futures market shall be deemed to have committed an offence under this Act.
+(2) Without limiting the general nature of what constitutes a false or misleading appearance of active trading under sub-section (1), a false or misleading appearance of active trading in futures contract is created for the purpose of this section if a person executes, or holds himself out as having executed, an order for the purchase or sale of a futures contract on a futures market, without having effected a bona fide purchase or sale of the futures contract in accordance with the rules and practices of the futures market.

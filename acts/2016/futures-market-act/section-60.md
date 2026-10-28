@@ -1,0 +1,1 @@
+60. Customer agreement. No regulated person shall act for any customer otherwise than in accordance with the terms of a written agreement to be called a customer agreement, which shall contain such matters as may be prescribed.

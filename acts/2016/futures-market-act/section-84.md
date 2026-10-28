@@ -1,0 +1,1 @@
+84. Destruction of documents. A person commits an offence who destroys, falsifies, conceals or disposes of, or causes or permits the destruction, falsification, concealment or disposal of, any document, which he knows or ought to know is relevant to an inspection under section 82 or an investigation under section 83.
