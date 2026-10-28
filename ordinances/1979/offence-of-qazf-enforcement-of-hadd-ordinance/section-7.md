@@ -1,0 +1,3 @@
+7. Punishment of qazf liable to hadd.___(1) Whoever commits qazf liable to hadd shall be punished with whipping numbering eighty stripes.
+(2) After a person has been convicted for the offence of qazf liable to hadd, his evidence shall not be admissible in any Court of law.
+(3) A punishment awarded under sub-section (1) shall not be executed until it has been confirmed by the court to which an appeal from the Court awarding the punishment lies; and, until the punishment is confirmed and executed, the convict shall, subject to the provisions of the Code of Criminal Procedure, 1898 (Act V of 1898) relating to the grant of bail or suspension of sentence, be dealt within the same manner as if sentenced to simple imprisonment.
