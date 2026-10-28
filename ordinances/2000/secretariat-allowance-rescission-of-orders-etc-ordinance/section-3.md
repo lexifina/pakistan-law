@@ -1,0 +1,1 @@
+3. Removals of difficulties.___ If any difficulty arises in giving effect to the provisions of this Ordinance, the Federal Government may make such order as it may deem just and equitable to provide recompense for the benefit of the Federal Government Servants who were recipient of the Secretariat Allowance or the Personal Allowsance.
