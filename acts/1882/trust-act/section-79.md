@@ -1,0 +1,1 @@
+79. Revocation not to defeat what trustees have duly done. No trust can be revoked by the author of the trust so as to defeat or prejudice what the trustees may have duly done in execution of the trust.

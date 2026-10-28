@@ -1,0 +1,6 @@
+38. Power to sell under special conditions. The trustee making any such sale may insert such reasonable stipulations either as to title or evidence of title, or otherwise, in any conditions of sale or contract for sale, as he thinks fit; and may also buy in the property or any part thereof at any sale by auction, and rescind or vary any contract for sale, and
+Power to buy in and re-sell. re-sell the property so bought in, or as to which the contract is so rescinded, without being responsible to the beneficiary for any loss occasioned thereby.
+Time allowed for selling trust-property. Where a trustee is directed to sell trust-property or to invest trust-money in the purchase of property, he may exercise a rea sonable discretion as to the time of effecting the sale or purchase.
+Illustrations
+(a) A bequeaths property to B, directing him to sell it with all convenient speed and pay the proceeds to C. This does not render an immediate sale imperative.
+(b) A bequeaths property to B, directing him to sell it at such time and in such manner as he shall think fit and invest the proceeds for the benefit of C. This does not authorize B, as between him and C, to postpone the sale to an indefinite period.

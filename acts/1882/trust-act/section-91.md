@@ -1,0 +1,1 @@
+91. Property acquired with notice of existing contract. Where a person acquires property with notice that another person has entered into an existing contract affecting that property, of which specific performance could be enforced, the former must hold the property for the benefit of the latter to the extent necessary to give effect to the contract.

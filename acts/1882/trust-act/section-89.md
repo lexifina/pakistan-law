@@ -1,0 +1,1 @@
+89. Advantage gained by exercise of undue influence. Where, by the exercise of undue influence, any advantage is gained in derogation of the interests of another, the person gaining such advantage without consideration, or with notice that such influence has been exercised, must hold the advantage for the benefit of the person whose interests have been so prejudiced.

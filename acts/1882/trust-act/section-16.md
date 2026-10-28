@@ -1,0 +1,6 @@
+16. Conversion of perishable property. Where the trust is created for the benefit of several persons in succession, and the trust-property is of a wasting nature or a future or reversionary interest, the trustee is bound, unless an intention to the contrary may be inferred from the instrument of trust, to convert the property into property of a permanent and immediately profitable character.
+Illustrations
+(a) A bequeaths to B all his property in trust for C during his life, and on his death for D and on D’s death for E. A’s property consists of three leasehold houses, and there is nothing in A’s will to show that he intended the houses to be enjoyed in specie. B should sell the houses, and invest the proceeds in accordance with section 20.
+(b) A bequeaths to B his three leasehold houses in [^11][Quetta] and all the furniture therein in trust for C during his life, and on his death for D, and on D’s death for E. Here an intention that the houses and furniture should be enjoyed in specie appears clearly, and B should not sell them.
+
+[^11]: Subs. by the Federal Laws (Revision and Declaration) Ordinance, 1981 (27 of 1981), s. 3 and 2nd Sch., for “Chittagong”, which was previously subs. by the Central Laws (Statute Reform) Ordinance, 1960 (21 of 1960), s. 3 and 2nd Sch., for “Calcutta” (with effect from the 14th October, 1955).
