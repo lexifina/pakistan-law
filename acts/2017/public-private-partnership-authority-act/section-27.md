@@ -1,0 +1,1 @@
+27. Removal of difficulties.—If any difficulty arises in giving effect to any provision of this Act, the Federal Government may, by notification in the official Gazette, make such provisions as may appear to it to be necessary for the purpose of removing such difficulty.
