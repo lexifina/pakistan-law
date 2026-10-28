@@ -1,0 +1,3 @@
+3. Establishment and incorporation of the Institute.—(1) There shall be established, in accordance with the provisions of this Ordinance, an Institute to be called the COMSATS Institute of Information Technology consisting of the Patron, the Chancellor, the Board, the Rector, the Directors, and such other officers as may be prescribed.
+(2) The Institute shall be a body corporate having perpetual succession and common seal, with power to acquire, hold and dispose of any property, both movable and immovable, and shall by the said name sue and be sued.
+(3) The Institute shall have its principal seat at Islamabad and may set­up any number of campuses at such places as the Board may determine.
