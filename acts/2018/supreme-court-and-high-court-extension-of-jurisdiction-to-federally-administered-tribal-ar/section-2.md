@@ -1,0 +1,1 @@
+2. Extension of jurisdiction of Supreme Court.⸻ The Supreme Court of Pakistan shall have, in relation to the Federally Administered Tribal Areas, the same jurisdiction as it has in relation to the province of the Khyber Pakhtunkhwa.
