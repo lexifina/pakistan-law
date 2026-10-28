@@ -1,0 +1,1 @@
+29. Cognizance of offence.—No Court shall take cognizance of offence under this Act except on a complaint made by the Controller in writing within three months of the date of the commission of the offence.

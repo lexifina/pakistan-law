@@ -1,0 +1,4 @@
+22. Eviction of Government servants, etc.— Notwithstanding anything contained in any other provision of this Act no order of eviction shall be made under this Act against any person in the service of the [^11][Federal Government], a Provincial Government, a Railway, a Port Trust, a Cantonment Board or any other local authority or of any corporation, company or authority rendering an essential service to the community, if his eviction would be detrimental to the public interest, provided eviction is not sought on the grounds referred to in clauses (i) to (iv) of sub-section (2) of section 17 [^12][or under section 17A] or clause (a) of sub-section (2) of section 21 of this Act.
+
+[^11]: Subs. by F.A.O., 1975, Art. 2 and Table, for “Central Government”.
+[^12]: Ins. by the Cantonments Rent Restriction (Amdt.) Ordinance, 1985 (IX of 1985), ss. 6 and 7.

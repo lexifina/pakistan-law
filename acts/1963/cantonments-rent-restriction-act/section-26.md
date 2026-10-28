@@ -1,0 +1,1 @@
+26. Landlord and tenant to furnish particulars.— Every landlord and every tenant of a building shall be bound to furnish to the Controller, or any person authorised by him in that behalf, such particulars in respect of such building as may be prescribed.
