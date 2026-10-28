@@ -1,0 +1,1 @@
+29. Constitution, Functions and Powers of other Committees.—The constitution, functions and powers of the other Authorities, for which no specific provision or not sufficient provision has been made in this Act shall be such as may be prescribed by statutes.

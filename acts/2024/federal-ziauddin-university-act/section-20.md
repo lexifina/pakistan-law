@@ -1,0 +1,4 @@
+20. Meeting of Governing Body.—(1) The Governing Body shall meet at least twice in a year on the dates to be fixed by the Chairman, provided that a special meeting may be called at any time on the directives of the Chairman or on a requisition made by not less than three members of the Governing Body to consider a matter of urgent nature.
+(2) Not less than ten clear days’ notice of a special meeting shall be given to the members and the agenda of the meeting shall be restricted to the matter for which the special meeting is called.
+(3) The quorum for a meeting shall be one third of the members, a fraction being counted as one.
+(4) The decisions at a meeting shall be expressed in tents of the views of the majority of the members present and voting and, if the members are equally divided the Chairman shall have and exercise a casting vote.

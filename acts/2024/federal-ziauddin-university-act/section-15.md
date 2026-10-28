@@ -1,0 +1,2 @@
+15. Controller of Examination.—(1) The Controller of Examination shall be whole time officer and shall be appointed by the Governing Body on such terms and conditions as the Governing Body may determine and shall hold office during the pleasure of the Chancellor.
+(2) The Controller shall responsible for all matters connected with the conduct of examination and perform such other duties as may be prescribed.

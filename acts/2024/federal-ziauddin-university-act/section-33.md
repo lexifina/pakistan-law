@@ -1,0 +1,2 @@
+33. Rules.—(1) The authorities and the other bodies of the University may make Rules for submission to the Governing Body consistent with Act, statutes and the regulations to regulate the conduct of their business and the time and place of meetings and related matters.
+(2) The Governing Body may make rules to regulate any other matter relating to the affairs of the University which under this Act are not specifically required to be provided for by the statutes or the regulations.
