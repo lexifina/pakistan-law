@@ -1,0 +1,2 @@
+7. Wages during leave or holiday period.— (1) For each day of the leave or holidays allowed to a domestic worker under sub-sections (1), (2), and (3) of section 6, he must be paid at rate equivalent to the daily average amount, which, during the three months preceding the leave or holidays, was being earned by the domestic worker.
+(2) A domestic worker, who has been allowed leave under sub-section (2) of section 6 for any period not less than four days shall before the leave begins, be paid his wages for the period of the leave allowed.

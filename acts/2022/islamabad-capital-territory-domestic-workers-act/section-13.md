@@ -1,0 +1,1 @@
+13. Termination of employment.— The termination of employment shall be subject to one month’s prior notice in writing either by the domestic worker or by the employer and in lieu of notice, one month’s wages shall be paid calculated on the basis of average of wages earned during the preceding three months.

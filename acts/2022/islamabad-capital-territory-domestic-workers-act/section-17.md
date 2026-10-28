@@ -1,0 +1,1 @@
+17. Power to declare minimum rates of wages.— Upon receipt of a recommendation of the Board under section 16, the Government may proceed as per procedure laid down under Section- 6 of the Minimum Wages Ordinance, 1961 (XXXIX of 1961).
