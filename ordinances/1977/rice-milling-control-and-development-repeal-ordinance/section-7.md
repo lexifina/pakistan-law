@@ -1,0 +1,1 @@
+7. Corporation to continue until wound up. Notwithstanding the repeal of the repealed Act under section 15, the Rice Milling Corporation of Pakistan shall continue in existence until it is wound up by an order of the Federal Government.

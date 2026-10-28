@@ -1,0 +1,1 @@
+2. Definitions. In this Ordinance, unless there is anything repugnant in the subject or context, “repealed Act” means the Rice Milling Control and Development Act, 1976 (LVIII of 1976), and other words and expressions shall have the same meaning as in the repealed Act.
