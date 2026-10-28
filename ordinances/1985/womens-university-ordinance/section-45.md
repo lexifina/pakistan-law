@@ -1,0 +1,1 @@
+45. Bar of jurisdiction. ___No Court shall have jurisdiction to entertain any proceedings, grant any injunction or make any order in relation to anything done or purporting to have been, or intended to be done under this Ordinance.

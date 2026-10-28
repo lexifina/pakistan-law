@@ -1,0 +1,1 @@
+39. Commencement of term of office Authorities. ___When a member of a newly constituted Authority is elected, appointed or nominated, his or her term of office, as fixed under this Ordinance, shall commence from such day as may be prescribed.

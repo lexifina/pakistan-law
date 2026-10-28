@@ -1,0 +1,2 @@
+6. University open to all classes, creeds, etc. ___The University shall be open to all women students, irrespective of religion, race, class, colour or creed and no woman shall be denied the privilege of the University on the grounds of religion, race, class, colour, or creed;
+Provided that nothing in this section shall be deemed to prevent religious instruction being given to the students in their own religious faiths in such manner as may be prescribed.

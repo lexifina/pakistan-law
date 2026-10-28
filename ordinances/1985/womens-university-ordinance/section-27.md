@@ -1,0 +1,1 @@
+27. Extension of affiliation. ___ Where an affiliated college desires to add to the courses of studies in respect of which it is granted affiliation, the procedure prescribed for affiliation of colleges shall, as far as may be followed.

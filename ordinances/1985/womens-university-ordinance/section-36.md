@@ -1,0 +1,1 @@
+36. Opportunity to show cause. ___Except as otherwise provided, no officer, Teacher or employee of the University holding a permanent post shall be reduced in Rank, or removed or compulsorily retired from service, unless he or she has been given a reasonable opportunity of showing cause against the action proposed to be taken.
