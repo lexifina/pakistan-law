@@ -1,0 +1,1 @@
+15. Directives of the Federal Government. The Federal Government may from time to time, issue to the Institute such directives and orders as it may consider necessary to guide the functions of the Institute and the Institute shall be bound to comply with or carry out such directives and orders.

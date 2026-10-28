@@ -1,0 +1,1 @@
+18. Declaration of fidelity and decrecy. Every member of the Governing Body and every officer, employee, consultant or expert of the Institute shall make such declaration of fidelity and secrecy as may be prescribed by rules made under this Ordinance.

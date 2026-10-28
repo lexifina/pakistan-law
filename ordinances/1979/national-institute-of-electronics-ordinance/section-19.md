@@ -1,0 +1,2 @@
+19. Power to make rules and regulations.―(1) The Federal Government may, by notification in the official Gazette, make rules for carrying out the purposes of this Ordinance.
+(2) The Institute may, with the prior sanction of the Federal Government make such regulations not inconsistent with this Ordinance or the rules made thereunder as may in its opinion be necessary or expedient for the achievement of its aims and objects or for the performance of its functions.
