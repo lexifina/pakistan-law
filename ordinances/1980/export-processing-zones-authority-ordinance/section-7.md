@@ -1,0 +1,2 @@
+7. Duties and functions of Chairman and Members.—(1) The Chairman and members shall discharge such duties and perform such functions as are assigned to them under this Ordinance or by the Federal Government.
+(2) Until the Board is duly constituted, the Chairman shall, subject to such directions as the Federal Government may, from time to time, give, exercise the powers, discharge the duties and perform the functions of the Board.

@@ -1,0 +1,2 @@
+14. Acquisition of Land.—(1) Where any land or interest in any land within any Zone is required by the Authority for any of its purposes, that land or interest shall be acquired under the Land Acquisition Act, 1894 (I of 1894), by the Provincial Government concerned at the request of the Authority.
+(2) The acquisition of land or interest therein shall, for the purposes of the Land Acquisition Act, 1894 (I of 1894), be deemed to be required for a public purpose.

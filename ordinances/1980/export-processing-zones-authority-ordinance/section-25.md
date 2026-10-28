@@ -1,0 +1,1 @@
+25. Power to exempt.—The Federal Government may, by notification in the official Gazette, exempt any Zone from the operation of all or any of the provisions of any law for the time being in force which relates to any matter within the legislative competence of Parliament.

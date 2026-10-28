@@ -1,0 +1,3 @@
+11. Sanctioning of industries, etc.—(1) The Authority may, with the approval of the Federal Government, frame schemes and lay down procedure in respect of sanctioning the establishment and operation of industries in the Zones.
+(2) Any industry sanctioned under sub-section (1) shall operate subject to such terms and conditions as may be enunciated in the letter of sanction issued by the Authority.
+(3) The materials and manufactured goods shall not be exported from the Zones into the tariff area except to the extent and in the manner to be specified by the Authority in each case with the prior approval of the Federal Government.
