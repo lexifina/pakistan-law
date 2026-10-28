@@ -1,0 +1,1 @@
+10. Code of Civil Procedure and Qanun-e-Shahadat Order to apply.— The Code of Civil Procedure, 1908 (Act No.V of 1908) and the Qanun-e-Shahadat, 1984 (P.O. No 10 of 1984) shall mutatis mutandis, apply to the proceedings under this Ordinance

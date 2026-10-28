@@ -1,0 +1,1 @@
+7. Qualified privilege.— Any fair and accurate publication of parliamentary proceedings, or judicial proceedings which the public may attend and statements made to the proper authorities in order to procure the redress of public grievances shall have the protection of qualified privileges.
