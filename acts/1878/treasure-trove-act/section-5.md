@@ -1,0 +1,5 @@
+5. Notification requiring claimants to appear. On receiving a notice under section 4, the collector shall after making such enquiry (if any) as he thinks fit, take the following steps (namely):-
+(a) he shall publish a notification in such manner as the [^5][Provincial Government] from time to time prescribes in this behalf, to the effect that on a certain date (mentioning it) certain treasure (mentioning its nature, amount and approximate value) was found in a certain place (mentioning it); and requiring all persons claiming the treasure, or any part thereof, to appear personally or by agent before the Collector on a day and at a place therein mentioned, such day not being earlier than four months, or later than six months, after the date of the publication of such notification;
+(b) when the place in which the treasure appears to the Collector to have been found was at the date of the finding in the possession of some person other than the finder, the Collector shall also serve on such person a special notice in writing to the same effect.
+
+[^5]: Subs. by A. O., 1937, for “L. G.”.
