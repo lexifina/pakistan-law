@@ -1,0 +1,1 @@
+8. Joining of duty by sacked employees.__ Sacked employee shall resume his duties within ninety days of the letter issued for his re-instatement or the day the sacked employee stands re-instated under the provisions of this Act

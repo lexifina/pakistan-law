@@ -1,0 +1,2 @@
+11. Sacked employees dismissed, removed or terminated from service on account of
+absence from duty or misconduct or mis-appropriation of Government money or stock or unfitness on medical ground. A sacked employee, who was dismissed or removed or terminated from service on account of absence from duty or misconduct or any form of mis-appropriation of Government money or stock or his unfitness on medical grounds, may prefer a petition to the Sacked Employees' Review Board as provided in section 13.
