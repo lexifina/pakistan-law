@@ -1,0 +1,2 @@
+15. Procedure.—(1) Save as otherwise expressly provided by or under this Ordinance, the provisions of the Evidence Act, 1892 (I of 1892), the Code of Criminal Procedure, 1898 (Act V of 1898), and of the Code of Civil Procedure, 1908 (Act V of 1908), shall not apply to proceedings before any Conciliation Court.
+(2) Sections 8 to 11 of the Oaths Act, 1873 (X of 1873), shall apply to all proceedings before Conciliation Courts.

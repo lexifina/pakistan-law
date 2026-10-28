@@ -1,0 +1,1 @@
+20. Power to exempt. Government may, by notification in the official Gazette, exempt any area or areas, or any case or class of cases, or any community from the operation of all or any of the provisions of this Ordinance.

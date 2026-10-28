@@ -1,0 +1,5 @@
+7. Power of Conciliation courts to wards compensation.—(1) Save as otherwise provided in this Ordinance, a Conciliation Court shall have no power to pass a sentence of imprisonment or fine, but if it holds a person guilty of an offence specified in the Schedule, it may order the accused to pay to the aggrieved person compensation the amount of which may not exceed [^18][five hundred] rupees, but if the offence is one punishable under section 428 or section 429 of the Pakistan Penal Code (Act XLV of 1860), the amount of compensation may exceed [^18][five hundred] rupees but not [^19][one thousand] rupees.
+(2) In a case relating to a matter falling under Section B of Part I of the Schedule or under Section B of Part II thereof, the Conciliation Court shall have the power to order payment of money up to the amount specified therein in respect of such matter or delivery of property to the person entitled thereto.
+
+[^18]: Subs. ibid s. 7, for “two hundred and fifty”.
+[^19]: Subs. ibid., for “five hundred”.

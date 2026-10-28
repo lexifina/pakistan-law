@@ -1,0 +1,1 @@
+18. Investigation by police. Nothing in this Ordinance shall prevent the police from investigating a cognizable case by reason of the fact that the case relates to an offence specified in Section A of Part I of the Schedule, but if any such case is taken to a criminal Court such Court may, if it thinks fit, direct that it be referred to conciliation under this Ordinance.

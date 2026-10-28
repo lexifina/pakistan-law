@@ -1,0 +1,5 @@
+13. Recovery of fine.—(1) Where a Conciliation Court imposes a fine under section 11 or section 12 and such fine is not immediately paid, it shall record an order stating the amount of fine imposed and the fact that it has not been paid, and shall forward the same to the nearest Judicial Magistrate who shall proceed to recover it in accordance with the provisions of the Code of Criminal Procedure, 1898 (Act V of 1898), as if it were a fine imposed by himself, and such Magistrate may also sentence the accused to imprisonment in default of payment of such fine.
+(2) All fines paid to a Conciliation Court under sections 11 and 12, or collected on behalf of a Conciliation Court under this section, shall form part of the funds of the 1[local council] concerned.
+[^23][Explanation.—In this sub-section, “local council” means a Union Council, Town Committee, Municipal Corporation, Municipal Committee, Metropolitan Corporation or, as the case may be, Cantonment Board constituted under a law relating to local government.]
+
+[^23]: Explanation added ibid.
