@@ -1,0 +1,1 @@
+21. Discoveries and inventions to vest in the Institute:___ All rights relating to discoveries and inventions and any improvements in materials, methods, processes, apparatus or equipment made by any officer or employee of the Institute in the course of his employment shall vest in the Institute and the researchers as per rules.

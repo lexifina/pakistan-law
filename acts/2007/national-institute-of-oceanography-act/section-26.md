@@ -1,0 +1,1 @@
+26. Exemption from taxes:___ Notwithstanding anything contained in the Income Tax Ordinance, 2001 (XLIX of 2001 ), Or any other law for the time being in force relating to income tax, the Institute shall not be liable to pay any such tax on its, income, capital profit, wealth, gifts or gains.

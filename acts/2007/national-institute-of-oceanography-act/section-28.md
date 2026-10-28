@@ -1,0 +1,1 @@
+28. Removal of difficulties:___ If any difficulty arises in giving effect to any provision of this Act; the Government may make such order, not inconsistent with the provision of this Act, as may appear to it to be necessary or expedient for this purpose of removing the difficulty.

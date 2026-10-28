@@ -1,0 +1,1 @@
+27. Ordinance XCI of 2002, not to apply the Institute:___ Nothing contained in the Industrial Relational Ordinance, 2002 (XCI of 2002), shall apply to or in relation to the institute or any of the officers, advisers and employees appointed by it.

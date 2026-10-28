@@ -1,0 +1,1 @@
+18. Delegation of powers:___ The Board may, by general or special order in writing, direct that such of its powers shall, in such circumstances and under such conditions, as may be specified in the order, be exercised, by the Chairman, Executive Committee, or a member or officer of the Institute.

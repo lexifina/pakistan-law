@@ -1,0 +1,1 @@
+6. Board of Governors:___ The Board of Governors shall have the general control and superintendence of the affairs of the Institute and shall exercise all powers and perform all functions of the Institute.

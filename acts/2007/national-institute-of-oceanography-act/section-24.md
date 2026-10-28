@@ -1,0 +1,1 @@
+24. Winding up:___ No provision of law relating to the winding up of bodies corporate shall apply to the Institute and the Institute shall not be wound up except by order of the Government and in such manner as the Government may direct.
