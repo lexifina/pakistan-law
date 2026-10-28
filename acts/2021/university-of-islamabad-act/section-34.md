@@ -1,0 +1,5 @@
+34. Service of the University.—(1) All persons employed by the University in accordance with the terms and conditions of service prescribed by relevant statutes shall be persons in the service of University.
+(2) An officer, teacher or other employee of the University shall retire from service on the attainment of such age or tenure of service as may be prescribed in the statutes in accordance with the provisions of employment contract prescribed.
+(3) No adverse change shall be made in the terms and conditions of employment of any University employee in the employment of the University on the date of enforcement of the Act.
+35. Benefits and insurance.—(1) The University shall constitute for the benefit of its officers, teachers and other employees schemes, as may be prescribed, for the provision of post–employment benefits as well as health and life insurance while in service.
+(2) Where any provident fund or gratuity scheme has been constituted under this Act, its governing rules shall be approved by the Board of Governors.

@@ -1,0 +1,1 @@
+42. Management of Existing Colleges or Institutes.—On the commencement of this Act, colleges/ institutes established by the Foundation for the Advancement of Innovation, Research and Education (FAIRE) shall become constituent institutions of the University of Islamabad (UOI) and their earlier affiliation if any with any other University shall cease accordingly.
