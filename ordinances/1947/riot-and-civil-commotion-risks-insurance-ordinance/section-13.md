@@ -1,0 +1,5 @@
+13. Refund of premiums in certain cases.___(1) Where property of any description has been insured by an owner for any period, and before that period has elapsed property of that description has ceased, by virtue of a notification under sub-section (2) of section 3, to be property insurable under this Ordinance, the person who has insured such property shall be entitled to a proportionate refund of premium.
+(2) In any other case the [^8][Federal Government] may, at its discretion, order a refund to be made of any sum paid or purporting to have been paid as premium in respect of any policy issued or purporting to have been issued under this Ordinance.
+(3) On and after the eighth day of November, 1947, no suit shall be maintainable in any civil court against the [^8][Federal Government] or a person acting as agent of the [^8][Federal Government] under section 7 for the refund of money paid or purporting to have been paid as premium in respect of any policy issued or purporting to have been issued under this Ordinance.
+
+[^8]: Subs. by the Federal Adaptation of Laws Order, 1975 (P. O. 4 of 1975), and Table.

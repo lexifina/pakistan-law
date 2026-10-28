@@ -1,0 +1,6 @@
+4. Ownership.___Save in so far as is otherwise expressly provided in this Ordinance, any property shall, subject to the provisions of this section, be deemed for the purposes of this Ordinance, to be owned___
+(a) if the ownership of the property is for the time being vested in a person in relation to whom the property is insurable under this Ordinance, by that person;
+(b) if the ownership of the property is not so vested, by any person in relation to whom the property is insurable under this Ordinance and who is for the time being entitled either unconditionally or conditionally, to have the ownership of the property vested in him :
+Provided that where___
+(i) any property would, under the foregoing provisions of this sub-section, be deemed to be owned by a person in whom the property therein is vested otherwise than in the course of a business carried on by him in the Province, or who is entitled to have the ownership of the property vested in him otherwise than in the course of such a business, and
+(ii) any person carrying on business in the Province is for the time being entitled to sell the property as agent, the property shall be deemed to be owned by the last mentioned person.
