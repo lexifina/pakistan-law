@@ -1,0 +1,1 @@
+19. Act, etc., to override other laws. ___The provisions of this Act or any rule or order made thereunder shall have effect notwithstanding anything inconsistent therewith contained in any enactment other than this Act or any instrument having effect by virtue of any enactment other than this Act.

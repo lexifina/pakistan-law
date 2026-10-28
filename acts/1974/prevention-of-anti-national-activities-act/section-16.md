@@ -1,0 +1,1 @@
+16. Prosecution for offences under this Act.—No court shall take cognizance of any offence punishable under this Act except with the previous sanction of the Federal Government or a Provincial Government or an officer authorised by either Government in this behalf.
