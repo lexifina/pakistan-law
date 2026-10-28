@@ -1,0 +1,1 @@
+4. Definition. In the Schedule the expression “recognised Chamber of Commerce” means a Chamber of Commerce recognised by the Government of its country as being competent to issue certificates of origin, and includes any other association similarly recognised.
