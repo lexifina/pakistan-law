@@ -1,0 +1,1 @@
+42. Removal of difficulties.—If any difficulty arises in giving effect toany provision of this Act, the Chancellor may make such order or direction, not inconsistent, with the provisions of this Act, as may appear to him to be necessaryfor the purpose of removing such difficulty.

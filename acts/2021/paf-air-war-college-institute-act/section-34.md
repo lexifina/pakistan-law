@@ -1,0 +1,5 @@
+34. Service of the Institute.— (1) All persons employed by the Institute in accordance with the terms and conditions of service prescribed by statutes shall be persons in the service of Pakistan for the purposes of any court or tribunal set up by law in terms of Article 212 of the Constitution of the Islamic Republic of Pakistan:
+Provided that any provision as regards the terms and the conditions of the employment of persons in the service of Pakistan in general or in comparable employment, notwithstanding the service of persons employed by the Institute, shall be entirely governed by the terms and conditions prescribed by the relevant statutes.
+(2) An officer, teacher or other employee of the Institute shall retire from service on the attainment of such age or term of service as may be prescribed.
+(3) The terms and conditions of employment of any Institute teacher in the employment of the Institute shall not be varied to his disadvantage from the commencement of this Act.
+(4) Persons above the age of superannuation may be re-employed on contract in the manner prescribed by the Senate, in conformity with the Government rules and regulations.

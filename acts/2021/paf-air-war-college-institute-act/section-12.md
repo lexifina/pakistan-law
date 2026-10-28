@@ -1,0 +1,2 @@
+12. Vacancy of the office of the President.—(1) Whenever the office of the President falls vacant, or is likely to fall vacant, the Chancellor shall appoint a suitable officer for appointment as the President.
+(2) At any time when the office of the President is vacant, or the President is absent or is unable to perform the functions of his office due to illness or some other cause, the Senate shall make arrangements in accordance with the statutes for the performance of the duties of the President.

@@ -1,0 +1,8 @@
+8. The Patron.—(1) The President of the Islamic Republic of Pakistan shall be the Patron of the Institute.
+(2)The Patron shall, when present, preside at the meetings of the Senate and the convocation of the Institute. In the absence of Patron, the Chancellor shall preside over the convocation of the Institute.
+(3) The members of the Senate shall be appointed by the Patron from amongst the persons recommended by the Representation Committee set up for this purpose in accordance with sub-section (1) of section 24 along with those elected.
+(4)Every proposal to confer an honorary degree shall be subject to confirmation by the Patron.
+(5)If the Patron is satisfied that a serious irregularity or mismanagement with respect to the affairs of the Institute has occurred, he may—
+(a) as regards proceedings of the Senate, direct that specified proceedings be reconsidered and appropriate action taken within one month of the direction having been issued:
+Provided that if the Patron is satisfied that either no reconsideration has been carried out or that the reconsideration has failed to address the concern expressed, he may, after calling upon the Senate to show cause in writing, appoint a five member review panel to examine and report to the Patron on the functioning of the Senate. The report of the review panel shall be submitted within such time as may be specified by the Patron. The review panel shall be drawn from persons of eminence in academics and in the fields of defence and security, law, accountancy and administration; and
+(b) as regards proceedings of any Authority or with respect to matters within the competence of any Authority, other than the Senate, direct the Senate to exercise powers under section 18.
