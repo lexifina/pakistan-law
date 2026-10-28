@@ -1,0 +1,13 @@
+19. Opposition to protection. — (1) At any time, within four months from the date of advertisement of an application under section 18, any person may give notice in writing and with documentary evidence to the Registrar of opposition to the grant of rights, on payment of the prescribed fee and on any of the following grounds, namely;—
+(a) that the person opposing the application is entitled to the rights for the new variety as against the applicant;
+(b) that the variety is not protectable within the meaning of this Act;
+(c) that the grant of a certificate may not be in the public interest or against public order; or
+(d) that the variety may have adverse effects on the environment, human, animal or plant health.
+(2) Where a notice is given under sub-section (1), the Registrar shall give a notice of the opposition to the applicant, along with a copy of such notice of opposition, within two months from the receipt of the notice of opposition and the applicant shall send within two months of the receipt of this notice of opposition to the Registrar a counter statement of the grounds on which he relies for his application, and if he does not do so, he shall be deemed to have abandoned his application.
+(3) If the applicant sends such a counter statement, the Registrar shall serve a copy thereof on the person giving notice of opposition.
+(4) Any evidence upon which the opponent and the applicant may rely shall be submitted in the manner prescribed and within the time prescribed, to the Registrar and the Registrar shall give to the applicant and the opponent an opportunity of being heard.
+(5) The Registrar shall, after hearing the applicant and the opponent, and after due consideration of the evidence decide whether and subject to what conditions or limitations, if any, the right to be granted.
+(6) Where a person giving notice of opposition or an applicant sending a counter statement after receipt of a copy of such notice neither resides nor carries on business in Pakistan, the Registrar may require him to give security for the costs of proceedings before him and in default of such security being given may treat the opposition or application, as the case may be, as abandoned.
+(7) The Registrar may, on request, permit correction of any error in, or any amendment of, a notice of opposition or a counter statement on such terms as he may think fit.
+(8) The Registrar shall consider all the grounds on which the application has been opposed and after giving reasons thereof, by order, uphold or reject the opposition.
+(9) When a new plant variety is protected by the Registrar, he shall issue a certificate in terms of section 24.

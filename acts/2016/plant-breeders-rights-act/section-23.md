@@ -1,0 +1,1 @@
+23. Provisional protection.— For the period between the filing of the application and the grant of a certificate, the owner of the certificate shall be entitled to equitable remuneration from any person who, during the said period, which once the certificate was issued, would fall within owner's rights to exclude others under section 22.

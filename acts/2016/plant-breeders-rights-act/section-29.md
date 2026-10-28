@@ -1,0 +1,2 @@
+29. Payment of annual fee and forfeiture of certificate in default thereof. — (1) The Federal Government may prescribe a fee to be paid annually by every owner of a certificate under this Act subject to such conditions and procedures as may be prescribed.
+(2) If the owner of the certificate fails to pay the fee as under sub-section (1), the Registrar may forfeit the certificate in the manner as may be prescribed.

@@ -1,0 +1,1 @@
+47. Determination and collection of fee.— The Federal Government may, by notification in the official Gazette, prescribe a schedule of fee and charges for services rendered to the applicants and the public under this Act and any fee or amount collected shall be deposited in the manner as may be prescribed.

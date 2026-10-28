@@ -1,0 +1,1 @@
+24. Term of the certificate. Subject to section 29, the term of the certificate shall be twenty-five years in the case of trees and vines and twenty years in the case of all other plants from the date of filing of the application.
