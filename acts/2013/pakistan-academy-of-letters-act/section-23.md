@@ -1,0 +1,1 @@
+23. Removal of difficulties.—If any difficulty arises in giving effect to any of the provisions of this Act, the Federal Government may, for the purpose of removing such difficulty, make such order, not inconsistent with the provisions of this Act, as it may consider expedient and any such order shall be deemed to be, and given effect to, as a part of the provisions of this Act.

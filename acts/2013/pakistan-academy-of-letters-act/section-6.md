@@ -1,0 +1,1 @@
+6. Delegation of powers.___ The Board may, by general or special orders in writing subject to such limitations, restrictions or conditions, delegate all or any of its powers and functions to the Chairman of the Academy or Director-General of the Academy.
