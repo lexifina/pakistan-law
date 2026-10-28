@@ -1,0 +1,1 @@
+7. Officers to be attached to regular units for training. An officer of the Junior Cadet Corps shall be liable, under the orders of the officer commanding the local military formation being not below the rank of brigadier, to be attached to a unit of the regular army for undergoing the military training prescribed for his class.

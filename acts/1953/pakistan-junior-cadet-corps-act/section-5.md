@@ -1,0 +1,4 @@
+5. Certain students to be deemed to be enrolled.___(1) On the constitution of a company under sub-section (1) of section 4, every student of the class concerned who,___
+(i) is above thirteen years of age, at the commencement of the academic year, or by the first day of April of that year, and
+(ii) is certified on examination by an officer of the Pakistan Army Medical Corps to be physically fit to undergo the prescribed military training, shall be deemed to have been enrolled as a cadet in that company.
+(2) A student who is deemed to be enrolled as a cadet in a company under sub-section (1) shall not cease to belong to that company, until he passes out of or otherwise leaves, the class for which the company was constituted, or is duly certified by an officer of the Pakistan Army Medical Corps to have become physically unfit to undergo further military training.
