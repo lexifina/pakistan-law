@@ -1,0 +1,3 @@
+25. Computation of time mentioned in instruments. All instruments shall, for the purposes of this Act, be deemed to be made with reference to the Gregorian calendar. Illustrations
+(a) A Hindu makes a promissory note bearing a Native date only, and payable four months after date. The period of limitation applicable to a suit on the note runs from the expiration of four months after date computed according to the Gregorian calendar.
+(b) A Hindu makes a bond, bearing a Native date only, for the repayment of money within one year. The period of limitation applicable to a suit on the bond runs from the expiration of one year after date computed according to the Gregorian calendar.

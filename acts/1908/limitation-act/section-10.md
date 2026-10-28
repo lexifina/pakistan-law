@@ -1,0 +1,4 @@
+10. Suits against express trustees and their representatives. Notwithstanding anything hereinbefore contained, no suit against a person in whom property has become vested in trust for any specific purpose, or against his legal representatives or assigns (not being assigns for valuable consideration), for the purpose of following in his or their hands such property or the proceeds thereof, or for an account of such property or proceeds shall be barred by any length of time.
+[^14][For the purposes of this section any property comprised in a Hindu, Muhammadan or Buddhist religious or charitable endowment shall be deemed to be property vested in trust for a specific purpose, and the manager of any such property shall be deemed to be the trustee thereof.]
+
+[^14]: Ins. by the Indian Limitation (Amdt.) Act, 1929 ( 1 of 1929),s. 2.

@@ -1,0 +1,2 @@
+22. Effect of substituting or adding new plaintiff or defendant. (1) Where, after the institution of a suit, a new plaintiff or defendant is substituted or added, the suit shall, as regards him, be deemed to have been instituted when he was so made a party.
+(2) Nothing in sub-section (1) shall apply to a case where a party is added or substituted owing to an assignment or devolution of any interest during the pendency of a suit or where a plaintiff is made a defendant or a defendant is made a plaintiff.

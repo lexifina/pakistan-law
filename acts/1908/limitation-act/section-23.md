@@ -1,0 +1,1 @@
+23. Continuing breaches and wrongs. In the case of a continuing breach of contract and in the case of a continuing wrong independent of contract, a fresh period of limitation begins to run at every moment of the time during which the breach or the wrong, as the case may be, continues.
