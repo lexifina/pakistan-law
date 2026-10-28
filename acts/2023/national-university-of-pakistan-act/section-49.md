@@ -1,0 +1,1 @@
+49. lndemnity.—No suit or legal proceedings shall lie against the Government, the University or any Authority, officer or employee of the Government or the University or any person in respect of any thing which is done or deemed to have been done in good faith under this Act,

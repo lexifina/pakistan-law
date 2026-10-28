@@ -1,0 +1,12 @@
+21. Director, office of research, innovation and commercialization. — (l) There shall be a Director office of research, innovation and commercialization (ORIC) of the University to be appointed by the Board on recommendation of selection board on such terms and conditions as may be prescribed.
+(2) The minimum experience as well as the professional and academic qualifications necessary for appointment to the post of Director (ORIC), shall be such as may be prescribed.
+(3) The Director (ORIC) shall be a full-time officer of the University and shall—
+(a) manage and enhance research activities of the University, develop research policies and priorities work for fund raising for research, mobilize faculty, business community and industry for research commercialization and serve as an effective advocate for research with the University and to its broader community of stakeholders and supporters;
+(b) supervise all aspects of the operation of the office for research including research administration (budgeting, auditing, accounting human resources, management and maintenance of facilities and equipment, implementation of research contracts and human resources);
+(c) develope programs and activities that will increase funding for research from all public and private sources, establish and.maintain excellent relationships with donors and private sources, oversee proposals for development and submission thereof;
+(d) promote development of public-private partnerships in support of University research, link the University's research community with needs and priorities of corporate sector, develope opportunities for applied search and explore opportunities for technology transfer and commercialization of University research, including incubators and research parks;
+(e) be responsible to monetize royalty streams from licences;
+(f) collaborate with principal liaison for technical marking and licensing on commercialization of the University's intellectual property (IP) in coordination with other relevant departments and offices; and
+(g) work in close liaison with the office of research and development, planning and development and University's technology park.
+(4) The Director (ORIC) shall hold office for renewable terms of three years.
+(5) The Board may, on recommendations and advice of the Rector, remove the Director (ORIC) on grounds of inefficiency or misconduct in accordance with the prescribed procedure.

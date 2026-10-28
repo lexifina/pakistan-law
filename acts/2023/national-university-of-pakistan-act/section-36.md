@@ -1,0 +1,1 @@
+36. Amendment and repeal of statutes and regulations.—The procedure for adding to, amending or repealing the statutes and regulations shall be the same as that prescribed respectively for making statutes and regulations.

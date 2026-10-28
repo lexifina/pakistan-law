@@ -1,0 +1,8 @@
+## CHAPTER-II
+## THE UNIVERSITY
+3. Establishment of the University.—(1) On commencement and in accordance with the provisions of this Act, there stands established a University to be called the National University of Pakistan.
+(2) The principal seat of the University shall be at Islamabad and it may set up its campuses in Pakistan and abroad as the Board may deem fit.
+(3) The University shall be a body corporate having perpetual succession and a common seal with powers, subject to the provisions of this Act, to acquire, transfer, hold and dispose of movable or immovable property and shall, by the said name, sue and be sued.
+(4) Notwithstanding anything contained in any other law for the time being in force, the University shall have academic, financial and administrative autonomy, including the power to employ officers, teachers and other employees on such terms and conditions as may be prescribed, subject to the provisions of this Act and rules, regulation and policies prescribed under the Higher
+Education Commission Ordinance, 2002 (LIII of 2002). In particular, and without prejudice to the authority granted to the Commission by the law, the Government or an authority or auditor appointed by the Government shall have no power to question the policy underlying the allocatiom of resources approved by the Board in 'the annual budget of the University.
+(5) The existing degree colleges operating under umbrella of FGEI (C/G) Directorate across Pakistan and their degree programmes shall stand affiliated with the University, subject to fulfilment of all legal and codal formalities, as may be prescribed.
