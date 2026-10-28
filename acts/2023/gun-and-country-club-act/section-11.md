@@ -1,0 +1,1 @@
+11. Employment of Officers and Staff.___(1) The Administrator may employ such officers and staff or appoint such experts from time to time as he may consider necessary for the performance of functions of the Club, on such terms and conditions as may be prescribed.
