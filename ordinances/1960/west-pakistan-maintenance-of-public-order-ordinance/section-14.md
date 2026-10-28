@@ -1,0 +1,1 @@
+14. Abetment of offences. Whoever abets the commission of an offence punishable under this Ordinance shall, whether the act abetted is or is not committed in consequence of the abetment, be punished with the punishment provided for the offence.

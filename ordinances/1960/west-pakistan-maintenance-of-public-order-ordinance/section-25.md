@@ -1,0 +1,1 @@
+25. Operation of other penal laws not barred. Nothing contained in this Ordinance shall be deemed to prevent any person from being prosecuted under any other law for any act or omission which constitutes an offence punishable under this Ordinance.

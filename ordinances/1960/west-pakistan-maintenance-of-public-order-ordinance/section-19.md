@@ -1,0 +1,1 @@
+19. Tampering with public servants. Whoever induces or attempts to induce any public servant or any servant of local authority to disregard or fail in his duties as such servant shall be punished with imprisonment which may extend to one year, or with fine, or with both.
