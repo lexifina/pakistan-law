@@ -1,0 +1,1 @@
+14. Committees. —The Governing Body and the Executive Board may constitute such committees and assign to them such functions as may be necessary for efficient performance of their respective functions.

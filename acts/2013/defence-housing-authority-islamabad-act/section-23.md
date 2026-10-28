@@ -1,0 +1,1 @@
+23. Appeal. —Any person aggrieved by an order of cancellation under Section 17, or imposition of fine under section 18, or an order under section 19, or an order of the Executive Board under section 22 may, within 15 days of the communication of the order, file an appeal before the Governing Body, whose decision shall be final.

@@ -1,0 +1,1 @@
+25. Removal of difficulty. —If any difficulty arises in giving effect to any provision of this Act, the Government may, within one year of the commencement of this Act, give such directions, not inconsistent with the provisions of the Act, as it may consider necessary for the removal of such difficulty.
