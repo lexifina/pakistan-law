@@ -1,0 +1,5 @@
+3. Powers to make declaration in respect of certain persons having disappeared
+subsequent to 1945. ___(1) Where in pursuance of any international agreement, convention or other instrument it is necessary or permissible to make a declaration of death in respect of persons having disappeared subsequent to 1945 under circumstances similar to those mentioned in the provisions set out in the Schedule to this Act, the [^1][Federal Government] may, by notification in the official Gazette, declare that the said provisions or such of them as it may deem necessary or convenient for giving effect to the said agreement, convention or other instrument, shall apply with such adaptations as may be necessary to the persons specified in the notification, and thereupon the said provisions shall apply accordingly and notwithstanding anything to the contrary contained in any other law for the time being in force, shall in such application have the force of law in Pakistan.
+(2) The persons to be specified in the notification as aforesaid may be specified in such manner as the 2[Federal Government] may think fit.
+
+[^1]: Subs. by F.A.O., 1975, Art. 2 and Table.
