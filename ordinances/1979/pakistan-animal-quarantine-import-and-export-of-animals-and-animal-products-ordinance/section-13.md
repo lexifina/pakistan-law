@@ -1,0 +1,1 @@
+13. Delegation of powers. The Federal Government may, by notification in the official Gazette, delegate to a Provincial Government, or to any officer or authority of such Government, any of its powers under this Ordinance.
