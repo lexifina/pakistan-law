@@ -1,0 +1,4 @@
+30. Obligation to give receipt in certain cases.— Any person receiving any money exceeding twenty rupees in amount, or any bill of exchange, cheque or promissory note for an amount exceeding twenty rupees, or receiving in satisfaction or part satisfaction of a debt any moveable property exceeding twenty rupees in value, shall, on demand by the person paying or delivering such money, bill, cheque, note or property, give a duly stamped receipt for the same.
+[^53][Any person receiving or taking credit for any premium or consideration for any renewal of any contract of fire-insurance, shall, within one month after receiving or taking credit for such premium or consideration, give a duly stamped receipt for the same:]
+
+[^53]: Ins. by the Indian Stamp (Amdt.) Act, 1906 (Act No. V of 1906), s. 4, for the original cl. (b).

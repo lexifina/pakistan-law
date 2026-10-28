@@ -1,0 +1,1 @@
+34. Special provision as to unstamped receipts.— Where any receipt chargeable with a duty of one anna is tendered to or produced before any officer unstamped in the course of the audit of any public account, such officer may in his discretion, instead of impounding the instrument, require a duly stamped receipt to be substituted therefor.

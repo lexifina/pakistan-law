@@ -1,0 +1,8 @@
+42. Endorsement of instruments on which duty has been paid under section 35, 40 or
+41.—(1) When the duty and penalty (if any) leviable in respect of any instrument have been paid under section 35, section 40 or section 41, the person admitting such instrument in evidence or the Collector, as the case may be, shall certify by endorsement thereon that the proper duty or, as the case may be, the proper duty and penalty (stating the amount of each) have been levied in respect thereof, and the name and residence of the person paying them.
+(2) Every instrument so endorsed shall thereupon be admissible in evidence, and may be registered and acted upon and authenticated as if it had been duly stamped, and shall be delivered on his application in this behalf to the person from whose possession it came into the hands of the officer impounding it, or as such person may direct:
+Provided that—
+(a) no instrument which has been admitted in evidence upon payment of duty and a penalty under section 35, shall be so delivered before the expiration of one month from the date of such impounding, or if the Collector has certified that its further detention is necessary and has not cancelled such certificate;
+(b) nothing in this section shall affect the[^71][provisions of rule 9 of Order XIII of the First Schedule to the Code of Civil Procedure. 1908 (Act V of 1908)].
+
+[^71]: Subs. by the Federal Laws (Revision and Declaration) Ordinance, 1981 (Ordinance No. XXVII of 1981;, s. 5 and Sch. Sch. IV (Only to the extent of Islamabad Capital Territory;, for “Code of Civil Procedure, section 144, clause 3”.

@@ -1,0 +1,6 @@
+51. Allowance in case of printed forms no longer required by Corporations.— The [^84][ Chief Revenue Authority] [^85][ or the Collector if empowered by the [^84][ Chief Revenue Authority] in this behalf] may, without limit of time, make allowance for stamped papers used for printed forms of instruments [^86][by any banker or] by any incorporated company or other body corporate, if for any sufficient reason such forms have ceased to be required by the said [^87][banker,] company or body corporate: provided that such authority is satisfied that the duty in respect of such stamped papers has been duly paid.
+
+[^84]: Subs, by A.O., 1961, Art. 2 and Sch., for “Chief Controlling Revenue authority” (with effect from the 23rd March, 1956). For definition, see the General Clauses Act, 1897 (Act No. X of 1897), s. 3 (9a). In the N.W.F.P., the reference to the Chief Controlling Revenue- authority should be construed as a reference to the Revenue Commissioner.- See the N.W.F.P. Law and Justice Regulation, 1901 (VII of 1901), s. 6 (1) (d).
+[^85]: Ins. by the Decentralization Act, 1914 (Act No. IV of 1914), s. 2 and Sch., Part I.
+[^86]: Ins. by the Indian Stamp (Amendment) Act, 1906 (Act No. V of 1906), s. 6.
+[^87]: Ins. by the Indian Stamp (Amdt.) Act, 1906 (Act No. V of 1906), s. 6.

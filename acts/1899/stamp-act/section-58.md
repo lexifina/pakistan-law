@@ -1,0 +1,3 @@
+58. Power of High Court to call for further particulars as to case stated.— If the High Court [^92][* * *] is not satisfied that the statements contained in the case are sufficient to enable it to determine the questions raised thereby, the Court may refer the case back to the Revenue-authority by which it was stated, to make such additions thereto or alterations therein as the Court may direct in that behalf.
+
+[^92]: The word “or Chief Court”, as amended by A.O., 1937. A.O., 1949 and Act 26 of 1951, have been omitted by Ord. XXI of 1960, s. 3 and 2nd Sch., (with effect from the 14th October, 1955).

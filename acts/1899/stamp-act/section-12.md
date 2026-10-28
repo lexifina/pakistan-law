@@ -1,0 +1,4 @@
+12. Cancellation of adhesive stamps.— (1) (a) Whoever affixes any adhesive stamp to any instrument chargeable with duty which has been executed by any person shall, when affixing such stamp, cancel the same so that it cannot he used again; and
+(b) whoever executes any instrument on any paper bearing an adhesive stamp shall, at the time of execution, unless such stamp has been already cancelled in manner aforesaid, cancel the same so that it cannot be used again.
+(2) Any instrument bearing an adhesive stamp which has not been cancelled so that it cannot be used again, shall, so far as such stamp is concerned, be deemed to be unstamped.
+(3) The person required by sub-section (1) to cancel an adhesive stamp may cancel it by writing on or across the stamp his name or initials or the name or initials of his firm with the true date of his so writing, or in any other effectual manner.

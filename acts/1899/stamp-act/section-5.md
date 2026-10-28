@@ -1,0 +1,1 @@
+5. Instruments relating to several distinct matters.— Any instrument comprising or relating to several distinct matters shall be chargeable with the aggregate amount of the duties with which separate instruments, each comprising or relating to one of such matters, would be chargeable under this Act.

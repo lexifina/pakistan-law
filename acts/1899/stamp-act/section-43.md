@@ -1,0 +1,2 @@
+43. Prosecution for offence against Stamp-law.— The taking of proceedings or the payment of a penalty under this Chapter in respect of any instrument shall not bar the prosecution of any person who appears to have committed an offence against the Stamp-law in respect of such instrument:
+Provided that no such prosecution shall be instituted in the case of any instrument in respect of which such a penalty has been paid, unless it appears to the Collector that the offence was committed with an intention of evading payment of the proper duty.

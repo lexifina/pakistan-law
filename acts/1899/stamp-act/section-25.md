@@ -1,0 +1,5 @@
+25. Valuation in case of annuity, etc.— Where an instrument is executed to secure the payment of an annuity or other sum payable periodically, or where the consideration for a conveyance is an annuity or other sum payable periodically, the amount secured by such instrument or the consideration for such conveyance, as the case may be, shall, for the purposes of this Act, be deemed to be,—
+(a) where the sum is payable for a definite period so that the total amount to be
+paid can be previously ascertained-such total amount;
+(b) where the sum is payable in perpetuity or for an indefinite time not terminable with any life in being at the date of such instrument or conveyance the total amount which, according to the terms of such instrument or conveyance, will or may be payable during the period of twenty years calculated from the date on which the first payment becomes due; and
+(c) where the sum is payable for an indefinite time terminable with any life in being at the date of such instrument or conveyance the maximum amount which will or may be payable as aforesaid during the period of twelve years calculated from the date on which the first payment becomes due.

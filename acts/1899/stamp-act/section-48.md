@@ -1,0 +1,1 @@
+48. Recovery of duties and penalties.— All duties, penalties and other sums required to be paid under this Chapter may be recovered by the Collector by distress and sale of the moveable property of the person from whom the same are due, or by any other process for the time being in force for the recovery of arrears of land-revenue.
