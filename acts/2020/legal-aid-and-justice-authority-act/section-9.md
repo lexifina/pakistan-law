@@ -1,0 +1,8 @@
+9. Provision of legal aid, financial or other assistance in criminal matters.—(1) The Authority shall make appropriate arrangements for the provision of legal aid, financial or other assistance to an applicant who is charged with a criminal offence and is unable to afford legal, financial or other assistance, representation and access to justice, in such manner and to such extent as may be prescribed.
+(2) The person seeking legal aid, financial or other assistance shall apply to the Authority, in the prescribed manner.
+(3) The application for purposes of sub-section (2) shall be supported by an affidavit sworn by the applicant and such other documents as may be prescribed. In case of minors or lunatics or persons of unsound mind, the requirement of an application and affidavit shall not be applicable.
+(4) The eligibility of the applicant shall be assessed in the manner and according to eligibility criteria as may be prescribed.
+(5) In prescribing the criteria for and in extending the legal, financial or other assistance, preference shall be given to disadvantaged women and children, especially in relation to matters of sexual offences.
+(6) For the purposes of assessing the means of the applicant, the Authority may in appropriate cases make such enquiries as it considers necessary into the means of the applicant and may direct any officer to enquire into and report thereon.
+(7) A report to the Authority under sub-section (6) shall be made available to the applicant who shall be allowed, if he so desires, to make his observation on the report.
+(8) The Authority shall decide the application of the applicant within seven days of receipt thereof.

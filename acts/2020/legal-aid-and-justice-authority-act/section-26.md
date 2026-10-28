@@ -1,0 +1,2 @@
+26. Repeal and savings.—(1) The Women in Distress and Detention Fund Act, 1996 (XV of 1996), hereinafter called as repealed Act, shall stand repealed.
+(2) Notwithstanding the repeal under sub-section (1), all funds and accounts constituted and maintained under the repealed Act shall be deemed to be in continuation of the corresponding funds and accounts constituted or maintained under this Act. 93226 RGN Date: 30-01-2025

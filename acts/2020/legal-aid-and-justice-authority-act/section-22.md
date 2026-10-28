@@ -1,0 +1,1 @@
+22. Tax exemptions.—The income of the Authority, donations and contribution received by the Authority for the purpose of this Act shall be exempt from all taxes, duties, charges or imposts of any nature levied by Federal, provincial, local governments or authorities or any institution.
