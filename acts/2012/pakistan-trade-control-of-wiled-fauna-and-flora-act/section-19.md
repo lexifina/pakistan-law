@@ -1,0 +1,1 @@
+19. Confiscation of specimens possessed unlawfully.—Any specimen included in the Appendices found in possession of a person without legal permit or certificate shall be confiscated and the person shall be punished as provided under Section 3.

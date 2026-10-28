@@ -1,0 +1,3 @@
+12. Export and import of specimens bred in captivity or artificially propagated.—Where the Management Authority or the designated authority or competent authority is satisfied for the purposes of export from or import into Pakistan that a specimen of an animal or plant species was bred in captivity or was artificially propagated, or is a part of such an animal or plant or was derived therefrom the Management Authority shall,—
+(a) issue a certificate to this effect; and
+(b) accept similar certificate issued by a designated authority or a competent authority in lieu of any of the permits and certificates required under Sections 3 to 9 of this Act.

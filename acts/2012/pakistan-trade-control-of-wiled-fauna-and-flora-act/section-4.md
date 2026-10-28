@@ -1,0 +1,1 @@
+4. Cognizance of Offence.—No Court shall take cognizance of any offence punishable under this Act except upon a complaint in writing made by a duly authorized officer of department or an officer designated by the Federal Government.

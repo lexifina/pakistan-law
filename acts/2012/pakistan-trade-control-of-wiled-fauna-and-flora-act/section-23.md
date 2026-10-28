@@ -1,0 +1,1 @@
+23. Officers to be public servants.—The officers or persons authorized under any provisions of this Act to do certain thing or act in certain manner shall be deemed to be public servant within the meaning Section 21 of the Pakistan Penal Code, 1860 (Act XLV of 1860).

@@ -1,0 +1,1 @@
+21. Arrangements for feeding and safe keeping.—The Management Authority shall make suitable arrangements for feeding and safe keeping of the specimens confiscated under this Act so that the living specimens are properly cared for so as to minimize the risk of injury, damage to health or cruel treatment.

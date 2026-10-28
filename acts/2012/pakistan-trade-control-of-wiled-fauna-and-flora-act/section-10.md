@@ -1,0 +1,1 @@
+10. Transit or trans-shipment of specimens.___ The provisions of Sections 3 of 9 shall not apply to the transit or trans-shipment of specimens through or in Pakistan while the specimens remain in Customs control.
