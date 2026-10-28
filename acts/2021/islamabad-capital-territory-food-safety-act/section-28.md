@@ -1,0 +1,1 @@
+28. Food Tribunal.—An offence punishable under this Act shall be exclusively triable by the Food Tribunal established by the Government and where it establishes more than one Food Tribunals, it shall specify the territorial limits within which each Food Tribunal shall exercise its jurisdiction under the Act.

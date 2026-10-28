@@ -1,0 +1,1 @@
+34. Appeal against conviction.— The Authority or the person sentenced by a Food Tribunal may, within thirty days from the date of communication of the order, file an appeal against the final order of the Food Tribunal in accordance with the Code of Criminal Procedure 1898 (Act V of1898).

@@ -1,0 +1,1 @@
+38. Immunity.—No suit, prosecution or other legal proceedings shall lie against the Government, any officer of the Government, the Food Authority, the Chairperson, a member or any other employee of the Food Authority for anything which is done in good faith under this Act, the rules or the regulations.

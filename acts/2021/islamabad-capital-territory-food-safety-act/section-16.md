@@ -1,0 +1,1 @@
+16. False Information.—If a person, in connection with a requirement or direction under this Act or the rules made there-under, provides any information or produces any document or article of food that is false or misleading, shall be punished with imprisonment for a term which may extend to six months or fine which may extend to half a million rupees or with both.

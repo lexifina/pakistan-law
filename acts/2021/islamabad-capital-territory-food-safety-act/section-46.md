@@ -1,0 +1,1 @@
+46. Overriding effect.—The provisions of this Act shall have effect notwithstanding anything contained in any other law.

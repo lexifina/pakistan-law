@@ -1,0 +1,3 @@
+10. Public analysts.- (1) The competent authority may, by notification in the official Gazette, nominate or appoint such person as it may deems fit, having such qualification to be the public analyst for such area as may be prescribed.
+(2) The production of a certificate under the hand of a public analyst, in a trial shall, until contrary is proved, be sufficient evidence of the facts stated therein.
+(3) The Food Tribunal may of its own or on the request of the accused, send, any sample of food, to the public analyst for test, the cost of which analysis shall be paid by the accused unless otherwise directed by the Food Tribunal.

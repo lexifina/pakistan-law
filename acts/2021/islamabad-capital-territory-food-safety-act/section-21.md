@@ -1,0 +1,1 @@
+21. Failure to comply with the directions.— If any person, without any reasonable ground, fails to comply with any order or notice issued or any directions given, under this Act or the rules made thereunder, shall be punished with imprisonment for a term which may extend to one year or fine which may extend to half a million rupees or with both.

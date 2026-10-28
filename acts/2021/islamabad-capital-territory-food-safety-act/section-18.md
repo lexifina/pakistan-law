@@ -1,0 +1,1 @@
+18. Business without license.— If any food business operator who manufacturers, sells, stores or distributes any article of food without the prescribed license, shall be punished with imprisonment for a term which may extend to six months or fine which may extend to half a million rupees or with both.

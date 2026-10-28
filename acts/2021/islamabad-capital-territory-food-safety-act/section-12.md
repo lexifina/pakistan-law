@@ -1,0 +1,1 @@
+12. Substandard or misbranded food.— Any person who manufactures for sale, stores, sells, distributes any food which is substandard or is misbranded, shall be punished with imprisonment for a term which may extend to six months or fine which may extend to one million rupees or with both.
