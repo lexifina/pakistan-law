@@ -1,0 +1,3 @@
+18. Notice to be given of devolution of interest in house in cantonment. Every person on whom devolves, by transfer, by succession or by operation of law, the interest of an owner in any house, or in any part of any house, situate in a cantonment or part of a cantonment in respect of which a notification under sub-section (1) of section 3 is for the time being in force, shall be bound to give notice of the fact to the [^34][Officer Commanding the station] within one month from the date of such devolution, and, if he, without reasonable cause, fails to do so, he shall be punishable with fine which may extend to fifty rupees.
+
+[^34]: Subs. by Act No. X of 1925, s. 6.
