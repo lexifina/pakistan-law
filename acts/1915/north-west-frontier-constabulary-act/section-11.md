@@ -1,0 +1,4 @@
+11. Place of imprisonment and liability to dismissal on imprisonment.___ (1) Every person sentenced under this Act to imprisonment may be dismissed from the Frontier Constabulary, and shall be further liable to forfeiture of pay and allowances due, as well as of medals and decorations received and the public money due to him.
+(2) Every such person shall, if he is so dismissed, be imprisoned in the nearest prison or such other prison as the [^20][Federal Government] may, by general or special order, direct; but, if he is not also dismissed from the Frontier Constabulary, he may, if the Court or the Commandant so directs, be confined in the quarter-guard or such other place as the Court or the Commandant may consider suitable.
+
+[^20]: Subs. by F.A.O., 1975, Art. 2 and Table, for “Central Government,” which was previously amended by A. O., 1937, for “L. G.”.

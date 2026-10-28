@@ -1,0 +1,3 @@
+19. Criminal powers conferred with in Pakistan to be exercisable beyond Pakistan. Any person invested with any powers under the Code of Criminal Procedure, 1998 (V of 1898), for the disposal of any case under this Act within the limits of [^25][Pakistan] shall, in relation to any case arising under this Act beyond such limits, have the same power and be subject to the same conditions as to appeal or otherwise as if such case had arisen within such limits.
+
+[^25]: Subs. by the .Central Laws (Statute Reform) Ordinance, 1960 (21 of 1960), s. 3 and 2nd Sch. (with effect from the 14th October, 1955), for “ the Provinces and the Capital of the Federation” which had been subs. by A. O., 1949, Arts. 3 (2) and 4, for “British India”.
