@@ -1,0 +1,29 @@
+16. Establishment of Intellectual Property Tribunals.—**(1) The Federal Government may, by notification in the official Gazette, establish as many Tribunals as it considers necessary to exercise jurisdiction under this Act, appoint a Presiding Officer for each of such Tribunal and where it establishes more Tribunals than one, it shall specify in the notification the territorial limits within which each of the Tribunal shall exercise its jurisdiction.
+*(2) Where more than one Tribunal has been established to exercise jurisdiction in the same territorial limits, the Federal Government shall define the territorial limits of each such Tribunal.
+*(3) Where more than one Tribunal has been established in the same or different territorial limits, the High Court may, if it considers it expedient to do so in the interest of justice or for the convenience of the parties or of the witnesses, transfer any case from one Tribunal to another.
+*Came into force on 29th December, 2015 by S.R.O No. 1330(I)/2015. **Came into force on and from the 2nd December, 2014 by S.R.O No. 1330(I)/2015.
+*(4) A Presiding Officer of the Tribunal shall be appointed by the Federal Government after consultation with the Chief Justice of the High Court concerned in which the Tribunal is established and no person shall be appointed a Presiding Officer of a Tribunal unless he,—
+(a) has been a judge of High Court; or
+(b) is or has been a District and Sessions Judge; or
+(c) is an advocate qualified for an appointment as a Judge of the High Court.
+**(5) A Tribunal shall hold its sitting at such places within its territorial jurisdiction as may be determined by the Federal Government.
+***(6) A Presiding Officer of a Tribunal, not being a District and Sessions Judge, shall be appointed for a term of three years from the date on which he enters upon his office.
+****(7) The salary, allowances and other terms and conditions of service, of a person appointed as a Presiding Officer of a Tribunal shall be as may be determined by the Federal Government.
+*****(8) A person, not being a District and Sessions Judge, appointed as a Presiding Officer of a Tribunal may, by notice in writing under his hand addressed to the Federal Government, resign from his office.
+*****(9) A Presiding Officer shall not be removed or transferred from his office before the completion of term of office without the consultation of the Chief Justice of the High Court concerned.
+*****(10) A Presiding Officer shall be eligible for re-appointment for a similar term and shall cease to hold office on attaining the age of sixty five years or the expiry of term, whichever is earlier.
+*****(11) The Tribunal may, if it so requires, be assisted in technical aspects of intellectual property rights involved in any case by an expert who has experience and expertise in the matters of intellectual property rights.
+*****(12) Remuneration of the expert, and the party or parties by whom the same shall be payable shall be determined by the Tribunal keeping in view the circumstances of each case.
+*****17. Powers of the Tribunals.—(1) Subject to the provisions of the Act, the Tribunal shall,—
+(a) in the exercise of its civil jurisdiction, have all the powers vested in a Civil Court under the Code of Civil Procedure, 1908 (Act V of 1908);
+*Came into force on and from 8th September, 2015 by S.R.O No. 1330(I)/2015. ** Came into force on and from 2nd December, 2014 by S.R.O No. 1330(I)/2015. *** Came into force on and from 30th September, 2015 by S.R.O No. 1330(I)/2015 ****Came into force on and from 30th September, 2015 by S.R.O No. 1330(I)/2015 *****Came into force on 29th December, 2015 by S.R.O No. 1330(I)/2015
+(b) in the exercise of its criminal jurisdiction, try offences made punishable under this Act and shall, for this purpose have the same powers as are vested in a Court of Sessions under the Code of Criminal Procedure, 1898 (Act V of 1898);
+(2) The Tribunal shall in all matters with respect to which the procedure has not been provided for in this Act, follow the procedure laid down in the Code.
+(3) All proceedings before the Tribunal shall, be deemed to be judicial proceedings within the meaning or Sections 193 and 228 of the Pakistan Penal Code (Act XLV of 1860).
+(4) Subject to sub-section (5), no Court other than a Tribunal shall have or exercise any jurisdiction with respect to any matter to which the jurisdiction of the Tribunal extends under this Act.
+(5) Nothing in sub-section (4) shall be deemed to affect any proceedings pending before such Court immediately before the coming into force of this Act.
+(6) All suits and proceedings pending in any Court instituted under intellectual property laws shall stand transferred to, and be heard und disposed of by, the Tribunal having jurisdiction under this Act. On transfer of proceedings under this sub-section, the parties shall appear before the Tribunal concerned on the date previously fixed.
+(7) In respect of proceedings transferred to the Tribunal under sub-section (6), the Court shall proceed from the stage which the proceedings had reached immediately prior to the transfer and shall not be bound to recall and re-hear any witness and may act on the evidence already recorded or produced before a Court from which the proceedings were transferred.
+*18. Jurisdiction of the Tribunals.—(1) All suits and other civil proceedings regarding infringement of intellectual property laws shall be instituted and tried in the Tribunal.
+(2) Notwithstanding anything contained in any other law for the time being in force, the Tribunal shall have exclusive jurisdiction to try any offence under intellectual property laws.
+*19. Appeals from Court.—Any person aggrieved by the final judgment and order of the Tribunal under this Act may, within thirty days of the final judgment or order of the Tribunal, prefer an appeal to the High Court having territorial jurisdiction over the Tribunal.

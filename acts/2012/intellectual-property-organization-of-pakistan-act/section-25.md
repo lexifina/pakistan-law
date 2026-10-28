@@ -1,0 +1,1 @@
+25. Members and officers, etc., to be public servants.—The Chairman, Director General, officers, employees, experts and consultants of the Organization shall, when acting or purporting to act in pursuance of any of the provisions of this Act, be deemed to be public servants within the meaning of Section 21 of the Pakistan Penal Code (Act XLV of 1860).

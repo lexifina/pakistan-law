@@ -1,0 +1,1 @@
+35. Power to make regulations.—The Organization may, with the prior approval of the Board and by notification in the official Gazette, make regulations not inconsistent with this Act or the rules made thereunder to carry out the purposes of this Act.

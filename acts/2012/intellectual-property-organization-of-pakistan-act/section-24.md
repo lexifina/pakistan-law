@@ -1,0 +1,3 @@
+24. Appointment of officers, etc., by the Organization.—(1) The Organization may, with the prior approval of the Board, create posts and appoint such officers, employees, experts and consultants, on such terms and conditions as may be prescribed.
+(2) The Director-General shall be empowered for transfers and postings of all the officers, employees and servants of the Organization, the Trademarks Registry, Copyright Office, Patent Office and any other office established under intellectual property laws as he deems fit and appropriate for proper and efficient working of the Organization.
+(3) The civil servants working in the Organization shall be governed by the Civil Servants Act, 1973 (LXXI of 1973), and rules made thereunder unless absorbed in the Organization.

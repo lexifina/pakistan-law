@@ -1,0 +1,1 @@
+38. Removal of difficulties.—In case any difficulty arises in giving effect to this Act, the Federal Government may, for the purposes of removing such difficulty, make such order as it considers expedient and any such order shall be deemed to be, and given effect to, as a part of the provisions of this Act.

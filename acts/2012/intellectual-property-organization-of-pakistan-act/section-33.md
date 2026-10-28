@@ -1,0 +1,1 @@
+33. Policy directives.—The Federal Government may, as and when it considers necessary, issue policy directives to the Board in respect of its role and functions and the compliance of such directives shall be binding on the board.
