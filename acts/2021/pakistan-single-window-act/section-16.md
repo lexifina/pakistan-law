@@ -1,0 +1,1 @@
+16. Indemnity.— No suit, prosecution or other legal proceedings shall lie against the Federal Government, the Governing Council, lead agency, operating entity, Chairperson, members, officers associated in any capacity with the Pakistan single window for anything done in good faith or intended to be done in good faith, under this Act or any rules and regulations made thereunder.

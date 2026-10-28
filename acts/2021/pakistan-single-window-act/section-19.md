@@ -1,0 +1,1 @@
+19. Power to amend the Schedule.—The secretary of the Governing Council may, by notification in the official Gazette and after approval of the Governing Council, amend the Schedule so as to add any entry thereto, omit any entry therefrom or amend any entry therein.

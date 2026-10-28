@@ -1,0 +1,11 @@
+8. Sources of funding.—(1) The sources of funding for development, operations, enhancement and up-gradation of the Pakistan single window shall include —
+(a) such sums as the Federal Government may allocate to the lead agency, from time to time, in the annual budget;
+(b) grants from the Federal Government to the lead agency;
+(c) income generated from levy of fee and service charges as provided in sub-section (2);
+(d) income generated from sales of products, services and investments; and
+(e) any other source, as approved by the Governing Council, upon recommendation of the lead agency.
+(2) For the purpose of meeting operating expenses, enhancements and up-gradation of the Pakistan single window, the Governing Council may, by notification in the official Gazette, upon the recommendation of the lead agency and subject to such conditions, limitations or restrictions as it may deem fit to impose, levy fee and service charges for any of the services provided by or on behalf of the operating entity, at such rate as may be specified therein.
+(3) The Federal Government upon recotnmendation of the Governing Council may allocate additional funds to the lead agency to the credit of the operating entity in case the income from Pakistan single window fee and service charges is insufficient to meet the operating expenses.
+(4) The management, operations and maintenance of all accounts and sums received or raised therein, under this Act, shall be done by the operating entity in the manner as may be prescribed by regulations:
+Provided that all sums received or raised under this Act may be utilised for meeting the operating expenses and enhancement of the Pakistan single window including, but not limited to, procuring, owning, hiring, developing, maintaining, upgrading, marketing or operating etc any Pakistan single window related software, hardware, system code, data, infrastructure, property required or utilised by the operating entity, Pakistan customs and OGAs, and for hiring, training, capacity building and welfare of their employees, as approved by the Board of Directors, in the prescribed manner.
+(5) Audit of the accounts of the operating entity shall be conducted by the Auditor General of Pakistan.
