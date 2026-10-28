@@ -1,0 +1,3 @@
+37. Cognizance of offences.__ No Court shall take cognizance of an offence punishable under this Act except upon complaint in writing made by the Controller or Inspector or any other person authorised in this behalf by the 2[Federal Government] by a general or special order.
+1Subs. by the Weights and Measures (International System) (Amdt.) Ordinance, 1978 (16 of 1978), s. 10, for “prescribed manner”. 2Subs. by the Weights and Measures (Metric System) (Amdt.) Act, 1974 (29 of 1974), s. 2, for “Central Government”.
+38. [Forfeiture of weights, measures, etc.]. Omitted by the Weights and Measures (International System) (Amdt.) Ordinance, 1978 (XVI of 1978), s. 11.
