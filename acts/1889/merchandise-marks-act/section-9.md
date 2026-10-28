@@ -1,0 +1,10 @@
+## FORFEITURE OF GOODS
+[^15]9. Forfeiture of goods.—(1) When a person is convicted under section 482 of the Pakistan Penal Code (XLV of 1860) of using a false trade mark, or under section 486 of that Code of selling, or exposing or having in possession for sale or any purpose of trade or manufacture, any goods or things with a counterfeit trade mark applied thereto, or under section 487 or section 488 of that Code of making, or making use of a false mark, or under section 6 or section 7 of this Act of applying a false trade description to goods or of selling, or exposing or having in possession for sale or any purpose of trade or manufacture, any goods or things to which a false trade description is applied, or is acquitted on proof of the matter or matters . specified in section 486 of the Pakistan Penal Code (XLV of 1860) or section 7 or section 8 of this Act, the Court convicting or acquitting him may direct the forfeiture to [^16][Government] of all goods and things by means of, or in relation to, which the offence has been committed or, but for such proof as aforesaid, would have been committed.
+(2) When a forfeiture is directed on a conviction, and an appeal lies against the conviction, an appeal shall lie against the forfeiture also
+(3) When a forfeiture is directed on an acquittal and the goods or things to which the direction relates are of value exceeding fifty rupees, an appeal against the forfeiture may be preferred, within thirty days from the date of the direction, to the Court to which in appealable cases appeals lie from sentences of the Court which directed the forfeiture.
+[^17]* * * * * * *
+10 & 11. [Amendment of the Sea Customs Act, 1878.] Rep. by the Repealing Act, 1938 (I of 1938), s. 2 and Schedule.
+
+[^15]: Cf. the Merchandise Marks Act, 1887 (50 & 51 Vict., c.28), s. 2 (3) (iii).
+[^16]: Subs. by A.O., 1961, Art. 2, for “Her Majesty” (with effect from the 23rd March, 1956).
+[^17]: Omitted by the Federal Laws (Revision and Declaration) Ordinance, 1981 (27 of 1981), s. 3 and 2nd Sch
