@@ -1,0 +1,1 @@
+5. Remuneration and conditions of service.—The Chairman and every member shall receive such salary and allowances and be subject to such conditions of service as may be prescribed and shall perform such duties and functions as are assigned to them under this Act or by rules.

@@ -1,0 +1,2 @@
+12. Employment of officers and staff.— The Authority may from time to time, employ such officers and other members of staff or appoint such experts and consultants as it may consider necessary for the performance of its functions, as it may be prescribed.
+(2) The Authority shall prescribe the procedure for appointment, terms and conditions of service of its officers and members of staff, experts and consultants and shall be competent to take disciplinary action against its officers and members of staff.

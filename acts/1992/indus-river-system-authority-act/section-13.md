@@ -1,0 +1,2 @@
+13. Immunity of the Authority and its employees.—(1) The Chairman, members, officers and members of staff shall, be deemed to be public servants, within the meaning of section 21 of the Pakistan Penal Code (Act XLV of 1860).
+(2) No suit, prosecution or other legal proceedings shall lie against the Authority, the Chairman, members or officers and members of staff of the Authority in respect of anything done or intended to be done in good faith under this Act.
