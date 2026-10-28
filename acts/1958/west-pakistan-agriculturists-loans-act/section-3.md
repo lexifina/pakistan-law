@@ -1,0 +1,1 @@
+3. Recovery of loans. The loans made, the price of seed sold and the interest (if any) chargeable thereon, together with the cost of recovery, if any, shall be recoverable as arrears of land revenue from the persons to whom the loans were made or the seed was sold or their sureties.
