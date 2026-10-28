@@ -1,0 +1,2 @@
+20. Documents containing interlineations, blanks, erasures or alterations.—(1) The registering officer may in his discretion refuse to accept for registration any document in which any interlineation, blank, erasure or alteration appears, unless the persons executing the document attest with their signatures or initials such interlineation, blank, erasure or alteration.
+(2) If the registering officer registers any such document, he shall, at the time of registering the same, make a note in the register of such interlineation, blank, erasure or alteration.

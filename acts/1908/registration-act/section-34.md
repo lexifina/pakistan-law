@@ -1,0 +1,9 @@
+34. Enquiry before registration by registering officer.— (1) Subject to the provisions contained in this Part and in sections 41,43, 45, 69, 75, 77, 88, and 89, no document shall be registered under this Act, unless the persons executing such document, or their representatives, assigns or agents authorized as aforesaid, appear before the registering officer within the time allowed for presentation under sections 23, 24, 25 and 26:
+Provided that, if owing to urgent necessity or unavoidable accident all such persons do not so appear, the Registrar, in cases where the delay in appearing does not exceed four months, may direct that on payment of a fine not exceeding ten times the amount of the proper registration fee, in addition to the fine, if any, payable under section 25, the document may be registered.
+(2) Appearances under sub-section (1) may be simultaneous or at different times.
+(3) The registering officer shall thereupon—
+(a) enquire whether or not such document was executed by the persons by whom it purports to have been executed;
+(b) satisfy himself as to the identity of the persons appearing before him and alleging that they have executed the document; and
+(c) in the case of any person appearing as a representative, assign or agent, satisfy himself of the right of such person so to appear.
+(4) Any application for a direction under the proviso to sub-section (1) may be lodged with a Sub- Registrar, who shall forthwith forward it to the Registrar to whom he is subordinate.
+(5) Nothing in this section applies to copies of decrees or orders.

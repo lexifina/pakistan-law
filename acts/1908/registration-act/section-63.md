@@ -1,0 +1,4 @@
+63. Power to administer oaths and record of substance of statements.—(1) Every registering officer may at his discretion administer an oath to any person examined by him under the provision of this Act.
+(2) Every such officer may also at his discretion record a note of the substance of the statement made by each such person, and such statement shall be read over, or (if made in a language with which such person is not acquainted) interpreted to him in a language with which he is acquainted, and, if he admits the correctness of such note, it shall be signed by the registering officer.
+(3) Every such note so signed shall be admissible for the purpose of proving that the statements therein recorded were made by the persons and under the circumstances therein stated.
+(C) Special Duties of Sub-Registrar

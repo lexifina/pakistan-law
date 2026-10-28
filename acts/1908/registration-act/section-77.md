@@ -1,0 +1,6 @@
+77. Suit in case of order of refusal by Registrar.— (1) Where the Registrar refuses to order the document to be registered, under section 72 or section 76, any person claiming under such document, or his representative, assign or agent, may, within thirty days after the making of the order of refusal, institute in the Civil Court, within the local limits of whose original jurisdiction is situate the office in which the document is sought to be registered, a suit for a decree directing the document to be registered in such office if it be duly presented for registration within thirty days after the passing of such decree [:][^85]
+[^86][Provided that failure to file a suit or the dismissal of a suit filed under this section shall not disentitle a party to any other remedy to which he may be entitled, on the basis of the unregistered document.]
+(2) The provisions contained in sub-sections (2) and (3) of section 75 shall, mutatis mutandis, apply to all documents presented for registration in accordance with any such decree, and, notwithstanding anything contained in this Act, the document shall be receivable in evidence in such suit.
+
+[^85]: Subs. by the Registration (Amdt.) Ordinance, 1962 (45 of 1962), s. 18, for full-stop.
+[^86]: Proviso added ibid.

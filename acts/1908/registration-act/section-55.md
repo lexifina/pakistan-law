@@ -1,0 +1,10 @@
+55. Indexes to be made by registering officers, and their contents.—(1) Four such indexes shall be made in all registration offices, and shall be named, respectively, Index No 1, Index No. II, Index No. III and Index No. IV.
+(2) Index No. I shall contain the names and additions of all persons executing and of all persons claiming under every document entered or memorandum filed in Book No.1.
+(3) Index No. II shall contain such particulars mentioned in section 21 relating to every such document and memorandum as the Inspector-General from time to time directs in that behalf.
+(4) Index No. III shall contain the names and additions of all persons executing every will and authority entered in Book No.3, and of the executors and persons respectively appointed thereunder, and after the death of the testator or the donor (but not before) the names and additions of all persons claiming under the same.
+(5) Index No. IV shall contain the names and additions of all persons executing and of all persons claiming under every document entered in Book No.4.
+(6) Each Index shall contain such other particulars, and shall be prepared in such form, as the Inspector-General from time to time directs.
+[^78][(7) If, in the opinion of the Registrar, any of the indexes mentioned in sub-section (1) is in danger of being destroyed or becoming illegible wholly or partially, the Registrar may, by a written order, direct such index or portion thereof, as he thinks fit, to be recopied in such manner as may be prescribed by rules, and any copy so prepared shall, for the purposes of this Act and of the Evidence Act, 1872 (I of 1872), be deemed to be the original index or portion and all references in this Act to the original index or portion shall be deemed to be references to the index or portion prepared as aforesaid.]
+56. [Copy of entries in Indexes Nos. I, II and III to be sent by Sub-Registrar to Registrar and filed.] Rep. by the Indian Registration (Amendment) Act, 1929 (XV of 1929), s. 2.
+
+[^78]: Sub-section (7) added by the Registration (Amdt.) Ordinance, 1962 (45 of 1962), s. 16.

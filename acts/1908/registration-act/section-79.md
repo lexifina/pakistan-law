@@ -1,0 +1,1 @@
+79. Publication of fees.— A table of the fees so payable shall be published in the official Gazette, and a copy thereof in English and the vernacular language of the district shall be exposed to public view in every registration office.

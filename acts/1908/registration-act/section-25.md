@@ -1,0 +1,4 @@
+25. Provision where delay in presentation is unavoidable.—(1) If, owing to urgent necessity or unavoidable accident, any document executed, or copy of a decree or order made, in [^43][Pakistan] is not presented for registration till after the expiration of the time hereinbefore prescribed in that behalf, the Registrar, in cases where the delay in presentation does not exceed four months, may direct that, on payment of a fine not exceeding ten times the amount of the proper registration‑fee, such document shall be accepted for registration.
+(2) Any application for such direction may be lodged with a Sub-Registrar, who shall forthwith forward it to the Registrar to whom he is subordinate.
+
+[^43]: Subs. by the Central Laws (Statute Reforms) Ordinance, 1960 (21 of 1960), s. 3 and 2nd Sch. (with effect from the 14th October, 1955), for “the Provinces and the Capital of Federation’ which had been subs. by A.O., 1949, for “British India”,

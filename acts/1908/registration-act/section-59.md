@@ -1,0 +1,1 @@
+59. Endorsements to be dated and signed by registering officer.— The registering officer shall affix the date and his signature to all endorsements made under sections 52 and 58, relating to the same document and made in his presence on the same day.
