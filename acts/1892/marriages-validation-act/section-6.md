@@ -1,0 +1,3 @@
+6. Penalty for solemnizing irregular marriages. If any person licensed under section 9 of the said Act to grant certificates of marriage between Native Christians shall at any time after the commencement of this Act solemnize or affect to solemnize any marriage under Part VI of the said Act or grant any such certificate as therein: mentioned, knowing that one of the parties to such marriage or affected marriage was at the date of such solemnization not a Christian, he shall be liable to have his license cancel1ed, and in addition thereto he shall be deemed to have been guilty of an offence prohibited by section 73 of the said Act, and shall be punishable accordingly.
+___________
+Date: 05-09-2024
