@@ -1,0 +1,1 @@
+21I. Aid and abetment.__ Whoever aids or abets any offence, under this Act shall be punishable with the maximum term of same imprisonment provided for the offence or the fine provided for such offence or with both.

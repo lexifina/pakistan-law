@@ -1,0 +1,1 @@
+38. Punishment for terrorist act committed before this Act.− Where a person has committed an offence before the commencement of this Act which if committed after the date on which this Act comes into force would constitute a terrorist act hereunder he shall be tried under this Act but shall be liable to punishment as authorised by law at the time the offence was committed.

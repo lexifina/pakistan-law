@@ -1,0 +1,1 @@
+21K. Offences triable by way of summary procedure.__ All offences under this Act punishable with imprisonment for a term of not more than six months with or without fine shall be tried by way of summary procedure.
