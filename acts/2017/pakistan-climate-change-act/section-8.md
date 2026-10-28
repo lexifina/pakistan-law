@@ -1,0 +1,27 @@
+8. Functions of the Authority.—(1) Functions of the Authority shall be to
+(a) formulate, comprehensive adaptation and mitigation policies, plans, programmes, projects and measures designed to address the effects of climate change and meet Pakistan's obligations under international conventions and agreements relating to climate change and within the framework of a national climate change policy as may be approved by the Federal Government from time to time;
+(b) establish institutional and policy mechanisms for implementation of Federal and provincial adaptation and mitigation policies, plans, programmes, projects and measures, including plans for rehewable energy and clean technology measures for energy efficiency and energy conservation and awareness-raising and capacity­building programmes;
+(c) prepare suitable, adaptation and mitigation projects for submission to international and lodal institutions for funding, including the Clean
+Development Mechanism, Global Environmental Facility, Green Climate Fund and Adaptation Fund;
+(d) prepare the National Adaptation Plan and its constituent provincial and local adaptation action plans, the Nationally Appropriate Mitigation Action Framework and the Intended Nationally Determined Contributions, Nationally Determined Contributions and National Communication to be submitted to the concerned Secretariat of the United Nations Framework Convention on Climate Change and monitor implementation thereof;
+(e) carry out Technology Needs Assessment and prepare Climate Change Technology Action Plan in accordance with international best practices for seeking technical and financial support, amongst others, through the Technology Mechanism;
+(f) prepare projects for funding under the Reducing. Emissions from Deforestation and Forest Degradation (REDD+) Mechanism;
+(g) prepare the National Climate Change Report for consideration of the Council;
+(h) formulate, and after approval of the Council, coordinate implementation of low carbon and green growth strategies;
+(i) formulate guidelines for the protection and conservation of renewable and non-renewable resources, species, habitats, and biodiversity in general which are adversely affected or threatened by climate change;
+(j) advise the Government regarding appropriate legislative, policy and implementation measures and actions relating to disaster preparedness, capacity building, institutional strengthening and awareness raising in relevant sectors affected by climate change;
+(k) advise the Government regarding implementation of international conventions, treaties and agreements on climate change and the environment to which Pakistan is a party and fulfill reporting requirements thereunder;
+(l) design, establish and maintain a national registry and database on greenhouse gas emissions in accordance with internationally adopted emissions quantification methodologies, standards and protocols;
+(m) coordinate and monitor implementation of goals and objectives and fulfill reporting and verification obligations under international conventions, treaties and agreements;
+(n) prepare policy papers and concept notes and provide technical input for formulating national policy positions for international conferences or negotiations;
+(o) coordinate conduct of research on current and emerging issues of climate change, particularly assessment of Pakistan's vulnerability to climate change, identification of climate change opportunities and technology transfer, in association with specialized research institutions and disseminate research findings and outputs to stakeholders;
+(p) undertake education and awareness campaigns and programs to enhance understanding and awareness of different aspects of climate change and promote their integration in educational curricula;
+(q) work in collaboration with relevant Government Agencies and non-governmental organizations and after the conduct of relevant research and studies, set targets and coordinate actions for the reduction of greenhouse gas emissions and development of carbon markets;
+(r) design programmes providing for incentives relating to matters of climate change, including incentives for reduced emissions from deforestation and degradation;
+(s) mobilize resources for the purposes of achieving the objects and purposes of this Act;
+(t) regularly publish, update and disseminate, through electronic and other means, climate change strategies, policies, plans, programmes and other information; and
+(u) perform such functions as may be assigned to it by the Council or by the Government for purposes of this Act.
+(2) To assist the Authority in the discharge of its functions, the Minister-in-Charge of the Federal Government may establish Advisory Committees for various sectors and appoint as members thereof eminent representatives of the relevant sector from educational institutions, research institutes and non-government organizations.
+(3) In the discharge of its functions the Authority shall be guided by, amongst other,—
+(a) the latest scientific knowledge and research relating to climate change in general and renewable energy and clean technology in particular, environmental considerations, including likely impacts on ecosystems, bio-diversity and forestry and socio­econamic development objectives, including gender aspects; and
+(b) policy advice of the Division allocated with the subject of climate change.

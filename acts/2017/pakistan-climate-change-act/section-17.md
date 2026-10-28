@@ -1,0 +1,1 @@
+17. Power to make rules. The Minister-in-Charge of the Federal Government may, by notification in the official Gazette, make rules for carrying out the purposes of this Act, including rules for implementing the provisions of the International Agreements relating to climate change, specified in the Schedule.
