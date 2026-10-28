@@ -1,0 +1,2 @@
+7. Cognizance and compounding of offences.— (1) No Court shall take cognizance of any offence punishable under this Ordinance except on a report in writing by the Authority or a person authorised in this behalf by the Authority of the facts constituting such offence.
+(2) The Authority or the person authorised may, instead of making a report of an offence under sub-section (1), compound such offence for such sum of money as may be determined by the Authority or the person authorised.

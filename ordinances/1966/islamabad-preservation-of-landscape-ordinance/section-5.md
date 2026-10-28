@@ -1,0 +1,1 @@
+5. Penalty.—Whoever contravenes any provision of this Ordinance or any rules made thereunder, or abets such contravention, shall be punishable with imprisonment for a term which may extend to six months, or with fine which may extend to five thousand rupees, or with both.

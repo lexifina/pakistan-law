@@ -1,0 +1,1 @@
+8. Offences to be tried summarily.— An offence punishable under this Ordinance shall be tried in a summary way in accordance with the provisions of the Code of Criminal Procedure, 1898 (Act V of 1898), relating to summary trials.
