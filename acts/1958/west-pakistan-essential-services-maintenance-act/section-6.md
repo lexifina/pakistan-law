@@ -1,0 +1,2 @@
+6. Regulation of wages and conditions of service. (1) The Government may make rules regulating or empowering specified authorities to regulate the wages and other conditions of service of persons or of any class of persons engaged in any employment or class of employment to which this Act applies.
+(2) When any such rules have been made, or when any directions regulating wages or conditions of service have been given by the authority empowered by such rules to give them, any person failing to comply therewith is guilty of an offence under this Act.

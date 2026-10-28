@@ -1,0 +1,1 @@
+3. Employment to which this Act applies. This Act shall apply to all employment under the Government or any agency set up by it or a local authority or any service relating to transport or civil defence.

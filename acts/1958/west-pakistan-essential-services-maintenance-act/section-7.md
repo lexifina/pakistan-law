@@ -1,0 +1,3 @@
+7. Penalties and procedure. (1) Any person found guilty of an offence under this Act, shall be punishable with imprisonment for a term which may extend to one year and shall also be liable to a fine.
+(2) Where the person accused of an offence under this Act is a company or other body corporate, every director, manager, secretary or other officer thereof shall, unless he proves that the offence was committed without his knowledge or that he exercised due diligence to prevent the commission of the offence, be liable to the punishment provided for the offence.
+(3) No court shall take cognizance of an offence under this Act except upon complaint in writing made by an officer empowered by the Government in this behalf.
