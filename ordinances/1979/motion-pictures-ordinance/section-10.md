@@ -1,0 +1,2 @@
+10. Information and documents to be given to distributors and exhibitors with respect to
+certified films.―Any person who delivers any certified film to any distributor or exhibitor shall, in such manner as may be prescribed, notify to the distributor or exhibitor, as the case may be, the title and length of the film, the number and nature of the certificate granted in respect thereof and the conditions, if any, subject to which it has been granted and such other particulars as may be prescribed.

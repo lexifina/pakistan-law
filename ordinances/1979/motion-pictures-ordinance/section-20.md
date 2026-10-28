@@ -1,0 +1,1 @@
+20. Power to exempt.―The Federal Government may, by order in writing, exempt, subjects to such conditions and restrictions as it may impose, any film or class of films or cinematograph exhibition or class of cinematograph exhibitions from all or any of the provisions of this Ordinance or the rules made thereunder.
