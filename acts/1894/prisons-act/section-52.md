@@ -1,0 +1,7 @@
+52. Procedure on committal of heinous offence. If any prisoner is guilty of any offence against prison discipline which, by reason of his having frequently committed such offences or otherwise, in the opinion of the Superintendent, is not adequately punishable by the infliction of any punishment which he has power under this Act to award, the Superintendent may forward such prisoner to the Court of the District Magistrate or of any Magistrate of the first class [^37] * * * having jurisdiction, together with a statement of the circumstances, and such Magistrate shall thereupon inquire into and try the charge so brought against the prisoner, and, upon conviction, may sentence him to imprisonment which may extend to one year, such term to be in addition to any term for which such prisoner was undergoing imprisonment when he committed such offence, or may sentence him to any of the punishments enumerated in section 46 :
+[^38][provided that any such case may be transferred for inquiry and trial by the District Magistrate to any Magistrate of the first class [^39]* * *: and]
+Provided also that no person shall be punished twice for the same offence.
+
+[^37]: The original words “or Presidency Magistrate” which were ins. by the Prisons (Amdt.) Act, 1910 (13 of1910), s. 2 (1), omitted by A.O., 1949, Sch.
+[^38]: Subs. by the Prisons (Arndt.) Act, 1910 (13 of 1910), s. 2 (2), for the original proviso.
+[^39]: The words “and by a Chief Presidency Magistrate to any other Presidency Magistrate” omitted by A.O., 1949, Sch.

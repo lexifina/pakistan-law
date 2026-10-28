@@ -1,0 +1,2 @@
+53. Whipping.___(1) No punishment of whipping shall be inflicted in installments, or except in the presence of the Superintendent and Medical Officer or Medical Subordinate.
+(2) Whipping shall be inflicted with a light ratan not less than half an inch in diameter on the buttocks, and in case of prisoners under the age of sixteen it shall be inflicted, in the way of school discipline, with a lighter ratan.

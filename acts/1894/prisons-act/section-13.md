@@ -1,0 +1,1 @@
+13. Duties of Medical Officer. Subject to the control of the Superintendent, the Medical Officer shall have charge of the sanitary administration of the prison, and shall perform such 2duties as may be prescribed by rules made by the 3[Provincial Government] under Section 4[59].

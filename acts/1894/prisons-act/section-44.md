@@ -1,0 +1,1 @@
+44. Publication of penalties. The Superintendent shall cause to be affixed, in a cons- Publication picuous place outside the prison, a notice in English and the Vernacular setting forth the acts prohibited under section 42 and the penalties incurred by their commission.
