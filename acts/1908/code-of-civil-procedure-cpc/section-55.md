@@ -1,0 +1,12 @@
+## ARREST AND DETENTION
+55. Arrest and detention.__ (1) A judgment-debtor may be arrested in execution of a decree at any hour and on any day, and shall, as soon as practicable, be brought before the Court [^71][which may make an order for his detention in prison to suffer simple imprisonment for a period not exceeding one year] :
+Provided, firstly, that, for the purpose of making an arrest under this section, no dwelling-house shall be entered after sunset and before sunrise:
+Provided, secondly, that no outer door of a dwelling-house shall be broken open unless such dwelling-house is in the occupancy of the judgment-debtor and he refuses or in any way prevents access thereto, but when the officer authorised to make the arrest his duly gained access to any dwelling-house, he may break open the door of any room in which he has reason to believe the judgment-debtor is to be found:
+Provided, thirdly, that, if the room is in the actual occupancy of a woman who is not the judgement-debtor and who according to the customs of the country does not appear in public, the officer authorised to make the arrest shall give notice to her that she is at liberty to withdraw, and, after allowing a reasonable time for her to withdraw and giving her reasonable facility for withdrawing, may enter the room for the purpose of making the arrest:
+Provided, fourthly, that, where the decree in execution of which a judgment-debtor is arrested, is a decree for the payment of money and the judgment-debtor pays the amount of the decree and the costs of the arrest to the officer arresting him, such officer shall at once release him.
+(2) The [^72][Provincial Government] may, by notification in the [^72][official Gazette], declare that any person or class of persons whose arrest might be attended with danger or inconvenience to the public shall not be liable to arrest in execution of a decree otherwise than in accordance with such procedure as may be prescribed by the [^72][Provincial Government] in this behalf.
+[^73][(3) A judgment-debtor detained in prison under sub-section (1) shall not, merely by reason of undergoing such imprisonment, be discharged from his liability under the decree, but he shall not be liable to be re-arrested under the decree in execution of which he was so detained in prison.]
+
+[^71]: Subs. by Ordinance, X of 1980, s. 5.
+[^72]: Subs. by Adaptation Order, 1937.
+[^73]: Subs., omitted and amended by Ordinance, X of 1980, ss. 5, 6, 8.

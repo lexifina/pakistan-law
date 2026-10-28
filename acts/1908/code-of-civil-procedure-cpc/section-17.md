@@ -1,0 +1,2 @@
+17. Suits for immoveable property situate within jurisdiction of different Courts. Where a suit is to obtain relief respecting, or compensation for wrong to, immoveable property situate with in the jurisdiction of different Courts, the suit may be instituted in any Court within the local limits of whose jurisdiction any portion of the property is situate:
+Provided that, in respect of the value of the subject-matter of the suit, the entire claim is cognizable by such Court.

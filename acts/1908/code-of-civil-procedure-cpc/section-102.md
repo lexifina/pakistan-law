@@ -1,0 +1,1 @@
+102. No second appeal in certain cases.__ No second appeal shall lie in any suit except when the amount or value of the subject matter of the original suit does not exceed the amount or value as may be prescribed.

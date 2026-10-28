@@ -1,0 +1,6 @@
+5. Application of the Code to the Revenue Courts.__ (1) Where any Revenue Courts are governed by the provisions of this Code in those matters of procedure upon which any special enactment applicable to them is silent, the [^14][Provincial Government] [^15][* * *] may, by notification in the [^14][official Gazette], declare that any portions of those provisions which are not expressly made applicable by this Code shall not apply to those Courts, or shall only apply to them with such modifications as the [^14][Provincial Government] [^16][* * *] may prescribe.
+(2) “Revenue Court” in subsection (1) means a Court having jurisdiction under any local law to entertain suits or other proceedings relating to the rent, revenue or profits of land used for agricultural purposes, but does not include a Civil Court having original jurisdiction under this Code to try such suits or proceedings as being suits or proceeding of a civil nature.
+
+[^14]: Subs. by Adaptation Order, 1937.
+[^15]: The words “with the previous sanction of the G.G. in C.” omitted by the Devolution Act No. XXXVIII of 1920, s.2 and 1st Sch., Pt. I.
+[^16]: The words “with the sanction aforesaid” omitted by Act No. XXXVIII of 1920, s.2 and 1st Sch., Pt. I.

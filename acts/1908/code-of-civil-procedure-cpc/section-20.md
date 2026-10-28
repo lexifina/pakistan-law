@@ -1,0 +1,12 @@
+20. Other suits to be instituted where defendants reside or cause of action arises. Subject to the limitations aforesaid, every suit shall be instituted in a Court within the local limits of whose jurisdiction__
+(a) the defendant, or each of the defendants where there are more than one, at the time of the commencement of the suit, actually and voluntarily resides, or carries on business, or personally works for gain ; or
+(b) any of the defendants, where there are more than one, at the time of the commencement of the suit, actually and voluntarily resides, or carries on business, or personally works for gain, provided that in such case either the leave of the Court is given, or the defendants who do not reside, or carryon business, or personally work for gain, as aforesaid, acquiesce in such institution ; or
+(c) the cause of action, wholly or in part, arises.
+Explanation I.__ Where a person has permanent dwelling at one place and also a temporary residence at another place, he shall be deemed to reside at both places in respect of any cause of action arising at the place where he has such temporary residence.
+Explanation II.__ A corporation shall be deemed to carry on business at its sole or principal office in [^29][Pakistan] or, in respect of any cause of action arising at any place where it has also a subordinate office, at such place.
+Illustrations
+(a) A is a tradesman in [^30][Lahore]. B carries on business in [^29][Karachi], B, by his agent in [^30][Lahore], buys goods of A and requests A to deliver them to the [^29][Pakistan International Airways]. A delivers the goods accordingly in [^30][Lahore]. A may sue B for the price of the goods either in [^30][Lahore] where the cause of action has arisen, or in [^29][Karachi], where B carries on business.
+(b) A resides at [^29][Murree], B at [^30][Lahore], and C at [^29][Karachi], A, B and C being together at [^29][Bahawalpur], B and C make a joint promissory note payable on demand, and deliver it to A. A may sue B and C [^29][Bahawalpur,] where the cause of action arose. He may also sue them at [^30][Lahore], where B resides, or at [^29][Karachi], where C resides; but in each of these cases, if the non­resident defendant objects, the suit cannot proceed without the leave of the Court.
+
+[^29]: Subs. by the Central Laws (Statute Reform) Ordinance, No. XXI of 1960, s.3 and 2nd Sch. (with effect from the 14th October, 1955).
+[^30]: Subs. by the Federal Laws (Revision and Declaration) Ordinance, No. XXVII of 1981, s.3 and 2nd Sch.

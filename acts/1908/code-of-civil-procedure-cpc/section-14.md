@@ -1,0 +1,1 @@
+14. Presumption as to foreign judgment. The Court shall presume, upon the production of any document purporting to be a certified copy of a foreign Judgment, that such Judgment was pronounced by a Court of competent Jurisdiction, unless the contrary appears on the record ; but such presumption may be displaced by proving want of jurisdiction.

@@ -1,0 +1,7 @@
+70. Rules of procedure.__ (1) The [^107][Provincial Government] may make rules consistent with the aforesaid provisions__
+(a) for the transmission of the decree from the Court to the Collector, and for regulating the procedure of the Collector and his subordinates in executing the same, and for retransmitting the decree from the Collector to the Court ;
+(b) conferring upon the Collector or any gazatted subordinate of the Collector all or any of the powers which the Court might exercise in the execution of the decree if the execution thereof had not been transferred to the Collector ;
+(c) providing for orders made by the Collector or any gazatted subordinate of the Collector, or orders on appeal with respect to such orders, being subject to appeal to, and revision by, superior revenue-authorities as nearly as may be as the orders made by the Court, or orders made on appeal with respect to such orders, would be subject to appeal to, and revision by, appellate or revisional Courts under this Code or other law for the time being in force if the decree had not been transferred to the Collector.
+(2) Jurisdiction of Civil Courts barred. A power conferred by rules made under sub-section (1) upon the Collector or any gazatted subordinate of the Collector, or upon any appellate or revisional authority, shall not be exercisable by the Court or by any Court in exercise of any appellate or revisional jurisdiction which it has with respect to decrees or orders of the Court.
+
+[^107]: Subs. by Adaptation Order, 1937.

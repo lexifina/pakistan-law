@@ -1,0 +1,2 @@
+35B. Special costs.__ (1) If in any proceedings, the Court finds that any averment made by any party is false or vexatious to the knowledge of such party, the Court shall award special costs to the opposite party against whom such averment has been made.
+(2) The amount of any special costs awarded under sub-section (1) shall be taken into account in any subsequent suit for damages or compensation in respect of such claim or defence.

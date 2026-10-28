@@ -1,0 +1,1 @@
+40. Transfer of decree to Court in another Province. Where a decree is sent for execution in another Province, it shall be sent to such Court and executed in such manner as may be prescribed by rules in force in that Province.

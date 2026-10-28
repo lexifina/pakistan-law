@@ -1,0 +1,1 @@
+152. Amendment of judgments, decrees or orders. Clerical or arithmetical mistakes in judgments, decrees or orders or errors arising therein from any accidental slip or omission may at any time be corrected by the Court either of its own motion or on the application of any of the parties.

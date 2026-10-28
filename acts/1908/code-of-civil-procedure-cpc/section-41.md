@@ -1,0 +1,1 @@
+41. Results of execution proceeding to be certified. The Court to which a decree is sent for execution shall certify to the Court which passed it the fact of such execution, or where the former Court fails to execute the same the circumstances attending such failure.
