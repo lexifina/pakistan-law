@@ -1,0 +1,6 @@
+31. Power to make rules.—(1) On the commencement of this Act, within six months, the Federal Government may, on the recommendation of the Authority, by notification in the official Gazette, make rules for all or any of the matters in respect of which it is required to make rules to carry out the purposes of this Act, including, without limiting the generality of this section, for the following matters, namely:—
+(a) protocols or disposal of illegal cannabis or its derivatives as may be seized by the competent authority, including conditions of re-circulation or destruction of such cannabis, or its derivatives;
+(b) matters to be covered by the policy;
+(c) conditions governing imports and export of cannabis and its derivatives; and
+(d) any matter ancillary and incidental to the above.
+(2) The power to make rules conferred by this section shall be subject to the condition of previous publication and before making any rules the draft thereof shall be published in the official Gazette for eliciting public opinion thereon within a period of not less than fifteen days from the date of publication and any comments received shall be compiled into a report along-with the response of the Federal Government or the Authority, as the case may be, and such report shall be made public.

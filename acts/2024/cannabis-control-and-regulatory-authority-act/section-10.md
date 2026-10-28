@@ -1,0 +1,1 @@
+10. Indemnity.—No suit, prosecution or other legal proceedings shall lie against the Director General, Members or any employee of the Authority or other persons engaged by the Authority for anything done in good faith or intended to be done in pursuance of this Act or any rules or regulations made hereunder.
