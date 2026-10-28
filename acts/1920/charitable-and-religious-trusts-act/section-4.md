@@ -1,0 +1,2 @@
+4. Contents and verification of petition.—(1) The petition shall show in what way the petitioner claims to be interested in the trust, and shall specify, as far as may be, the particulars and the audit which he seeks to obtain.
+(2) The petition shall be in writing and shall be signed and verified in the manner prescribed by the Code of Civil Procedure, 1908 (V of 1908), for signing and verifying plaints.
