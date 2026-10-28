@@ -1,0 +1,3 @@
+63. Duties of secured creditor in case of a [^28][possessory security interest] and security interest in collateral covered by a title document. —Sections 150, 151, 152, 153, 154, 155, 156, 157. 173 and 175 of the Contract Act, 1872 (IX of 1872) shall apply mutatis mutandis to a secured creditor in the case of a [^28][security interest that is perfected by possession of the collateral or, in the case of collateral covered by a title document, by possession of the title document.]
+
+[^28]: Subs. by the Act of The Financial Institutions (Secured Transactions) (Amendment) Act, 2021 (XXXIII of 2021), s.42.

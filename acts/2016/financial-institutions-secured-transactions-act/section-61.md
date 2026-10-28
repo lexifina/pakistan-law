@@ -1,0 +1,3 @@
+61. Fresh election of directors on request of the secured creditor.— Notwithstanding anything contained in the [^27][Companies Act, 2017 (XIX of 2017)], where a secured creditor acquires twenty percent or more of the voting securities of a company in his own name upon enforcement of a [^27][security interest over] securities, he may require the company to hold a fresh election of directors in accordance with the procedure laid down in section 178 of the Companies Act, 2017 (XIX of 2017) within sixty days of the secured creditor requesting the same.
+
+[^27]: Subs. by The Financial Institutions (Secured Transactions) (Amendment) Act, 2021 (XXXIII of 2021), s. 41. ________________________

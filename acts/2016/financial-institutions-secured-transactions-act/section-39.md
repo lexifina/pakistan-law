@@ -1,0 +1,5 @@
+39. Extent of priority. —[^19][(1) If a financing statement or Form 10 is required to state a maximum amount secured, then the priority of a security interest that is perfected by that financing statement or Form 10 is limited to the maximum amount as stated in the registered financing statement or Form 10, as applicable.]
+(2) Where the maximum amount secured by the security interest as stated in the registered financing statement or Form 10, as applicable, is increased by way of a registered modification statement or Form 16, the priority of the security interest in respect of such increase shall be from the date the modification statement or Form 16, as applicable, was registered.
+(3) Where a modification statement or Form 16, as applicable, has been registered in respect of an addition of collateral, other than by way of proceeds, the priority of the security interest in respect of such additional collateral shall be from the date the modification statement or Form 16, as applicable, was registered.
+
+[^19]: Ins. and subs by The Act of Financial Institutions (Secured Transactions) (Amendment) Act, 2021 (XXXIII of 2021), ss. 26-27.

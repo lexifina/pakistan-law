@@ -1,0 +1,1 @@
+67. Protection of action taken in good faith.—No suit, claim or other legal proceedings shall lie against the Registry or the registrar, deputy registrar or officers, staff and other employees of the Registry in respect of anything which is done or omitted to be done in good faith under this Act or any rules and regulations made thereunder.

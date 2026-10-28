@@ -1,0 +1,1 @@
+56. Applicability of the Transfer of Property Act, 1882 (IV of 1882).— Sections 130, 131, 132 and 134 of the Transfer of Property Act, 1882 ( IV of 1882) shall not apply to an assignment of receivables under this Act.

@@ -1,0 +1,1 @@
+44. Priority between secured creditor and unpaid seller.— An unpaid seller having a lien in respect of the collateral under the Sale of Goods Act, 1930 (III of 1930) shall have priority over a secured creditor.

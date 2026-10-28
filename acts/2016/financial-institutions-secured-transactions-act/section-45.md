@@ -1,0 +1,1 @@
+45. Priority between secured creditor and a bank having a bankers' lien. — A bank having a bankers 'lien under section 171 of the Contract Act, 1872 (IX of 1872) shall have priority over a secured creditor unless such bank has in writing waived of its bankers' lien.

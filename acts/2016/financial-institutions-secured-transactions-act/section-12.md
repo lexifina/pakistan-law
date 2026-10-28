@@ -1,0 +1,3 @@
+12. Security interest in a negotiable instrument. — (1) A security interest may be created in a negotiable instrument by issuing it in the name of the secured creditor or negotiating it in favour of the secured creditor in accordance with the Negotiable Instruments Act, 1881 (XXVI of 1881).
+(2) A security agreement shall not be required where a security interest in a negotiable instrument is created in accordance with sub-section (1).
+(3) If a negotiable instrument is secured by movable property, then, unless otherwise agreed between the secured creditor and the customer, such security shall stand automatically transferred to and vest in the secured creditor upon creation of the security interest in terms of sub-section (1).

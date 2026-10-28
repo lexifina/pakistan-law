@@ -1,0 +1,1 @@
+56B. Part does not apply to absolute assignments of receivables. ― This Part does not apply to an absolute assignment of receivables and nothing in this Act shall prejudice a secured creditor’s right to enforce an absolute assignment of receivables without the intervention of the courts.]

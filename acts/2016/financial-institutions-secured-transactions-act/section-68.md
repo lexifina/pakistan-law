@@ -1,0 +1,4 @@
+68. The provisions of this Act to override other laws.—(1) The provisions of this Act shall be in addition to, and not, save as expressly provided in this Act, in derogation of any other law for the time being in force.
+(2) In the event of any inconsistency or conflict between the provisions of this Act and any other law for the time being in force including but not limited to the [^29][Companies Act, 2017 (XIX of 2017)], Recovery Ordinance, Contract Act 1872 (IX of 1872), Transfer of Property Act, 1882 (IV of 1882), Specific Relief Act, 1877 (I of 1877), Sale of Goods Act, 1930(III of 1930), and General Clauses Act, 1897 (X of 1897), the provisions of this Act shall prevail.
+
+[^29]: Subs. by the Act of The Financial Institutions (Secured Transactions) (Amendment) Act, 2021 (XXXIII of 2021), ss. 43-45. _______________________________
