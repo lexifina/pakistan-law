@@ -1,0 +1,2 @@
+247. Owner’s consent ordinarily to be obtained. Save as otherwise expressly provided in this Act, no building or land shall be entered without the consent of the occupier, or if there is no occupier, of the owner thereof, and no such entry shall be made without giving the said occupier or owner, as the case may be, not less than four hours' written notice of the intention to make such entry:
+Provided that no such notice shall be necessary if the place to be inspected is a stable for horses or a shed for cattle, or a latrine, privy or urinal, or a work under construction.

@@ -1,0 +1,3 @@
+261. Procedure for convening Committee of Arbitration. When a Committee of Arbitration is to be convened, the [^333][Board] shall cause a public notice to be published stating the matter to be determined, and shall forthwith send copies of the order to the District Magistrate, and to the other party concerned, and shall, as soon as may be, nominate such members of the Committee, as it is entitled to nominate under section 262, and, by notice in writing, call upon the other persons who are entitled to nominate a member or members of the Committee to nominate such member or members in accordance with the provisions of that section.
+
+[^333]: Subs. and omitted by Act No. XXIV of 1936, ss. 61, 69 and 62.

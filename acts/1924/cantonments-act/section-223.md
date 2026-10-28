@@ -1,0 +1,3 @@
+223. Board not liable for failure of supply. Notwithstanding any obligation imposed on [^303][Boards] under this Act, a [^303][Board] shall not be liable to any forfeiture, penalty or damages for failure to supply water or for curtailing the quantity thereof if the failure or curtailment, as the case may be, arises from accident or from drought or other unavoidable cause unless, in the case of an agreement for the supply of water under section 222, the [^303][Board] has made express provision for forfeiture, penalty or damages in the event of such failure or curtailment.
+
+[^303]: Subs. by Act No. XXIV of 1936, s. 69.

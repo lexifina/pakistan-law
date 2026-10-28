@@ -1,0 +1,2 @@
+275. Petition of appeal. (1) Every appeal under section 274 shall be made by petition in writing accompanied by a copy of the order appealed against.
+(2) Any such petition may be presented to the authority which made the order against which the appeal is made, and that authority shall be bound to forward it to the appellate authority, and may attach thereto any report which it may desire to make by way of explanation.

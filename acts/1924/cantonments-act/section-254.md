@@ -1,0 +1,9 @@
+254. Service of notice, etc. (1) Every notice, order or requisition issued under this Act or any rule or bye‑law made thereunder shall, save as otherwise expressly provided, be served or presented__
+(a) by giving or tendering the notice, order or requisition, or sending it by post, to the person for whom it is intended ; or
+(b) if such person cannot be found, by affixing the notice, order or requisition on some conspicuous part of his last known place of abode or business, if within the cantonment, or by giving or tendering the notice, order or requisition to some adult male member or servant of his family, or by causing it to be affixed on some conspicuous part of the building or land, if any, to which it relates.
+(2) When any such notice, order or requisition is required or permitted to be served upon an owner, lessee or occupier of any building or land, it shall not be necessary to name the owner, lessee or occupier therein, and the service thereof shall, save as otherwise expressly provided, be effected either__
+(a) by giving or tendering the notice, order or requisition, or sending it by post, to the owner, lessee or occupier, or, if there are more owners, lessees or occupiers than one [^330][to any one of them] ; or
+(b) if no such owner, lessee or occupier can be found, by giving or tendering the notice, order or requisition to the authorised agent, if any, of any such owner, lessee or occupier, or to an adult male member or servant of the family of any such owner, lessee or occupier, or by causing it to be affixed on some conspicuous part of the building or land to which it relates.
+(3) When the person on whom a notice, order or requisition is to be served is a minor, service upon his guardian or upon an adult male member or servant of his family shall be deemed to be service upon the minor.
+
+[^330]: Subs. by the Repealing and Amending Act, 1940 (Act No. XXXII of 1940), s. 3 and 2nd Sch.

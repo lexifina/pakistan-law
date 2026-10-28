@@ -1,0 +1,6 @@
+176. Power to exclude from cantonment persons refusing to attend hospital or dispensary.
+(1) If the Health Officer or the medical officer in charge of a hospital or dispensary maintained or aided under section 171 reports in writing to the[^247][Officer Commanding the station] that any person having received a notice under section 175 has refused or omitted to attend at the hospital or dispensary, specified in the notice, or that such person, having attended the hospital or dispensary, has quitted it without the permission of such medical officer, or that any person has failed to comply with any direction given to him under section 175, the [^247][Officer Commanding the station] may, by order in writing, direct such person to remove from the cantonment within twenty‑four hours and not to re‑enter it without his permission in writing.
+(2) No person who has under sub‑section (1) been ordered to remove from and not to re‑enter a cantonment shall enter any other cantonment in [^248][Pakistan] without the written permission of the [^247][Officer Commanding the station].
+
+[^247]: Subs. by Act No. VII of 1925, ss. 14 and 8.
+[^248]: Subs. by the Central Laws (Statue Reform) Ordinance, 1960 (Ordinance No. XXI of 1960), s. 3 and 2nd Sch. (with effect from the 14th October, 1955).

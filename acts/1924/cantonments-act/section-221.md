@@ -1,0 +1,3 @@
+221. Power to require water supply to be taken. If it appears to the [^302][Board] that any building or land in the cantonment is without a proper supply of pure water, the [^302][Board] may, by notice in writing, require the owner, lessee or occupier of the building or land to obtain from a source of public water‑supply such quantity of water as is adequate to the requirements of the persons usually occupying or employed upon the building or land, and to provide communication pipes of the prescribed size and description, and to take all necessary steps for the above purposes.
+
+[^302]: Subs. by Act No. XXIV of 1936, s. 69.

@@ -1,0 +1,3 @@
+289. Admissibility of document or entry as evidence. A copy of any receipt, application, plan, notice, order or other document or of any entry in a register, in the possession of a [^368][Board] shall, if duly certified by the legal keeper thereof or other person authorised by the [^368][Board] in this behalf, be admissible in evidence of the existence of the document or entry, and shall be admitted as evidence of the matters and transactions therein recorded in every case where, and to the same extent to which, the original document or entry would, if produced, have been admissible to prove such matters.
+
+[^368]: Subs. by Act No. XXIV of 1936, s. 69.

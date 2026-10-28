@@ -1,0 +1,8 @@
+77. Power to require entry in assessment list of details of building. For the purpose of obtaining a partial remission or refund of tax, the owner of a building composed of separate tenements may request the [^157][Board], at the time of the assessment of the building, to enter in the assessment list, in addition to the [^158][annual rental value] of the whole building, a note recording in detail the [^158][annual rental value] of each separate tenement. When any tenement, the [^158][annual rental value] of which has been thus separately recorded, has remained vacant and unproductive of rent for [^157][sixty] or more consecutive days [^157][* * *], such portion of [^159][any tax assessed on the [^158][annual rental value] of the whole building [^157][* * *] shall be remitted or refunded as would have been remitted or refunded if the tenement had been separately assessed.
+[^159][77A.] Notice to be given of the circumstances in which remission or refund is claimed.
+[^159][No remission or refund under [^160][* *] section 76, or section 77] shall be made unless notice in writing of the [^160][fact that the building, land or tenement has become vacant and un-productive of rent] has been given to the [^157][Board], and no remission or refund shall take effect in respect of any period commencing more than fifteen days before the delivery of such notice.
+
+[^157]: Subs. omitted and repealed by Act No. XXIV of 1936, ss. 69 and 30.
+[^158]: Subs. by Act No. XLVII of 2023, ss.27,28 and 29.
+[^159]: Subs. by Act No. XXVI of 1927, s. 11.
+[^160]: Repealed and subs. by Act No. VII of 1931, s. 5.

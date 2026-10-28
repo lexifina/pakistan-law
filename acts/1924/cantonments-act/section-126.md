@@ -1,0 +1,5 @@
+126. Power to require buildings, wells, etc., to be rendered safe. Where in a cantonment any building, or wall, or any thing affixed thereto, or any well, tank, reservoir, pool, depression, or excavation, or any bank or tree, is, in the opinion of the [^214][Board] [^217][in a ruinous state or], for want of sufficient repairs, protection or enclosure [^217][a nuisance or], dangerous to persons passing by or dwelling or working in the neighbourhood the [^214][Board] [^218][by notice in writing may], require the owner [^214][or part‑owner or person claiming to be the owner or part‑owner thereof, or, failing any of them, the occupier] [^218][thereof to remove the same, or may require him to repair], [^214][or to protect or to enclose] the same in such manner as it thinks necessary ; and, if the danger is, in the opinion of the [^214][Board], imminent, it shall forthwith take such steps as it thinks necessary to avert the same.
+
+[^214]: Subs. and ins.by Act No. XXIV of 1936, ss. 69 and 38.
+[^217]: Ins. by Act No. VII of 1925, s.7.
+[^218]: Subs. by Act No. VIII of 1944, s. 6.

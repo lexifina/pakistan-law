@@ -1,0 +1,1 @@
+288. Validity of notices and other documents. No notice, order, requisition, licence, permission in writing or other such document issued under this Act shall be invalid merely by reason of any defect of form.

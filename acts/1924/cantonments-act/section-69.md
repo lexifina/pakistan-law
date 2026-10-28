@@ -1,0 +1,4 @@
+69. Authentication of assessment list. (1) When all objections made under section 68 have been disposed of, and the revision of the valuation and assessment has been completed, the assessment list shall be authenticated by the signature of the members of the Assessment Committee who shall, at the same time, certify that they have considered all objections duly made and have amended the list so far as is required by their decisions on such objections.
+(2) The assessment list so authenticated shall be deposited in the office of the [^146][Board], and shall there be open, free of charge, during office hours to all owners, lessees and occupiers of property comprised therein or the authorised agents of such persons, and a public notice that it is so open shall forthwith be published.
+
+[^146]: Subs. and omitted by Act No. XXIV of 1936, ss. 69, 26 and 27.

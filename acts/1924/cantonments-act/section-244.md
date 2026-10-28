@@ -1,0 +1,5 @@
+244. Power to enter land adjoining land where work is in progress. (1) The Executive Officer of a cantonment may, with or without assistants or workmen, enter on any land within fifty yards of any work authorised by or under this Act for the purpose of depositing thereon any soil, gravel, stone or other materials, or of obtaining access to such work, or for any other purpose connected with the carrying on of the same.
+(2) The Executive Officer shall, before entering on any land under sub‑section (1), give the occupier, or, if there is no occupier, the owner not less than three days' previous notice in writing of his intention to make such entry, and shall state the purpose thereof, and shall, if so required by the occupier or owner, fence off so much of the land as may be required for such purpose.
+(3) The Executive Officer shall, in exercising any power conferred by this section, do as little damage as may be, and compensation shall be payable by the [^325][Board] to the owner or occupier of such land, or to both, for any such damage whether permanent or temporary.
+
+[^325]: Subs. by Act No. XXIV of 1936, s. 69.

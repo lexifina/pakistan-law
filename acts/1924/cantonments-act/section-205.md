@@ -1,0 +1,3 @@
+205. Penalty for using unlicensed market or slaughter-house. Whoever, knowing that any market or slaughter-house has been opened to the public without a licence having been obtained therefor when such licence is required by or under this Act, or that the licence granted therefor is for the time being suspended or that it has been cancelled, sells or exposes for sale any article in such market, or slaughters any animal in such slaughter-house, shall be punishable with fine which may extend to [^281][ten thousand] rupees and, in the case of a continuing offence, with an additional fine which may extend to [^281][five thousand] rupees for every day after the first during which the offence is continued.
+
+[^281]: Subs. by Act No. XLVII of 2023, ss. 63, 64 and 65.

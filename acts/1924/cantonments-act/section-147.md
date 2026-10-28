@@ -1,0 +1,7 @@
+147. Power to require closing of burial or burning ground. (1) Where a [^230][Board], after making or causing to be made local inquiry, is of opinion that any burial or burning ground in the cantonment has become offensive to, or dangerous to the health of, persons living in the neighbourhood, it may, with the previous sanction of the [^231][Federal Government], by notice in writing, require the owner or person in charge of such ground to close the same from such date as may be specified in the notice.
+(2) Where the [^231][Federal Government] sanctions the issue of any notice under sub‑section (1), it shall declare the conditions on which the burial or burning ground may be re‑opened, and a copy of such declaration shall be annexed to the notice.
+(3) Where the [^231][Federal Government] sanctions the issue of any such notice, it shall require a new burial or burning ground to be provided at the expense of the cantonment fund, or, if the community concerned is willing to provide a new burial or burning ground, the [^231][Federal Government] shall require a grant to be made from the cantonment fund towards the cost of the same.
+(4) No corpse shall be buried or burnt in any burial or burning ground in respect of which a notice issued under this section is for the time being in force.
+
+[^230]: Subs. by Act No. XXIV of 1936, s. 69.
+[^231]: Subs. by the Federal Adaptation of Laws Orders, 1975 (P.O No. 4 of 1975), Art. 2 and Table.

@@ -1,0 +1,9 @@
+73. Notice of transfers. (1) Whenever the title of any person primarily liable for the payment of a tax on the [^148][annual rental value] of any building or land to or over such building or land is transferred, the person whose title is transferred and the person to whom the same is transferred shall, within three months after the execution of the instrument of transfer or after its registration, if it is registered, or after the transfer is effected, if no instrument is executed, give notice of such transfer to the Executive Officer.
+(2) In the event of the death of any person primarily liable as aforesaid, the person on whom the title of the deceased devolves shall give notice of such devolution to the Executive Officer within six months from the death of the deceased.
+(3) The notice to be given under this section shall be in such form as the Executive Officer may direct, and the transferee or other person on whom the title devolves shall, if so required, be bound to produce before the Executive Officer any documents evidencing the transfer or devolution.
+(4) Every person whom makes a transfer as aforesaid without giving such notice to the Executive Officer shall continue liable for the payment of all taxes assessed on the property transferred until he gives notice or until the transfer has been recorded in the registers of the [^149][Board], but nothing in this section shall be held to affect the liability of the transferee for the payment of the said tax.
+1[(5) The Executive Officer shall record [^151][every transfer or devolution] of title notified to him under sub-section (1) or sub-section (2) in the assessment list and other tax registers of the Board.]
+
+[^148]: Subs. and omitted by Act No. XLVII of 2023, ss.24 and 25.
+[^149]: Ins. by the Act No. XXIV of 1936, ss. 27 and 69.
+[^151]: Subs. by the Repealing and Amending Act , 1940 (Act No. XXXII of 1940), s. 3 and 2nd Sch.

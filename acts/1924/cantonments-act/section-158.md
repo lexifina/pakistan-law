@@ -1,0 +1,2 @@
+158. Disinfection of public conveyance. (1) Where any person suffering from, or the corpse of any person who has died from, an infectious or contagious disease has been carried in a public conveyance which ordinarily plies in a cantonment, the driver thereof shall forthwith report the fact to the Executive Officer who shall forthwith cause the conveyance to be disinfected if that has not already been done.
+(2) No such conveyance shall be brought again into use until the Executive Officer has granted a certificate stating that it can be used without causing risk of infection.

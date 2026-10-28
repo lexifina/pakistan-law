@@ -1,0 +1,6 @@
+## Prevention of fire, etc.
+121. Use of inflammable materials for building purposes. (1) A [^212][Board] may, by public notice, direct that within such limits in the cantonment as may be specified in the notice, the roofs and external walls of huts or other buildings shall not, without the permission in writing of the [^212][Board], be made or renewed of grass, mats, leaves or other inflammable materials, and may, by notice in writing, require any person who has disobeyed any such direction as aforesaid to remove or alter the roofs or walls so made or renewed.
+(2) A [^212][Board] may, by notice in writing, require the owner of any building in the cantonment which has an external roof or wall made of any such material as aforesaid to remove such roof or wall within such time as may be specified in the notice, notwithstanding that a public notice under sub‑section (1) has not been issued or that such roof or wall was made with the consent of the [^212][Board] or before the issue of such public notice:
+Provided that, in the case of any such roof or wall in existence before the issue of such a public notice or made with the consent of the [^212][Board], that Authority shall make compensation, not exceeding the original cost of constructing the roof or wall, for any damage caused by the removal.
+
+[^212]: Subs. by Act No. XXIV of 1936, s. 69.

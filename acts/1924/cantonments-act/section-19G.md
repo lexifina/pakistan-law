@@ -1,0 +1,3 @@
+19G. Electoral rolls.__(1) The Election Commission shall prepare electoral rolls in accordance with the provisions of the Elections Act, 2017 (XXXIII of 2017) and rules made thereunder for the purposes of election to a Board or general seats.
+(2) The Election Commission may issue directions to adjust the electoral rolls or cause to prepare an electoral roll for any area forming part of a Board.
+(3) The electoral rolls shall not be rendered invalid by reason of any erroneous description contained therein of any person listed or of an omission of the name of any person entitled to be enrolled as a voter or of inclusion of the name of any person not so entitled.

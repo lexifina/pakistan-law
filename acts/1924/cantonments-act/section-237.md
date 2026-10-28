@@ -1,0 +1,3 @@
+237. Removal of lewd person from cantonment. If the [^313][Officer Commanding the station] is, after such inquiry as he thinks necessary, satisfied that any person residing in or frequenting the cantonment is a prostitute or has been convicted of an offence under section 236, or of the abetment of such an offence, he may cause to be served on such person an order in writing requiring such person to remove from the cantonment within such time as may be specified in the order, and prohibiting such person from re‑entering it without the permission in writing of the [^313][Officer Commanding the station].
+
+[^313]: Subs. by Act No. VII of 1925, ss. 10 and 14.

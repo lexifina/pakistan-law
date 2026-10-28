@@ -1,0 +1,5 @@
+258. Relief to agents and trustees. (1) Where any person, by reason of his receiving the rent of immoveable property as an agent or trustee, or of his being as an agent or trustee the person who would receive the rent if the property were let to a tenant, would under this Act be bound to discharge any obligation imposed on the owner of the property for the discharge of which money is required, he shall not be bound to discharge the obligation unless he has, or but for his own improper act or default might have had, funds in his hands belonging to the owner sufficient for the purpose.
+(2) The burden of proving any fact entitling an agent or trustee to relief under sub‑section (1) shall lie upon him.
+(3) Where any agent or trustee has claimed and established his right to relief under this section, the [^331][Board] may, by notice in writing, require him to apply to the discharge of such obligation as aforesaid the first monies which may come to his hands on behalf, or for the use, of the owner, and, on failure to comply with the notice, he shall be deemed to be personally liable to discharge the obligation.
+
+[^331]: Subs. by Act No. XXIV of 1936, s. 69.

@@ -1,0 +1,4 @@
+269. Cancellation and suspension of licences. Where any person to whom a licence has been granted under this Act or any agent or servant of such person commits a breach of any of the conditions thereof, or of any bye‑law made under this Act for the purpose of regulating the manner or circumstances in, or the conditions subject to, which anything permitted by such licence is to be or may be done, the [^338][Board] may, without prejudice to any other penalty which may have been incurred under this Act, by order in writing, cancel the licence or suspend it for such period as it thinks fit:
+Provided that no such order shall be made until an opportunity has been given to the holder of the licence to show cause why it should not be made.
+
+[^338]: Added and subs. by Act No. XXIV of 1936, ss. 63 and 69.

@@ -1,0 +1,1 @@
+165. Disposal of infected article without disinfection. No person shall, without previous disinfection of the same, give, lend, sell, transmit or otherwise dispose of to another person any article or thing which he knows or has reason to believe has been exposed to contamination by any infectious or contagious disease and is likely to be used in, or taken into, a cantonment.

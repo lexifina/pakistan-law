@@ -1,0 +1,7 @@
+58. Arrest of persons and seizure and confiscation of things for offences against the two
+last foregoing sections. (1) Any police officer or excise officer may, without an order from a Magistrate and without a warrant, arrest any person whom he finds committing an offence under section 56 or section 57, and may seize and detain any spirituous liquor or intoxicating drug in respect of which such an offence has been committed and any vessels or coverings in which the liquor or drug is contained.
+(2) Where a person accused of an offence under section 56 has been previously convicted of an offence under that section, an officer in charge of a police station may, with the written permission of a [^135][Magistrate of the first class], seize and detain any spirituous liquor or intoxicating drug within the cantonment or within any limits defined under that section which, at the time of the alleged commission of the subsequent offence, belonged to, or was in the possession of, such person.
+(3) The Court convicting a person of an offence under section 56 or section 57 may order the confiscation of the whole or any part of anything seized under sub-section (1) or sub-section(2).
+(4) Subject to the provisions of Chapter XLIII of the Code of Criminal Procedure, 1898 (V of 1898), anything, seized under sub-section (1) or sub-section (2) and not confiscated under sub-section (3) shall be restored to the person from whom it was taken.
+
+[^135]: Subs. by Federal Laws (Revision and Declaration) Ordinance, 1981 (Ordinance No. XXVI of 1981), s.3 and Sch. II.

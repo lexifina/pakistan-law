@@ -1,0 +1,3 @@
+24. Duties of the Executive Officer. The Executive Officer shall perform all the duties imposed upon him by or under this Act, and shall be responsible for the custody of all the records of the [^86][Board], and shall arrange for the performance of such duties relative to the proceedings of the Board or of any Committee of the Board or of any Committee of Arbitration constituted under this Act, as those bodies may respectively impose on him, and shall comply with every requisition of the [^86][Board] on any matter pertaining to the administration of the cantonment.
+
+[^86]: Subs. by Act No. XXIV of 1936, s. 69.

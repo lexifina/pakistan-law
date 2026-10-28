@@ -1,0 +1,3 @@
+70. Evidential value of assessment list. Subject to such alterations as may thereafter be made in the assessment list under the provisions of this Chapter and to the result of any appeal made thereunder, the entries in the assessment list authenticated and deposited as provided in section 69 shall be accepted as conclusive evidence__
+(i) for the purpose of assessing any tax imposed under this Act, of the annual value or other valuation of all buildings and lands to which such entries respectively refer, and
+(ii) for the purposes of any tax imposed on buildings or lands, of the amount of each such tax leviable thereon during the year to which such list relates.

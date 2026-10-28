@@ -1,0 +1,3 @@
+270. Recovery of amount payable in respect of damage to cantonment property. Where any person has incurred a penalty by reason of having caused any damage to the property of a [^338][Board], he shall be liable to make good such damage, and the amount payable in respect of the damage shall, in case of dispute, be determined by the Magistrate by whom the person incurring such penalty is convicted, and, on non‑payment of such amount on demand, the same shall be recovered by distress and sale of the moveable property of such persons, and the Magistrate shall issue a warrant for its recovery accordingly.
+
+[^338]: Added and subs. by Act No. XXIV of 1936, ss. 63 and 69.
