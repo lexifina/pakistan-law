@@ -1,0 +1,1 @@
+23. Removal of Difficulties.__ If any difficulty arises is giving effect to the provisions of this Act, the Chairman may make such orders, as may be deemed necessary for the purpose of removing the difficulty.

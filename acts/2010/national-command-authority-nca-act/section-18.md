@@ -1,0 +1,1 @@
+18. Declaration of fidelity and secrecy.__ All officers, employees, advisors, consultants and any other person appointed by the Authority in connection with the affairs of the Authority and affairs of the Strategic Organizations coming under the control and management of the Authority shall execute declaration of fidelity and secrecy in a prescribed manner.

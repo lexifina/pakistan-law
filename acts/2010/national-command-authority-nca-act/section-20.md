@@ -1,0 +1,1 @@
+20. Indemnity.__ No suit, prosecution or other legal proceedings shall lie against the Authority, the Chairman, Members, and employees in respect of anything which is done in good faith or intended to be done under this Act or the rules, instruction or directions made or issued there under.
