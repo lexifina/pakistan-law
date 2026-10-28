@@ -1,0 +1,5 @@
+3. Establishment of the Authority.—(1) On the commencement of this Act, there shall stand established an authority to be known as the Pakistan General Cosmetics Regulatory Authority to carry out the purposes of this Act.
+(2) The Authority shall be a body corporate, having perpetual succession and a common seal, with power to enter into contracts within its budgetary allocation following all the applicable rules and regulations, acquire or dispose of property, both movable and immovable, and may, by its name, sue or be sued.
+(3) The Authority shall be an autonomous body under the administrative control of the Ministry of Science and Technology with its headquarter at Islamabad.
+(4) The Authority may set up its sub-offices at Provincial capital and such other places, as it may deem necessary from time to time with the approval of the Federal Government.
+(5) The common seal of the Authority shall be kept in the custody of the president or such other persons as may be prescribed by rules and documents required or permitted to be executed under the common seal shall be specified and authenticated in such manner as may be prescribed by rules.

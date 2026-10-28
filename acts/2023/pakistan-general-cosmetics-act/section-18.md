@@ -1,0 +1,1 @@
+18. Employees.—To carry out the purposes of this Act, employees including officers and staff of the Authority shall be appointed on such terms and conditions of services as may be prescribed by rules.

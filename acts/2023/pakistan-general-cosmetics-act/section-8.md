@@ -1,0 +1,1 @@
+8. Business liberty.—The business of general cosmetics is related to the Intra-Provincial Trade. However, cosmetic firms or companies are at liberty to run their business, inside or outside Pakistan, under prevailing laws and rules made thereunder.

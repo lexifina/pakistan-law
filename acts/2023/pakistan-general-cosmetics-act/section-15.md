@@ -1,0 +1,1 @@
+15. Maintenance of accounts and audit.—The Authority shall maintain complete and accurate accounts and other relevant records in such manner and form as may be prescribed by the Federal Government in consultation with Auditor General of Pakistan which shall be audited by the Auditor-General of Pakistan.

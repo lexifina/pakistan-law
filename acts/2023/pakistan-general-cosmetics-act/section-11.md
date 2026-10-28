@@ -1,0 +1,1 @@
+11. Offences, penalties etc.—If any product is found to be counterfeit, the person who may be found involve in this process or liable to be punished with rigorous imprisonment of three years and fine up to five million rupees. The premises where these counterfeit products are being processed shall be sealed and machinery shall also be confiscated.
