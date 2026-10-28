@@ -1,0 +1,6 @@
+10. Notice of initiation of investigation. ⎯(1) Where the Commission has decided to initiate an investigation it shall ⎯
+(a) immediately notify the Federal Government of its decision and the Federal Government shall immediately notify the Committee of such decision in accordance with any requirements established by a Committee therefor; and
+(b) notify its decision by means of a public notice of initiation of an investigation.
+(2) The public notice of initiation of an investigation referred to in clause (b) of sub-section (1) shall be in such form and contain such information as may be prescribed and the initiation of an investigation shall be effective on the date on which such notice is published in the official Gazette:
+Provided that the Commission may, if it deems fit, only publish a summary of the public notice of initiation of an investigation referred to in clause (b) of sub-section (1) in the official Gazette provided that a full text of such notice is promptly placed in the public file to be maintained by it pursuant to section 15.
+(3) The Commission shall promptly provide a copy of the full text of public notice of initiation of an investigation referred to in clause (b) of sub-section (1) the Federal Government.

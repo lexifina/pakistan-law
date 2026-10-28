@@ -1,0 +1,1 @@
+6. Factors other than increased imports. When serious injury or threat of serious injury is being caused by factors other than increased imports of an investigated product, such injury shall not be attributed to the increased imports.

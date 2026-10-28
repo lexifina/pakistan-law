@@ -1,0 +1,2 @@
+32. Duration of definitive safeguard measure. A definitive safeguard measure shall be applied for a period of no more than four years, including the period of application of any provisional measure, unless it is extended as provided for in section 35:
+Provided that the total duration of a definitive safeguard measure, including the period of application of any provisional measure, the period of initial application, and any extension thereof pursuant to section 36, shall not exceed ten years.
