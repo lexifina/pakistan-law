@@ -1,0 +1,3 @@
+9. Removal of difficulties:___ (1) 1f any question arises as to the interpretation of any of the provisions of this Ordinance, it shall be placed before the Board of Trustees whose decision thereon shall be final.
+(2) If any difficulty arises in giving effect to any of the provisions of this Ordinance, the Board of Trustees may snake such order not inconsistent with the provisions of this Ordinance for removing the difficulty.
+(3) Where this Ordinance makes any provision for anything to be done but no provision or no sufficient provision has been made as respects the authority by whom, or at the time at which, or in the manner in which it shall be done, then, it shall be done by such authority, at such time, or in such manner as the University shall prescribe.

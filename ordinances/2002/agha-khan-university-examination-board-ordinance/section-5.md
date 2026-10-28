@@ -1,0 +1,4 @@
+5. Supervision of the Examination Board:___ (1) There shall be a Board of Director of the Examination Board, or its equivalent, which shall be subject to the supervision of the Board of Trustees. The Board of Trustees shall have the power to delegate such of its powers hereunder to such persons, group of persons or entities, from time to time, as it shall, in its sole discretion, prescribe;
+(2) There shall be a head of the Examination Board to be appointed by the Chief Executive Officer of the University on such terms and condition as determined by him in accordance with a process approved by the Board of Trustees.
+(3) The Chairman of the' Inter-Board Committee of Chairmen (IBCC) or his nominee, who is also a member of IBCC, shall be a member of the Board of Directors of the Examination Board or its equivalent.
+(4) The head of the Examination Board shall be a member of the Inter-Board Committee of Chairmen (IBCC).
