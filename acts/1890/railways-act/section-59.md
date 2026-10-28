@@ -1,0 +1,11 @@
+59. Dangerous or offensive goods.—(1) No person shall be entitled to take with him, or to require a [^62][licensee] to carry, any dangerous or offensive goods upon a railway.
+(2) No person shall take any such goods with him upon a railway without giving notice of their nature to the stationmaster or other [^62][railway employee] in charge of the place where he brings the goods upon the railway, or shall tender or deliver any such goods for carriage upon a railway without distinctly marking their nature on the outside of the package containing them or otherwise giving notice in writing of their nature to the [^64][railway employee] to whom he tenders or delivers them.
+(3) Any [^64][railway employee] may refuse to receive such goods for carriage, and, when such goods have been so received without such notice as is mentioned in [^65][sub-section (2)] having to his knowledge been given, may refuse to carry them or may stop their transit,
+(4) If any [^64][railway employee] has reason to believe any such goods to be contained in a package with respect to the contents whereof such notice as is mentioned in sub-section (2) has not to his knowledge been given, he may cause the package to be opened for the purpose of ascertaining its contents,
+(5) Nothing in this section shall be construed to derogate from the Explosives Act, 1884, (V of 1884) or any rule under that Act, and nothing in sub-sections (1), (3) and (4) shall be construed to apply to any goods tendered or delivered for carriage by order or on behalf of the Government or to any goods which an officer, soldier, sailor, [^66][airman] or police-officer or [^67][a member of the Pakistan National Guard,] may take with him upon a railway in the course of his employment or duty as such.
+
+[^62]: Subs. by Ord. 92 of 02, s.44 & Sch.II.
+[^64]: Subs. by Ord. 92 of 02, s.44 & Sch.II.
+[^65]: Subs. by the Indian Railways Act, (1890) Amendment Act, 1896 (9 of 1896), s. 3, for “sub-section (1)”.
+[^66]: Ins. by the Repealing and Amending Act, 1927 (10 of 1927), s. 2 and Sch. I.
+[^67]: The original words and figures “a person enrolled as a volunteer under the Indian Volunteers Act, 1869,” were first subs. by the Repealing and Amending Act, 1923 (11 of 1923). s.2 and Sch. I and then amended by A. O., 1949, Sch., to read as above.

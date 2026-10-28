@@ -1,0 +1,4 @@
+56. Disposal of unclaimed things on a railway.—(1) When any animals or goods have come into the possession of a [^61][licensee] for carriage or otherwise and are not claimed by the owner or other person appearing to the [^61][licensee] to be entitled thereto, the [^61][licensee] shall, if such owner or person is known, cause a notice to be served upon him, requiring him to remove the animals or goods.
+(2) If such owner or person is not known, or the notice cannot be served upon him, or he does not comply with the requisition in the notice, the [^61][licensee] may within a reasonable time, subject to the provisions of any other enactment for the time being in force, sell the animals or goods as nearly as may be under the provisions of the last foregoing section, rendering the surplus, if any, of the proceeds of the sale to any person entitled thereto.
+
+[^61]: Subs. by Ord. 92 of 02, s.44 & Sch.II.

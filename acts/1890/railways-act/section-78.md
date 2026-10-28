@@ -1,0 +1,3 @@
+78. Exoneration from responsibility in case of goods falsely described. Notwithstanding anything in the foregoing provisions of this Chapter, a [^91][licensee] shall not be responsible for the loss, destruction or deterioration of any goods with respect to the description of which an account materially false has been delivered under sub-section (1) of section 58 if the loss, destruction or deterioration is in any way brought about by the false account, nor in any case for an amount exceeding the value of the goods if such value were calculated in accordance with the description contained in the false account.
+
+[^91]: Subs. by Ord. 92 of 02, s.44 & Sch.II.

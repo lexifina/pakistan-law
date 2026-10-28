@@ -1,0 +1,19 @@
+[^132]113.Travelling without pass or ticket or with insufficient pass or ticket or beyond authorized
+distance.—(1) If a passenger travels in a train without having a proper pass or a proper ticket with him, or, being in or having alighted from a train, fails or refuses to present for examination or to deliver up pass or ticket immediately on requisition being made therefor under section 69, he shall be liable to pay, on the demand of any [^133][railway employee] appointed by the [^133][licensee] in this behalf, the excess charge hereinafter in this section mentioned, in addition to the ordinary single fare [^134][from the station from which the train originally started [^135]* * * [^143][.] [^136]* * *.
+(2) If a passenger travels or attempts to travel in or on a carriage, or by a train, of a higher class than that for which he has obtained a pass or purchased a ticket, or travels in or on a carriage beyond the place authorised by his pass or ticket, he shall be liable to pay, on the demand of any [^133][railway employee] appointed by the [^133][licensee] in this behalf, the excess charge hereinafter in this section mentioned, in addition to any difference between any fare paid by him and the fare payable in respect of such journey as he has made.
+[^137][(3) The excess charge referred to in sub-section (1) and sub-section (2) shall be a sum equivalent to the amount otherwise payable under those sub-sections. [^135]* * *
+Provided that where the passenger has immediately after incurring the charge and before being detected by a [^133][railway employee] notified to the [^133][railway employee] on duty with the train the fact of the charge having been incurred, the excess charge shall be one-sixth of the excess charge otherwise payable calculated to the nearest [^135][rupee].
+Provided further that if the passenger has with him a certificate granted under sub- section (2) of section 68, no excess charge shall be payable.]
+(4) If a passenger liable to pay the excess charge and fare mentioned in sub-section (1), or the excess charge and any difference of fare mentioned in sub-section (2), fails or refuses to pay the same on demand being made therefor under one or other of those sub-sections, as the case may be, [^138][any [^133][railway employee] appointed by the [^133][licensee] in this behalf may apply to [^139][any [^140]* * [^141][or] Magistrate of the first or second class] for the recovery of the sum payable as if it were a fine, and the Magistrate if satisfied that the sum is payable shall order it to be so recovered, and may order that the person liable for the payment shall in default of payment suffer imprisonment of either description for a term which may extend to one month. Any sum recovered under this sub-section shall, as it is recovered, be paid to the [^133][licensee]].
+
+[^132]: Cf. the French and German Railway Law.
+[^133]: Subs. by ord. 92 of 02, s. 44 & sch. II.
+[^134]: Subs. by the Railways (Amdt.) Act, 1957 (26 of 1957), s. 4, for certain words.
+[^135]: Omitted and Subs. by Act. IV of 1995, s.25.
+[^136]: Certain words omitted, by Ord. 2 of 1948,s.2.
+[^137]: Subs. by Act 6 of 1941, s. 4, for the original sub-section (3).
+[^138]: Subs. by the Indian Railways (Amdt.) Act, 1941 (6 of 1941), s. 4, for “the sum payable by him shall, on application made to any Magistrate by any railway employee appointed by the railway administration in this behalf, be recovered by the Magistrate from the passenger as if it were a fine imposed on the passenger by the Magistrate and shall, as it is recovered, be paid to the railway administration”.
+[^139]: Subs. by the Repealing and Amending Act, 1945 (6 of 1945), for “any Magistrate of the first or second class”.
+[^140]: The words “Presidency Magistrate” omitted by the Repealing and Amending Ordinance, 1961 (1 of 1961), s. 3 and 2nd Sch.
+[^141]: Seems to be redundant.
+[^143]: Subs. by Ord. 2 of 1948,s.2,for Comma.

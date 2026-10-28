@@ -1,0 +1,3 @@
+63. Maximum number of passengers for each compartment. Every [^72][licensee] shall fix, subject to the approval of the [^72][Authority], the maximum number of passengers which may be carried in each compartment of every description of carriage, and shall exhibit the number so fixed in a conspicuous manner inside or outside each compartment, in English or in one or more of the vernacular languages in common use in the territory traversed by the railway, or both in English and in one or more of such vernacular languages as the [^72][Authority], after consultation with the [^72][licensee], may determine.
+
+[^72]: Subs. by Ord. 92 of 02, s.44 & Sch.II.

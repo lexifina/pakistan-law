@@ -1,0 +1,4 @@
+67. Provision for case in which tickets have been issued for trains not having room
+available for additional passengers.— (1) Fares shall be deemed to be accepted, and tickets to be issued, subject to the condition of there being room available in the train for which the tickets are issued.
+(2) A person to whom a ticket has been issued and for whom there is not room available in the train for which the ticket was issued shall on returning the ticket within three hours after the departure of the train be entitled to have his fare at once refunded.
+(3) A person for whom there is not room available in the class of carriage for which he has purchased a ticket and who is obliged to travel in a carriage of a lower class shall be entitled on delivering up his ticket to a refund of the difference between the fare paid by him and the fare payable for the class of carriage in which he travelled.
