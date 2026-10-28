@@ -1,0 +1,2 @@
+7. Hospitals to be notified. ___ The Government shall, by notification in the official Gazette, notify the Government hospitals having in-patient beds and also having facilities to deal with the emergencies to provide medical aid and treatment to the injured persons:
+Provided that in areas where above referred facility is not available, a rural health center established by a Government or a local government in that area having facility to deal with the emergencies, may be notified as hospital for the purposes of this Act.

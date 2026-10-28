@@ -1,0 +1,2 @@
+4. Non-interference by the police.___ No police official or officer shall interrupt or interfere during the period an injured person is under treatment in a hospital except with the written permission of the Incharge of the hospital:
+Provided that such permission shall not be given unless it is necessary in connection with an investigation which may be carried out in the hospital so long as the injured person is under treatment.

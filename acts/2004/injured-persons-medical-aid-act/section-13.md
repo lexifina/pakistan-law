@@ -1,0 +1,1 @@
+13. Instructions.―The Government may issue instructions from time to time to carry out the purposes of this Act and the defaulting doctor or the police official or officer shall be liable to disciplinary action for contravention of such instructions, besides the penalty to which he may be liable under section 11.

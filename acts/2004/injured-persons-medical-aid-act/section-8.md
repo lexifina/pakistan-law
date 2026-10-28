@@ -1,0 +1,2 @@
+8. The injured person not to be taken to a police station.___ (1) Under no circumstances an injured person be taken to a police station before necessary medical aid and treatment is given.
+(2) The police officer is bound to ensure that the injured person is treated in a hospital as provided in this Act before any medico-legal procedure is undertaken. The police officer shall not in any way influence the doctor or to give any opinion about the type and details of injury of the injured person.
