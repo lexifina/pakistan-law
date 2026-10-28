@@ -1,0 +1,1 @@
+2. Application.— This Act shall apply to the works, lands and buildings owned or acquired by, vested in or in the possession of the Federal Government in the specified area and the schemes developed or re-developed under this Act.

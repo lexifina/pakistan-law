@@ -1,0 +1,3 @@
+15. Committees and sub-committees.—(1) The Chairman may constitute committees and sub-committees and assign specific tasks to the said committees’ or sub­committees for efficient performance of the functions of the Authority. The committees or sub-committees, so constituted, shall perform their mandated tasks in the manner to be specified by the Chairman.
+(2) A committee or sub-committee may comprise one or more members of the Policy Board, employees of the Authority and/or such experts or persons as the Chairman may consider appropriate for the relevant mandate of the said committee or sub-committee.
+(3) The committees or sub-committees, as applicable, shall submit their reports to the Chairman.

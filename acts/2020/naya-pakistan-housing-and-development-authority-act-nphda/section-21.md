@@ -1,0 +1,1 @@
+21. Re-development schemes.— (1) The Authority may undertake re-development (including renewal, re-construction, or upgradation) of whole or a part of a scheme. (2) The provisions of this Act for development of a scheme shall, with necessary changes, apply to re-development under sub-section (1).

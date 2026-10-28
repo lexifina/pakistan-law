@@ -1,0 +1,11 @@
+36. Administrative penalties.— (1) An Adjudicator may, in the prescribed manner, issue directions to any person for compliance with any provision of this Act, the rules or regulations within the time and in the manner specified in such directions.
+(2) If a person fails to comply with any direction of the Adjudicator within such time as may be specified in such direction or where violation is declared as grave under the regulations, the Adjudicator may pass one or more of the following orders, namely:—
+(a) direct the delinquent person to pay a fine as administrative penalty which may extend to one hundred thousand Rupees and in case the failure continues, with an additional fine which may extend to five thousand Rupees for every day during which such failure continues after the direction to pay fine for the first such failure is passed;
+(b) direct initiation of prosecution against the delinquent person for the offence under section 33;
+(c) seal (for a specified or unspecified period) the immovable property where violation of this Act, rules or regulations has taken place;
+(d) direct the relevant employee of the Authority, a civic or utility agency to stop or discontinue the provision of municipal or utility services to the immovable property in occupation of the delinquent person till such time as the violation continues;
+(e) direct removal or construction of any structure by the Authority;
+(f) direct the enforcement inspector to dispossess an unauthorized occupant from an immovable property and hand over peaceful possession of the property to the person entitled to the possession of the property; and
+(g) direct cancellation of lease or allotment of the delinquent person and resumption of possession of the immovable property by the Authority.
+(3) The Adjudicator shall take cognizance of a case on the report of an enforcement inspector or an employee authorized by the Authority which shall contain documentary evidence of the violation and identification of the delinquent person.
+(4) The Adjudicator shall not pass any final direction or order without issuing a show-cause notice in writing and affording an opportunity of hearing to the delinquent person, in the prescribed manner.

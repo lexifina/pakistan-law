@@ -1,0 +1,1 @@
+59. Removal of Difficulties.— If any difficulty arises in giving effect to any provision of this Act, the Authority may, at any time, make such order, not inconsistent with provisions of this Act and any rules made hereunder, as may appear to it to be necessary for the purpose of removing the difficulty.

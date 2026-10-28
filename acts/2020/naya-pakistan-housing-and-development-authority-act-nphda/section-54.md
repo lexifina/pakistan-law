@@ -1,0 +1,1 @@
+54. Public servants.— The Chairman, a member, Adjudicator, enforcement inspector, Registrar and an employee, expert or consultant of the Authority shall when acting or purporting to act in pursuance of any of the provisions of this Act, be deemed to be public servants within the meaning of section 21 of the Pakistan Penal Code, 1860 (Act XLV of 1860).

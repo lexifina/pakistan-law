@@ -1,0 +1,1 @@
+34. Offences to be cognizable and bailable.— Notwithstanding anything contained in the Code of Criminal Procedure, 1898 (Act V of 1898), offences under this Act shall be bailable and cognizable by the magistrate first class on the complaint of an employee authorized by the Authority.

@@ -1,0 +1,2 @@
+41. Adjudicator.— (1) TheAuthority shall appoint one or more Adjudicators for a specified area and if the Authority appoints more than one Adjudicators for a specified area, it shall specify jurisdiction of each Adjudicator. The qualifications and terms and conditions of appointment as Adjudicator shall be prescribed through regulations.
+(2) The Adjudicator shall hear and decide a case referred to him by the Chairman, Registrar or an enforcement inspector under this Act, rules or regulations.
