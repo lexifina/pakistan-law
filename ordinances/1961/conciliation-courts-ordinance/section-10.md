@@ -1,0 +1,1 @@
+10. Procedure on failure of conciliation. Where a certificate is issued that conciliation has failed, either under clause (b) of sub-section (4) of section 5 or under sub-section (3) of section 8, any party to the dispute may seek its remedy in the court in which it would in law be entitled to seek such remedy if this Ordinance had not been promulgated.

@@ -1,0 +1,6 @@
+11. Power of Conciliation Courts to summon witnesses, etc.—(1) A Conciliation Court may issue summons to any person to appear and give evidence, or to produce or cause the production of any document:
+Provided that—
+(a) no person who is exempt from personal appearance in Court under sub-section (1) of section 133 of the Code of Civil Procedure, 1908 (Act V of 1908), shall be required to appear in person ;
+(b) a Conciliation Court may refuse to summon a witness or to enforce a summons already issued against a witness when in the opinion of the Court the attendance of the witness cannot be procured without such delay, expense or inconvenience as in the circumstances would be unreasonable ;
+(c) a Conciliation Court shall not require any person living beyond its jurisdiction to give evidence or to produce or cause the production of a document unless such sum of money is deposited for payment to him as the Court would think sufficient for defraying his travelling and other expenses.
+(2) If any person to whom a Conciliation Court has issued summons to appear and give evidence or to produce or cause the production of any document before it wilfully disobeys such summons, the Conciliation Court may take cognizance of such disobedience, and, after giving such person an opportunity to explain, sentence him to a fine not exceeding twenty-five rupees.
