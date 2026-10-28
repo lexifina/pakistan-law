@@ -1,0 +1,1 @@
+4. Act to override other laws.—The provisions of this Act shall have effect notwithstanding anything contained in the Companies Act, 1913, or the Companies (Managing Agency and Election of Directors) Order, 1972 (P.O. No. 2 of 1972), or any other law for the time being in force or in any agreement, contract, memorandum or articles of association of a company.

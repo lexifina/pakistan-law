@@ -1,0 +1,1 @@
+21. Right of shareholders.—Any person having a share or a proprietary interest in a managed establishment shall be entitled to complain to the Board or the Federal Government in respect of any action taken by the Managing Director in relation to the affairs of the establishment.

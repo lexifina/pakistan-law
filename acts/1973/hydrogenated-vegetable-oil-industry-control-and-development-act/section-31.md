@@ -1,0 +1,1 @@
+31. Saving.—Nothing contained in this Act shall affect any agreement entered into between the Federal Government and a foreign investor or creditor or any agreement between a foreign investor or creditor and any citizen of Pakistan which has been expressly approved by the Federal Government.

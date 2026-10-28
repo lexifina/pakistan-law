@@ -1,0 +1,14 @@
+5. Power to take over management or acquire shares of business of an establishment.—(1) The Federal Government may, by an order,—
+(a) take over the management of any establishment and, as from the date of such order, the previous management shall stand divested of such management;
+(b) in the case of an establishment which is a company or an establishment owned by a company—
+(i) acquire the whole or a portion of the shares from all or any of the shareholders of such company and, as from the date of such order, the shares so acquired shall vest in the Federal Government, or
+(ii) acquire the whole or a portion of the proprietary interests of such company in such establishment and, as from the date of such order, the interests so acquired shall vest in the Federal Government; and
+(c) in the case of an establishment owned by a person acquire the whole or a portion of the proprietary interests of such person, and as from the date of the order the interests so acquired shall vest in the Federal Government:
+Provided that no order shall be made under this section for the acquisition of the shares held in an establishment by an institution owned or controlled by Federal Government including the National Investment Trust and the Investment Corporation of Pakistan or the shares held by a foreign investor:
+Provided further in the case of an establishment which is a company or an establishment owned by a company, the Federal Government may, by notification in the official Gazette, exempt from acquisition shareholdings of shareholders up to such maximum amount, not exceeding in the aggregate forty-nine per cent of the paid-up share capital of the company, as may be specified in the notification.
+[^2][Explanation.—In this sub-section and section 31 “foreign investor means a person, other than a citizen of Pakistan, who has made investment in Pakistan and to whom—
+(a) the Federal Government has given an assurance that he will have the right to repatriate from Pakistan the amount of his investment or the income arising therefrom or both such amount and such income; or
+(b) the Federal Government has not given such assurance, but whom it has assured that, in the event of compulsory acquisition of the shares held in an establishment by the shareholders, he will not be treated less favourably than an investor to whom such assurance had been given.].
+(2) Where the Federal Government makes an order under sub-section (1) in respect of the shares of any company, no dealings or business relating to such shares shall be transacted on any stock exchange and no transfer of such shares shall be registered in the share register of the company for a period of ninety days from the date of such order or such shorter period as may be notified by Government.
+
+[^2]: Added by the Hydrogenated Vegetable Oil Industry, (Control and Development) (Amdt.) Ordinance, 1979 (4 of 1979), s. 3.

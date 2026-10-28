@@ -1,0 +1,1 @@
+17. Prohibition to obstruct. No person shall, except under the authority of the Federal Government give any instruction to a Managing Director, nor shall any person in any manner obstruct him in the discharge of his functions.
