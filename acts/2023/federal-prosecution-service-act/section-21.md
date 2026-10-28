@@ -1,0 +1,1 @@
+21. Transfer of work. ___ Where a federal agency empowered to investigate criminal offences under any law for the time being in force is notified by the Government under section 2 of the Act, all prosecution work related to the said agency shall be taken over by the Federal Prosecution Service.
