@@ -1,0 +1,7 @@
+[^3][7. W. P. Ordinance No. VI of 1968 to apply to road transport service.—The provisions of Standing Orders 10B, 10C, 12, other than those contained in clause (2) thereof, 13, 14, other than the proviso thereto, and 15 of the West Pakistan Industrial and Commercial Employment (Standing Orders) Ordinance, 1968 (W.P. Ordinance No. VI of 1968), as in force for the time being, shall apply to every road transport service as if such road transport service were an industrial establishment to which the aforesaid Ordinance had been applied by a notification under clause (c) of sub-section (4) of section 1 thereof, and as if a worker was a workman or permanent workman, as the case may be, within the meaning of that Ordinance:
+Provided that for the purpose of calculating the period for which gratuity is due under Standing Order 12, no period of service preceding the commencement of the Road Transport Worwers (Amendment) Act, 1975, shall be taken into account:
+Provided further that Standing Order 10B, or 10C, or Standing Order 12, in so far as it relates to gratuity, shall apply only to a road transport service wherein the workers and the other persons employed on any day within the twelve months immediately preceding the commencement of the said Act were, or on the day of commencement of the said Act or on any day thereafter are,__
+(a) in the case of Standing Order 10B, more than forty-nine: or
+(b) in the case of Standing Orders 10C, and 12, more than nineteen]
+
+[^3]: Subs by Act No. XII of 1975, s.5.

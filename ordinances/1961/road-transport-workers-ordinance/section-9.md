@@ -1,0 +1,1 @@
+9. Inspection of registers and calling for information.—It shall be the duty of every employer to produce for inspection of such inspectors as may be appointed by the Government all accounts or other records required to be kept for the purposes of this Ordinance and to give to such officer any other information in connection therewith as may be required.

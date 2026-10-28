@@ -1,0 +1,2 @@
+6. Leave.—(1) In addition to the period of daily and weekly rest, every worker, who has been in continuous employment for a period of one year, shall be entitled to not less than 14 days’ leave with full pay or, if he has been continuously employed for a period of six months, he shall be entitled to not less than seven days’ leave with full pay.
+(2) For the purpose of computing the period during which a worker has been in continuous employment within the meaning of sub-section (1), the period during which he was on leave under this section shall be included.
