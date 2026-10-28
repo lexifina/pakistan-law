@@ -1,0 +1,1 @@
+9. Penalty.___Whoever contravenes the provisions of section 3 or section 4 or section 5 or section 6 or section 7 shall be punishable with imprisonment which may extend to one year or with fine not exceeding two thousand rupees, or with both.
