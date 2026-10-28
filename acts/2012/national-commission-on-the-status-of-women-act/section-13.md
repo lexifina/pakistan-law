@@ -1,0 +1,3 @@
+13. Appointment of Committees of the Commission.__ (1) There shall be an Executive Committee of the Commission consisting of the Chairperson and three other members to be appointed by the Commission which shall be responsible to oversee the implementation of the decisions and recommendations of the Commission.
+(2) The Commission may establish such other Committees from amongst its members as it deems fit and may refer to them any matter for consideration and report. The Commission may, if it considers necessary, co-opt to a Committee any person possessing special knowledge and expertise on the relevant subject.
+(3) All Committees except the executive Committee will be time bound.
