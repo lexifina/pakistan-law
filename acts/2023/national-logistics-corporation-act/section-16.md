@@ -1,0 +1,1 @@
+16. Directions by the Government in case of emergencies etc.—In case of emergency, extraordinary circumstances, or to achieve strategic objectives, the Government may direct the Corporation to discharge such functions, works or activities as have been set out under this Act, or for matter connected therewith or ancillary thereto.

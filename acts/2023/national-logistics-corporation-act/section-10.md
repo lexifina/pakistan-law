@@ -1,0 +1,2 @@
+10. Appointment of the Director General.—The Prime Minister shall, upon recommendation of the Chief of the Army Staff, appoint a serving Major General of the Pakistan Army on such terms and conditions, as may be determined by the Prime Minister:
+Provided that the incumbent Director General of the National Logistic Cell shall continue to serve as Director General of the Corporation, till the next appointment is made by the Prime Minister, under this section.

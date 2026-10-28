@@ -1,0 +1,1 @@
+23. Indemnity and Bar of Suit.—No suit, prosecution or legal proceeding shall lie against the Board, the Chairperson of the Board, the OIC, the Director General or other Members, officers, staff, employees, consultants or advisors of the Corporation, in respect of anything done or intended to be done in good faith under this Act, or the rules and regulations hereunder.

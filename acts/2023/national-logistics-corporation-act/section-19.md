@@ -1,0 +1,2 @@
+19. Government contracting.—(1) The Corporation may bid for, seek, apply, solicit or otherwise participate in Government projects and contracts, or part thereof, from time to time, in accordance with applicable law.
+(2) Notwithstanding anything contained in this or any other law for the time being in force, the Government may directly award the Corporation any project or contracts under sections 15, 16 and 17 of this Act.

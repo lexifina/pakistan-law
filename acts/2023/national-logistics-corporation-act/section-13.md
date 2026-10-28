@@ -1,0 +1,2 @@
+13. Accounts and Audit.—(1) The Corporation shall prepare its budget, with respect to each financial year, and shall maintain complete and accurate books of accounts of their actual expenses, income, payments, receipts, assets and liabilities, in such manner as may be prescribed.
+(2) The annual accounts of the Corporation shall be audited by the Auditor General of Pakistan, in terms of Article 169, 170 and 171 and if required from a reputable firm of Chartered Accountants, within the Chartered Accountants Ordinance, 1961 (X of 1961), appointed by the Board.
