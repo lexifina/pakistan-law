@@ -1,0 +1,1 @@
+7. Forms of Letters of Administration and Succession Certificates.—Letters of Administration and Succession Certificates shall be issued, as nearly as circumstances admit, in the forms prescribed by the Authority.
