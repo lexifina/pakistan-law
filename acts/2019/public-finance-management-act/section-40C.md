@@ -1,0 +1,2 @@
+40C. Deposit in Federal Consolidated Fund.—(1) Subject to section 40B, the revenue collection offices shall deposit the collected amounts in Federal Consolidated Fund promptly without delay in prescribed manner under the head of account specified by the Finance Division in consultation with the Controller General of Accounts.
+(2) The revenue collection offices shall not retain or appropriate the collected amounts to meet departmental expenditures except through budgetary mechanism as provided under Articles 80 to 83 of the Constitution.

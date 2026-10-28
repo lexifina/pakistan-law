@@ -1,0 +1,2 @@
+16. Technical approval.—(1) All development project proposals shall be subject to a technical approval process. Technical approval shall only be granted to projects which are compliant with the standards and procedures set by the Planning Commission.
+(2) Findings and recommendations of the independent quality assurance reports and cost and benefit analysis and risk assessment, where required as per sub-section (2) section 14, shall be taken into account by these forums while considering the development project proposals.

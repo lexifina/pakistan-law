@@ -1,0 +1,1 @@
+43. Budget manual.—Within a period of six months from commencement of this Act, the Finance Division shall approve a budget manual, to be published as well as placed on the Federal Government’s website.

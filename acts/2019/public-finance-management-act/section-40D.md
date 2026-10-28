@@ -1,0 +1,2 @@
+40D. Late payment surcharge.—(1) Notwithstanding anything to the contrary contained in any other law for the time being in force, an amount equal to monthly weighted financing cost of Government’s domestic borrowings shall be payable during the period of default, in addition to the amount due under section 40B if not paid within the stipulated time.
+(2) Finance Division may prescribe procedure for levy and collection of the surcharge under sub-section (1).

@@ -1,0 +1,1 @@
+22. Custody of the Federal Consolidated Fund and Public Account of the Federation.— The operation of the Federal Consolidated Fund and the Public Account of the Federation shall vest in the Finance Division under the overall supervision of the Federal Government.

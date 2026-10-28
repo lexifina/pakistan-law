@@ -1,0 +1,2 @@
+19. Budgetary provision for maintenance of assets.—(1) Every Ministry and Division shall include in its demands for grants adequate funds dedicated for operation and maintenance of the physical infrastructure assets under its supervision.
+(2) The Planning Commission shall define adequacy requirements for different categories of physical infrastructure expressed as the ratio of the annual provision for maintenance and the current market value of the asset.

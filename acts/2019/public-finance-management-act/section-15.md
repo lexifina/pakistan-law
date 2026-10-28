@@ -1,0 +1,1 @@
+15. Quality assurance.—Development project proposals which exceed in their total cost thresholds defined by the Planning Commission shall be subject to quality assurance. Such quality assurance shall be undertaken by an individual/body which is independent of the sector/Ministry/Division that has initiated the preparation of the development project proposal.

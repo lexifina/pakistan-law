@@ -1,0 +1,1 @@
+40. Dissolution of public entity.—Where the public entity established under any law or legal instrument stands dissolved or has been wound up, any monies or other resources standing to the credit of the public entity at the time of dissolution or winding up shall be paid into the Federal Consolidated Fund.

@@ -1,0 +1,2 @@
+17. Inclusion of development projects in demands for grants.—(1) No development project shall be considered for inclusion in demands for grants that has not been granted technical approval.
+(2) No development project shall be considered for inclusion in demands for grants unless it is provided with a budget allocation for the coming year which fully reflects the proposed project cost for each year.
