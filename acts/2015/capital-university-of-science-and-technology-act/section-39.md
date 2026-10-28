@@ -1,0 +1,2 @@
+39. Disputes about membership of authorities.⸺(1) Notwithstanding anything contained in this Act, a person nominated or appointed to any authority shall cease to be member of such authority as soon as he cease to hold the position by virtue of which he was nominated or appointed.
+(2) If a question arises whether any person is entitled to be a member of any authority, the matter shall be referred to a committee consisting of the Chancellor, two nominees of the Board and a nominee of the Vice-Chancellor and the decision of the committee thereon shall be final and binding.
