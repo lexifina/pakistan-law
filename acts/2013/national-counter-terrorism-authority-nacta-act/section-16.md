@@ -1,0 +1,1 @@
+16. Maintenance of accounts and internal control.____ The Authority shall maintain complete and accurate books of accounts in connection with the discharge of its responsibilities as may be prescribed by the Auditor-General of Pakistan.

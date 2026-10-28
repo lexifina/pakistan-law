@@ -1,0 +1,2 @@
+15. Budget for the Authority.____ (1) The National Coordinator shall, in respect of each financial year in accordance with the financial procedures approved by the Board, prepare the annual budget estimates of the Authority and submit the same to the Federal Government after the approval of the Board.
+(2) The National Coordinator shall have full powers to incur expenditures and re-appropriate funds as per system of financial control and budgeting of the Federal Government with the approval of the Board.

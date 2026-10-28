@@ -1,0 +1,3 @@
+10. Deputy National Coordinator.___(1) There shall be a Deputy National Coordinator of the Authority to be appointed by the Federal Government for a tenure of three years.
+(2) The Deputy National Coordinator shall be an eminent professional of known integrity and competence in BPS-21or equivalent and may be appointed in rotation from bureaucracy or Police Service of Pakistan.
+(3) The National Coordinator may delegate any of his powers under sub-section (1) of Section 9 to the Deputy National Coordinator with the approval of the Board subject to such conditions and limitations as may be specified in this behalf by the board.

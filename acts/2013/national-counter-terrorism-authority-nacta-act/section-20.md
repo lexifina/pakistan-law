@@ -1,0 +1,1 @@
+20. lndenmity.___ No prosecution, suit or other legal proceedings shall lie against the Authority or its officers and consultants for anything done in good faith for carrying out the purposes of this Act or rules and regulations made thereunder.

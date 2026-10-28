@@ -1,0 +1,2 @@
+19. Assistance and provision of information.____ (1) The Federal Government and Provincial. Governments and their Departments shall assist the Authority in carrying out its functions, subject to applicable laws.
+(2) All Federal Ministries and Provincial Departments including Corporations bodies, set ups, controlled or administered by or under the authority of Federal or Provincial Governments shall provide information and data required for carrying out the purposes of this Act, subject to applicable laws.
