@@ -1,0 +1,3 @@
+51. Restriction of rights of creditor under execution.___ (1) Where execution of a decree has issued against the property of a debtor, no person shall be entitled to the benefit of the execution against the receiver except in respect of assets realised in the course of the execution by sale or otherwise before the date of the admission of the petition.
+(2) Nothing in this section shall affect the rights of a secured creditor in respect of the property against which the decree is executed.
+(3) A person who in good faith purchases the property of a debtor under a sale in execution shall in all cases acquire a good title to it against the receiver.

@@ -1,0 +1,1 @@
+15. Consolidation of petitions. Where two or more insolvency petitions are presented against the same debtor, or where separate petitions are presented against joint debtors, the Court may consolidate the proceedings or any of them, on such terms as the Court thinks fit.

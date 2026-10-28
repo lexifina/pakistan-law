@@ -1,0 +1,1 @@
+16. Power to change carriage of proceedings. Where the petitioner does not proceed with due diligence on his petition, the Court may substitute as petitioner any other creditor to whom the debtor may be indebted in the amount required by this Act in the case of petitioning creditor.

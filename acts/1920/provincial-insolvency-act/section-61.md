@@ -1,0 +1,10 @@
+61. Priority of debts.___(1) In the distribution of the property of the insolvent, there shall be paid in priority to all other debts :___
+(a) all debts due to the [^34][Government] or to any local authority ; and
+(b) all salary or wages, not exceeding twenty rupees in all, of any clerk, servant or labourer in respect of services rendered to the insolvent during four months before the date of the presentation of the petition.
+(2) The debts specified in sub-section (1) shall rank equally between themselves, and shall be paid in full, unless the property of the insolvent is insufficient to meet them, in which case they shall abate in equal proportions between themselves.
+(3) Subject to the retention of such sums as may be necessary for the expenses of administration or otherwise, the debts specified in sub-section (1) shall be discharged forthwith in so far as the property of the insolvent is sufficient to meet them.
+(4) In the case of partners, the partnership property shall be applicable in the first instance in payment of the partnership debts, and the separate property of each partner shall be applicable in the first instance in payment of his separate debts. Where there is a surplus of the separate property of the partners, it shall be dealt with as part of the partnership property; and where there is a surplus of the partnership property, it shall be dealt with as part of the respective separate property in proportion to the rights and interests of each partner in the partnership property.
+(5) Subject to the provisions of this Act, all debts entered in the schedule shall be paid rateably according to the amounts of such debts respectively and without any preference.
+(6) Where there is any surplus after payment of the foregoing debts, it shall be applied in payment of interest from the date on which the debtor is adjudged an insolvent at the rate of six per centum per annum on all debts entered in the schedule.
+
+[^34]: Subs. by A.O., 1961, Art. 2, for “Crown” (with effect from the 23rd March, 1956).

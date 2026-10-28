@@ -1,0 +1,3 @@
+23. Release of debtor.-(1) At the time of making an order admitting the petition or at any subsequent time before adjudication, the Court may, if the debtor is under arrest or imprisonment in execution of the decree of any Court for the payment of money, order his release on such terms as to security as may be reasonable and necessary.
+(2) The Court may at any time order any person who has been released under this section to be re-arrested and re-committed to the custody from which he was released.
+(3) At the time of making any order under this section, the Court shall record in writing its reason therefor.

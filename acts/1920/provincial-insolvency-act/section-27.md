@@ -1,0 +1,2 @@
+27. Order of adjudications.___ (1) If the Court does not dismiss the petition, it shall make an order of adjudication, and shall specify in such order the period within which the debtor shall apply for his discharge.
+(2) The Court may, if sufficient cause is shown, extend the period within which the debtor shall apply for his discharge, and in that case shall publish notice of the order in such manner as it thinks fit.

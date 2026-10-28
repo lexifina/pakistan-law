@@ -1,0 +1,2 @@
+49. Mode of proof.___ (1) A debt may be proved under this Act by delivering, or sending by post in a registered letter, to the Court an affidavit verifying the debt.
+(2) The affidavit shall contain or refer to a statement of account showing the particulars of the debt, and shall specify the vouchers (if any) by which the same can be substantiated. The Court may at any time can for the production of the vouchers.

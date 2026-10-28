@@ -1,0 +1,3 @@
+50. Disallowance and reduction of entries in schedule.___ (1) Where the receiver thinks that a debt has been improperly entered in the schedule, the Court may, on the application of the receiver and after notice to the creditor, and such inquiry (if any) as the Court thinks necessary, expunge such entry or reduce the amount of the debt.
+(2) The Court may also, after like inquiry, expunge an entry or reduce the amount of a debt upon the application of creditor where no receiver has been appointed, or where the receiver declines to interfere in the matter or, in the case of a composition or scheme, upon the application of the debtor.
+Effect of insolvency on antecedent transactions

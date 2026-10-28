@@ -1,0 +1,2 @@
+68. Appeal to Court against receiver. If the insolvent or any of the creditors or any other persons is aggrieved by any act or decision of the receiver, he may apply to the Court, and the Court may confirm, reverse or modify the act or decision complained of, and make such order as it thinks just :
+Provided that no application under this section shall be entertained after the expiration of twenty-one days from the date of the act or decision complained of.
