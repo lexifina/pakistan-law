@@ -1,0 +1,1 @@
+60. Enforcement of guaranteed rights.— Any collective bargaining agent or any employer may apply to the Commission for the enforcement of any right guaranteed or secured to it or him or to the workers collectively by or under any law, award, settlement or decision.

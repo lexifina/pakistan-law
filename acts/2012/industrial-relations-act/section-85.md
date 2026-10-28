@@ -1,0 +1,1 @@
+85. Limitation.— The provisions of Section 5 of the Limitation Act, 1908 (IX of 1908), shall apply in computing the period within which an application is to be made, or any other thing is to be done, under this Act.

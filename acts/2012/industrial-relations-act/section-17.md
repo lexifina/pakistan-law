@@ -1,0 +1,2 @@
+17. Transfer, etc., of officer of trade union during pendency of application for
+registration.— Save with the prior permission of the Registrar, no officer or member of a trade union of workmen shall be transferred, discharged, dismissed or otherwise punished during the pendency of an application for registration of the trade union with the Registrar, provided that the union has notified the names of its officers and members to the employer in writing.

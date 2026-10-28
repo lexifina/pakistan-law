@@ -1,0 +1,1 @@
+59. Finality of order.— No Court shall entertain any plea as to the jurisdiction of the Commission or as the legality or propriety of anything done or purporting to be done by the Commission or any of its Benches, and no order, decision, judgment or sentence of the Commission shall be called in question in any manner, whatsoever, in or before any Court or other authority.

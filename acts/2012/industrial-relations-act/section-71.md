@@ -1,0 +1,1 @@
+71. Penalty for discharging officer of trade union in certain circumstances, etc.— Any employer who contravenes the provision of Section 64 shall be punishable with imprisonment which may extend to fifteen days or fine which may extend to thirty thousand rupees, or with both.

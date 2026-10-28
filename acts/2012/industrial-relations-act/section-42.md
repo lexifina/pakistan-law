@@ -1,0 +1,9 @@
+42. Strike and lock-out.— (1) If no settlement is arrived at during the course of conciliation proceedings and the parties to the dispute do not agree to refer it to an arbitrator under Section 40, the workmen may go on strike or, as the case may be, the employer may declare a lock-out, on the expiration of the period of the notice under Section 41 or upon a declaration by the Conciliator that the conciliation proceedings have failed, whichever is the later.
+(2) The party raising a dispute may at any time either before or after the commencement of a strike or lock-out make an application to the Commission for adjudication of the dispute.
+(3) Where a strike or lock-out lasts for more than thirty days, the Government, may by order in writing, prohibit the strike or lock-out:
+Provided that the Government may, with respect to any other strike or lock-out relating to a dispute which the Commission is competent to adjudicate and determine, by order in writing, prohibit a strike or lock-out at any time before the expiry of thirty days, if it is satisfied that the continuance of such a strike or lock-out is causing serious hardship to the community or is prejudicial to the national interest.
+(4) In any case in which the Government prohibits a strike or lock-out, it shall forthwith refer the dispute to the Commission.
+(5) The Commission shall, after giving both the parties to the dispute an opportunity of being heard, make such order as it deems fit as expeditiously as possible but not exceeding thirty days from the date on which the dispute referred to it:
+Provided that the Commission may also make an interim order on any matter in dispute:
+Provided further that any delay by the Commission in making an order shall not affect the validity of any order made by it.
+(6) An award of the Commission shall be for such period as may be specified in the award which shall not be more than two years.

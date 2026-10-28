@@ -1,0 +1,2 @@
+51. Interpretation of settlement and awards.— (1) If any difficulty or doubt arises as to the interpretation of any provisions of an award or settlement, it shall be referred to the Full Bench constituted under this Act.
+(2) The Full Bench to which a matter is referred under sub-section (1) shall after giving the parties an opportunity of being heard, decide the matter, and its decision shall be final and binding on the parties.

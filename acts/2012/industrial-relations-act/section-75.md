@@ -1,0 +1,1 @@
+75. Penalty for other offences.— Whoever contravenes, or fails to comply with, any of the provisions of this Act shall, if no other penalty is provided by this Act for such contravention or failure, be punishable with fine which may extend to ten thousand rupees.

@@ -1,0 +1,1 @@
+91. Rights and duties of employers and workers.— The employers and workers shall within the bounds of this Act and other laws for the time being in force shall abide by a code of conduct to respect their rights and duties in accordance with the guidelines in Schedule II.

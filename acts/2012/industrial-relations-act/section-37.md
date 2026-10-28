@@ -1,0 +1,1 @@
+37. Conciliation after notice of strike or lock-out.— Where a party to an industrial dispute serves a notice of strike or lock-out under sub-section (3) of Section 35, it shall, simultaneously with the service of such notice, deliver a copy thereof to the Conciliator and to the Commission.

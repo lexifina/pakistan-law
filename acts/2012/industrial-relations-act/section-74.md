@@ -1,0 +1,2 @@
+74. Penalty for contravening Section 27 or Section 28, etc.— (1) Whoever contravenes the provisions of Section 27 or Section 28 shall be punishable with imprisonment which may extend to fifteen days or fine which may extend to one hundred thousand rupees, or with both.
+(2) No Court shall take cognizance of any offence punishable under sub-section (1) except upon a complaint in writing made by the Registrar.

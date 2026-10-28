@@ -1,0 +1,1 @@
+84. Registrar, etc., to be public servants.— A Registrar, a Conciliator, the Chairman and a Member of the Commission shall be deemed to be a public servant within the meaning of Section 21 of the Pakistan Penal Code (Act XLV of 1860).
