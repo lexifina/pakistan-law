@@ -1,0 +1,2 @@
+16. Scheme for administration of waqf property.—(1) The chief administrator shall in respect of a waqf property regarding which a notification under section 8 has been issued and the gross annual income from which exceeds one hundred thousand rupees and on other cases may settle a scheme for the administration and development of such waqf property.
+(2) In the settlement of a scheme the chief administrator shall give effect to such wishes of the waqf as can be ascertained, and to which effect can be reasonable given.

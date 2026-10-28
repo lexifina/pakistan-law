@@ -1,0 +1,2 @@
+23. Provision of information to reporting entities.—(1) The chief administrator shall provide and upon request to the reporting entity information about the beneficial ownership and assets of the waqf in the prescribed circumstances and manner.
+(2) The reporting entity may also obtain the information from the waqf manager about the beneficial owner, details of waqf assets, residential addresses of waqf manager and details of beneficiaries in the prescribed circumstances and manner.

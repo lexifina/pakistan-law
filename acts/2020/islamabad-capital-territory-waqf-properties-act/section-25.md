@@ -1,0 +1,7 @@
+25. Offences.—(1) Whoever obstructs or offers any resistance to, or impedes or otherwise interferes with—
+(a) any authority, officer or person exercising any power or performing any duty conferred or imposed upon it or him by or in pursuance of this Act or otherwise discharging any lawful function under this Act; or
+(b) any person who is carrying out the orders of any such authority, officer or person as aforesaid or who is otherwise acting in accordance with his duty in pursuance of this Act,
+shall be punished with imprisonment for a term which may extend to five years or with fine upto twenty-five million rupees or with both.
+(2) Any person who willfully fails to comply with any requirement under section 21 shall be punished with imprisonment which shall not be less than one year but which may extend to five years and shall be liable to fine which shall not be less than the benefits derived from the waqf property but may extend to three times of the amount of income derived from the property.
+(3) Any person who intentionally fails to comply with the provisions of section 7 or intentionally conceals any information or provide incomplete or incorrect information to the chief administrator as required under this Act, shall be liable to pay such amount calculated by the concerned district collector or any other authority duly authorized by the chief administrator to do so, for the period of factum of waqf property or an imprisonment of upto five years, or with both.
+(4) The offences punishable under this Act shall be triable by the court of sessions.

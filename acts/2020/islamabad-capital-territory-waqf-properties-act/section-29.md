@@ -1,0 +1,3 @@
+29. Continuance of actions done under the Auqaf (Federal Control) Act, 1976.—Everything done or purporting to have been done, action taken, liability or penalty incurred or proceeding commenced, officer appointed or person authorized or power conferred, rule made or notification or order issued under the Auqaf (Federal Control) Act, 1976 (LVI of 1976) since repealed, shall, so far as it is not inconsistent with the provisions of this Act, continue in force, and so far as may be deemed to have been done, taken, incurred, commenced, appointed, authorized, conferred, made or issued under this Act.
+_______________
+RGN Dated 27-02-2026
