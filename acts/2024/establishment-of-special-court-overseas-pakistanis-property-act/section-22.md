@@ -1,0 +1,1 @@
+22. Removal of difficulties.—If a difficulty arises in giving effect to any of the provisions of this Act, the Federal Government may, by notification in official Gazette, make such provisions not inconsistent in with the provisions of this Act as it thinks fit for removing such difficulty.

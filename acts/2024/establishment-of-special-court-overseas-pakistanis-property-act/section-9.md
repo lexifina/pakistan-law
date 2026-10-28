@@ -1,0 +1,5 @@
+9. Period for disposal of petition.—(1)The special court shall pass a judgment as expeditiously as possible but not later than ninety days from the date of grant of application for leave to defend.
+(2) In case the proceedings are not completed within ninety days, the respondent may be required to furnish security in such amount as the special court deems fit, and on failure of the respondent to furnish security the special court shall pass judgment.
+(3) The requirement of furnishing security under sub-section (2) shall be dispensed with, if in opinion of the special court on appreciation of material available on record, the delay is not attributable to conduct of the respondent.
+(4) At any time during the course of proceedings, the special court shall not allow adjournment for more than seven days.
+(5) The special court if it deems necessary for expeditious disposal of the suit or petition, for reasons to be recorded in writing, shall on its own motion have the power to summon official record maintained by the public authorities in respect of any matter connected with or arising from the subject matter of the suit or petition.

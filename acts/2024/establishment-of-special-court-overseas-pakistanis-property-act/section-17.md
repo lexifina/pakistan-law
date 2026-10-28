@@ -1,0 +1,3 @@
+17. Powers of special court.—(1) Subject to the provisions of this Act, the special court shall in exercise of its civil jurisdiction have all the powers vested in a civil court under the Code.
+(2) The special court in all matters with respect to which the procedure has not been provided for in this Act, follow the procedure laid down in the Code.
+(3) All proceedings before a special court shall be deemed to be judicial proceedings within the meaning of sections 193 and 228 of the Pakistan Penal Code, (Act XLV of 1860) and sections 476 and 480 of the Code of Criminal Procedure, 1898 (Act No. V of 1898).
