@@ -1,0 +1,3 @@
+122. Death of a party to any proceedings under this Ordinance.___If a person who is a party to any proceedings under this Ordinance, not being any proceedings before the High Court or [^37][an IP Tribunal], dies pending the proceedings, the Registrar may, on request, and on proof to his satisfaction of the transmission of the interest of the deceased person, substitute in the proceedings his successor in interest in his place, or if the Registrar is of opinion that the interest of the deceased person is sufficiently represented by the surviving parties, permit the proceedings to continue without the substitution of his successor in interest.
+
+[^37]: Subs. by Act No. LVIII of 2023, ss. 44-45.

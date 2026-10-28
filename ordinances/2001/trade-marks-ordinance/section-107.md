@@ -1,0 +1,2 @@
+107. Penalty for improperly describing a place of business as connected with the Trade
+Marks Registry.___If any person uses his place of business, or on any document issued by him, or otherwise, words which would reasonably lead to the belief that his place of business is, or is officially connected with, the Trade Marks Registry, he shall be guilty of an offence punishable with imprisonment for a term which may extend to two years, or with fine, or with both.

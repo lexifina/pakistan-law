@@ -1,0 +1,2 @@
+92I. Extracts from the international register.___(1) Extracts from the international register issued by the international bureau shall be exempt from any legalization in Pakistan.
+(2) In all legal proceedings relating to a trade mark in an international registration in which Pakistan is a designated contracting party, the fact that a person is recorded as proprietor thereof in the international register shall be prima facie evidence of the validity of the international registration of the trade mark and of all subsequent assignments and transmissions thereof.]

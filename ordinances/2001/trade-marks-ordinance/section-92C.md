@@ -1,0 +1,1 @@
+92C. Trade Marks Registry to deal with international applications.___An international application shall be dealt with by the Trade Marks Registry or such branch offices of the Registry, as the Organization may specify.

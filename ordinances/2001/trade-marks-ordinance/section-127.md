@@ -1,0 +1,2 @@
+127. Trade mark agents.___(1) Where by or under this Ordinance any act, other than the making of an affidavit, is required to be done by any person, the act may, subject to such conditions as may be prescribed, be done, in lieu of by that person himself, by duly authorised agent whose is registered with the Trade Marks Registry in the prescribed manner as a trade mark agent.
+(2) The Federal Government may, by notification in the official Gazette, make rules for providing qualifications, registration and conduct of trade mark agents.

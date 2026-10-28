@@ -1,0 +1,9 @@
+27. Examination of application.___(1) The Registrar shall, as soon as practicable, examine whether an application for registration of a trade mark satisfies the requirements prescribed under this Ordinance.
+(2) For the purposes of sub-section (1), the Registrar shall carry out a search, to the extent as he considers necessary, of earlier trade marks.
+(3) if it appears to the Registrar that the requirements for registration are not met, he shall inform the applicant and give him an opportunity, within such period as the Registrar may specify, to make representation or to amend the application.
+(4) If the applicant fails to satisfy the Registrar that those requirements are met, or to amend the application so as to meet them, or fails to respond before the end of the specified period, the Registrar shall refuse to accept the application.
+(5) If it appears to the Registrar that the requirements for registration are met, he shall accept the application absolutely or subject to such conditions or limitations, if any, as he may think fit.
+(6) In the case of a refusal or conditional acceptance, the Registrar shall state in writing the grounds of his decision and the materials used by him in arriving thereat.
+(7) If the tribunal is of opinion that it is fair and reasonable in all the circumstances of the case to do so, may at any time, whether before or after acceptance, correct any error in, or in connection with, the application or may permit the applicant to amend his application upon such terms as it may think fit:
+Provided that no amendment or correction shall be permitted in the application which substantially affects the identity of the trade mark or extends the goods or services covered by the application:
+Provided further that if the amendment or correction in the application is permitted after the application has been advertised, the amendment or correction shall also be published.

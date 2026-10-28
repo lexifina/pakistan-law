@@ -1,0 +1,1 @@
+92H. Transformation.___The date of filing of an application for the registration of a trade mark made to the Registrar in accordance with Article 9 quinquies of the Madrid Protocol shall be the date of the cancelled international registration and, if the international registration enjoyed the right of priority, the application shall enjoy the same priority.
