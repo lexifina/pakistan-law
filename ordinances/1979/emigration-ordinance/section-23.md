@@ -1,0 +1,1 @@
+23. Penalty for other offences.—Whoever contravenes, or fails to comply with, any of the provisions of this Ordinance or the rules shall, if no other penalty is provided by this Ordinance for such contravention or failure, be punishable with imprisonment for a term which may extend to one year and with fine.

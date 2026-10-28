@@ -1,0 +1,1 @@
+20. Violation of terms of agreement with foreign employer by emigrant.― Whoever violates the terms of the agreement with his foreign employer by abandoning his employment or otherwise shall, after his repatriation to Pakistan, be punishable with fine which may extend to ten thousand rupees.

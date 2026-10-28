@@ -1,0 +1,3 @@
+11. Power to search and detain vessels, etc.—The Director‑General, a Protector of Emigrants or any officer authorised by the [^7][secretary of the division concerned] may, for the purpose of preventing the commission of any offence under this Ordinance, exercise all the powers conferred on the officers of customs by the Customs Act, 1969 (IV of 1969), with regard to the searching and detention of vessels or otherwise for the prevention of smuggling on board thereof and, for this purpose, he shall have the authority to enter any port or point of entry or departure or inspect any conveyance carrying or bringing or believed to be carrying or bringing any emigrant.
+
+[^7]: Subs. by Act No. XLIV of 2021, ss. 8-9.
