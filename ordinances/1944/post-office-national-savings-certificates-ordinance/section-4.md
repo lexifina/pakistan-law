@@ -1,0 +1,9 @@
+4. Payment on death of holder of savings certificate.—(1) If a person dies and is at the time of his death the holder of a savings certificate, payment of the sum for the time being due thereon may be made in the manner provided in the Government Savings Banks Act, 1873 (V of 1873), for the payment of deposits belonging to the estates of deceased person, and the provisions of sections 4 to 9 of the said Act shall apply accordingly as if the holder of the savings certificate were a depositor in a Government Savings Bank and the sum for the time being due on the certificate were a deposit in such a Bank:
+Provided that in such application section 8 of the said Act shall be construed as if the reference therein to three thousand rupees were a reference to the amount of the maximum holding of savings certificates prescribed in the rules made or deemed to have been made under this Ordinance applicable to the particular savings certificate;
+Provided further that—
+(a) the powers conferred by the said provisions on the Secretary of a Government Savings Banks shall be exercisable by the Postmaster-General for the area within which the post office of issue of such savings certificate is situate [^5][or if that area is in India, by the Postmaster-General for such area in Pakistan as the [^4][Federal Government] may by a general or special order specify in this behalf].
+(b) where in any one case payment is to be made of savings certificates issued from more post offices than one, the said powers shall be exercisable by the Postmaster-General for the area in which any of the said post offices is situate.
+(2) Nothing in sub-section (1) shall be deemed to require any person to accept payment of the amount due on a savings certificate before it has reached maturity.
+
+[^4]: Subs. by the Federal Adaptation of Laws Order, 1975 (P. O. No. of 1975), Art.2 and Table.
+[^5]: Ins, by A. O., 1949.

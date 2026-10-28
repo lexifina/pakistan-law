@@ -1,0 +1,3 @@
+3. Restriction of transfer.—Notwithstanding any provision in any enactment or any rule of law for the time being in force to the contrary, no transfer, whether made before or after the commencement of this Ordinance or, as the case may be, before or after the making of a direction in pursuance of clause (b) of sub-section (2) of section I, of a savings certificate shall be valid without the previous consent in writing of an officer of the Post Office authorised by general or special order of the [^4][Federal Government] in that behalf.
+
+[^4]: Subs. by the Federal Adaptation of Laws Order, 1975 (P. O. No. of 1975), Art.2 and Table.
