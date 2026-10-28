@@ -1,0 +1,4 @@
+30C. In-camera trial.— (1) The trial of offences against minors shall be conducted in-camera:
+Provided that the Court, if it thinks fit, on its own or on an application made by either of parties, allow any particular person to have access to Court proceedings, or be or remain in the Court.
+(2) Notwithstanding anything contained in any other law for the time being in force, where any proceedings are held under sub-section (1), the Court may adopt appropriate measures, including holding of the trial through video-link or usage of screens, for the protection of the victims and the witnesses.
+(3) Where any proceedings are held under sub-section (1), it shall not be lawful for any person to publish or broadcast any matter or information in relation to any such proceedings, except with the permission of the Court.

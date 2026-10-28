@@ -1,0 +1,1 @@
+8. Interference with critical infrastructure information system or data.— Whoever with dishonest intention interferes with or damages, or causes to be interfered with or damaged, any part or whole of a critical information system, or data, shall be punished with imprisonment which may extend to seven years or with fine which may extend to ten million rupees or with both.

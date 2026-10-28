@@ -1,0 +1,1 @@
+7. Unauthorized copying or transmission of critical infrastructure data.— Whoever with dishonest intention and without authorization copies or otherwise transmits or causes to be transmitted any critical infrastructure data shall be punished with imprisonment for a term which may extend to five years, or with fine which may extend to five million rupees or with both.

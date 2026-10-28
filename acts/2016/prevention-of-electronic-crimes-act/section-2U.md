@@ -1,0 +1,1 @@
+2U. Violation or non-implementation.__ In case of any violation or non-implementation of any directions of the Authority by a social media platform, the Authority may approach the Tribunal for appropriate action.

@@ -1,0 +1,4 @@
+44. Cognizance and trial of offences.— (1) The Federal Government, in consultation with the Chief Justice of respective High Court, shall designate presiding officers of the Courts to try offences under this Act at such places as deemed necessary.
+(2) The Federal Government shall, in consultation with the Chief Justice of respective High Court, arrange for special training of the presiding officers of the Court to be conducted by an entity notified by the Federal Government for training on computer sciences, cyber forensics, electronic transactions and data protection.
+(3) Prosecution and trial of an offence under this Act committed by a minor shall be conducted under the Juvenile Justice System Ordinance, 2000 (XXII of 2000).
+(4) To the extent not inconsistent with this Act, the procedure laid down under the Code and the Qanoon-e-Shahadat, 1984 (P.O.No.X of 1984), shall be followed.

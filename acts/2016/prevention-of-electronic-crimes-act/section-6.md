@@ -1,0 +1,1 @@
+6. Unauthorized access to critical infrastructure information system or data.— Whoever with dishonest intention gains unauthorized access to any critical infrastructure information system or data shall be punished with imprisonment which may extend to three years or with fine which may extend to one million rupees or with both.

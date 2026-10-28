@@ -1,0 +1,3 @@
+[^11][22A. Online grooming, solicitation and cyber enticement.— Whoever intentionally creates or takes steps towards creating a relationship of trust with a minor through the use of an information system or device or any other similar means of communication with the intent to facilitate, solicit or commit sexual abuse of a minor or to share, facilitate or solicit sexual content or produce sexual abuse material with a minor, shall be punished with imprisonment of either description for a term which may extend to ten years and not less than five years with fine which may extend to ten million rupees but not less than five hundred thousand rupees.
+
+[^11]: Subs. and Ins. by Act No. XXXVII of 2023, ss.3-4

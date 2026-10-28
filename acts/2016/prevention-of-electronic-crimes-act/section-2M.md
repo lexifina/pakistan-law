@@ -1,0 +1,3 @@
+2M. Accounts and audit.__ (1) The Authority shall maintain complete and accurate books of accounts of its actual expenses and receipts in such form as may be prescribed in accordance with Articles 169 and 170 of the Constitution of the Islamic Republic of Pakistan.
+(2) The Authority shall cause, to be carried out audit of its accounts by one or more auditors who are chartered accountants within the meaning of the Chartered Accountants Act, 1961 (X of 1961).
+(3) Notwithstanding the audit specified, in sub-section (2) the Auditor-General of Pakistan shall have the power to audit or cause to be audited the accounts of the Authority.

@@ -1,0 +1,2 @@
+27. Legal recognition of offences committed in relation to information system.—(1) Notwithstanding anything contained in any other law for the time being in force, an offence under this Act or any other law shall not be denied legal recognition and enforcement for the sole reason of such offence being committed in relation to or through the use of an information system.
+(2) References to “property” in any law creating an offence in relation to or concerning property, shall include information system and data.

@@ -1,0 +1,3 @@
+17. Unauthorized issuance of SIM cards etc.—Whoever sells or otherwise provides subscriber identity module (SIM) card, re-usable identification module (R-IUM) or universal integrated circuit card (UICC) or other module designed for authenticating users to establish connection with the network and to be used in cellular mobile, wireless phone or other digital devices such as tablets, without obtaining and verification of the subscriber’s antecedents in the mode and manner for the time being approved by the [^10][Pakistan Telecommunication Authority] shall be punished with imprisonment for a term which may extend to three years or with fine which may extend to five hundred thousand rupees or with both.
+
+[^10]: Subs. by Act No. II of 2025, s.4.

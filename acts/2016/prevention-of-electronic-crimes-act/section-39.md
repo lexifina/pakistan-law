@@ -1,0 +1,13 @@
+39. Real-time collection and recording of information.— (1) If a Court is satisfied on the basis of information furnished by an authorized officer that there are reasonable grounds to believe that the content of any information is reasonably required for the purposes of a specific criminal investigation, the Court may order, with respect to information held by or passing through a service provider, to a designated agency as notified under the Investigation for Fair Trial Act, 2013 (I of 2013) or any other law for the time being in force having capability to collect real time information, to collect or record such information in real-time in coordination with the investigation agency for provision in the prescribed manner:
+Provided that such real-time collection or recording shall not be ordered for a period beyond what is absolutely necessary and in any event for not more than seven days.
+(2) Notwithstanding anything contained in any law to the contrary the information so collected under sub-section (1) shall be admissible in evidence.
+(3) The period of real-time collection or recording may be extended beyond seven days if, on an application, the Court authorizes an extension for a further specified period.
+(4) The Court may also require the designated agency to keep confidential the fact of the execution of any power provided for in this section and any information relating to it.
+(5) The application under sub-sections (1) and (2) shall in addition to substantive grounds and reasons also,—
+(a) explain why it is believed that the data sought will be available with the person in control of an information system;
+(b) identify and explain with specificity the type of information likely to be found on such information system;
+(c) identify and explain with specificity the identified offence made out under this Act in respect of which the warrant is sought;
+(d) if authority to seek real-time collection or recording on more than one occasion is needed, explain why and how many further disclosures are needed to achieve the purpose for which the warrant is to be issued;
+(e) specify what measures shall be taken to prepare and ensure that the real-time collection or recording is carried out whilst maintaining the privacy of other users, customers and third parties and without the disclosure of information of any person not part of the investigation;
+(f) explain why the investigation may be frustrated or seriously prejudiced unless the real time collection or recording is permitted; and
+(g) why, to achieve the purpose for which the warrant is being applied, real time collection or recording by the person in control of the information system is necessary.

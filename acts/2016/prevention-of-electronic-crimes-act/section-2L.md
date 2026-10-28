@@ -1,0 +1,1 @@
+2L. Budget.__ The Authority shall, in respect of each financial year, prepare its own budget and submit it to the Government through its administrative division and the finance division three months before the commencement of every financial year for approval.

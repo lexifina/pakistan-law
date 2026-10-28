@@ -1,0 +1,7 @@
+[^15][30A. Remand.— (1) Where a person is detained for investigation, the investigating officer, within twenty-four hours of the arrest, excluding the time necessary for the journey from the place of arrest to the Court, shall produce the accused before the Court, and may apply for remand of the accused to police custody, or custody of any other investigating agency joined in the investigation for which the maximum period allowed must not be more than fourteen days at one time:
+Provided that, where an accused cannot within twentyfour hours be produced before the Court, a temporary order for police custody or custody of any other investigating agency joined in the investigation not exceeding twenty-four hours may be obtained from the nearest Magistrate for the purpose of producing the accused before the Court within that period.
+(2) No extension in time of the remand of the accused in police custody or custody of any other investigating agency joined in the investigation shall be allowed, unless it can be shown by the investigating officer, to the satisfaction of the Court that further evidence may be available and the Court is satisfied that no bodily harm has been or will be caused to the accused:
+Provided that the total period of such remand shall not in any case exceed thirty days.
+(3) The Court shall be deemed to be a Magistrate for purposes of sub-section (2).
+
+[^15]: Ins. by Act No. XXXVII of 2023, s.7.

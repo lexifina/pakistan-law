@@ -1,0 +1,6 @@
+31. Expedited preservation and acquisition of data.— (1) If an authorised officer is satisfied that—
+(a) specific data stored in any information system or by means of an information system is reasonably required for the purposes of a criminal investigation; and
+(b) there is a risk or vulnerability that the data may be modified, lost, destroyed or rendered inaccessible,
+the authorized officer may, by written notice given to the person in control of the information system, require that person to provide that data or to ensure that the data specified in the notice be preserved and the integrity thereof is maintained for a period not exceeding ninety days as specified in the notice:
+Provided that the authorized officer shall immediately but not later than twenty-four hours bring to the notice of the Court, the fact of acquisition of such data and the Court on receipt of such information may pass such orders as deemed appropriate in the circumstances of the case including issuance of warrants for retention of such data or otherwise.
+(2) The period provided in sub-section (1) for preservation of data may be extended by the Court if so deemed necessary upon receipt of an application from the authorized officer in this behalf.
