@@ -1,0 +1,2 @@
+## GENERAL PROVISIONS
+7. Mutwalli entitled to pay cost of audit, etc., from wakf funds.___ Notwithstanding anything contained in the deed or instrument creating any wakf, every mutwalli may pay from the income of the wakf property any expenses properly incurred by him for the purpose of enabling him to furnish any particulars, documents or copies under section 3 or section 4 or in respect of the preparation or audit of the annual accounts for the purposes of this Act.

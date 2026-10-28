@@ -1,0 +1,1 @@
+8. Verification.___Every statement of particulars furnished under section 3 or section 4, and every statement of accounts furnished under section 5, shall be written in the language of the Court to which it is furnished, and shall be verified in the manner provided in the Code of Civil Procedure, 1908 (V of 1908), for the signing and verification of pleadings.
