@@ -1,0 +1,1 @@
+2. Extension of Jurisdiction of Supreme Court.—The Supreme Court of Pakistan shall have, in relation to the Provincially Administered Tribal Areas of Chitral, Dir, Kalam, Swat and Malakand Protected Area, the same Jurisdiction as it has in relation to the other areas of the North- West Frontier Province.
