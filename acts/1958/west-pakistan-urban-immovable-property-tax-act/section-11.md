@@ -1,0 +1,1 @@
+11. Tax to be levied notwithstanding appeal. The tax shall be levied in accordance with the valuation list in force for the time being, and shall be collected and be recoverable notwithstanding any appeal which may be pending with respect to that list.

@@ -1,0 +1,10 @@
+7. Making and operation of valuation lists. (1) A valuation list shall be made by the prescribed authority in accordance with the rules framed under this Act for every rating area so as to come into force either on the first day of [^10][July] or the first day of [^11][January], and thereafter a new valuation list shall be made from time to time so that the interval between the dates on which one valuation list and the next succeeding valuation list respectively come into force shall be a period of five years :
+Provided that Government may by order—
+(a) reduce by a period not exceeding one year or extend by a period not exceeding three years the interval which would otherwise elapse between the coming into force of any two successive valuation lists for any rating area, or, where a valuation list has been lost or destroyed by operation of circumstances beyond control, cancel the list, direct the preparation of a new list and order recovery of pending tax to be made on the basis either of the last preceding valuation list or of the new list prepared under this proviso; and
+(b) divide any rating area into parts for the purposes of a new valuation list and determine the years in which the next following valuation list for each of such parts respectively shall be made and come into force.
+(2) Subject to the provisions of any such order as aforesaid, every valuation list shall come into force on the first day of [^12][July] or the first day of [^13][January], as the case may be, next following the date on which it is finally approved by the assessing authority and shall, subject to the provisions of this Act and the rules made thereunder (including the provisions with respect to the alteration of and the making of additions to the valuation list) remain in force until it is superseded by a new valuation list.
+
+[^10]: Subs. by Ordinance No. VII of 1961, s. 2.
+[^11]: Subs. by Ordinance No. VII of 1961, s. 2.
+[^12]: Subs. by West Pakistan Ordinance No. VII of 1961, s. 2.
+[^13]: Subs. by West Pakistan Ordinance No. VII of 1961, s. 2.

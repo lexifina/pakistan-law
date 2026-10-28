@@ -1,0 +1,2 @@
+15. Penalty for default in payment. (1) If any person on being served with such notice as may be prescribed fails to pay within the period specified in the notice any amount due from him on account of the tax, the prescribed authority may recover from him as penalty a sum not exceeding the amount of the tax so unpaid, in addition to the amount of the tax payable by him.
+(2) No such penalty shall be imposed unless the prescribed authority is satisfied that the person liable to pay the tax has wilfully failed to pay the same.
