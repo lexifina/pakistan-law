@@ -1,0 +1,3 @@
+7. Person arrested how to be dealt with. Every person brought to a police-station under the last foregoing section shall, without unnecessary delay, be taken before an Inspector of Lepers, who,—
+(a) if he finds that such person is not a leper within the meaning of section 2, shall give him a certificate in Form A set forth in the schedule, whereupon such person shall be forthwith released from arrest ;
+(b) if he finds that such person is a leper within the meaning of section 2, shall give to the police-officer, in whose custody the leper is, a certificate in Form B set forth in the schedule, whereupon the leper shall, without unnecessary delay, be taken before a Magistrate having jurisdiction under this Act.
