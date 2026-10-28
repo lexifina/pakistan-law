@@ -1,0 +1,2 @@
+2. Definitions. In this Ordinance, unless there is anything repugnant in the subject or context,–– (a) “Cadet-entry Officer” means a person appointed as a cadet in any branch of the Pakistan Navy, and includes any such person promoted to the rank of midshipman or acting sub-lieutenant, while still undergoing the prescribed course;
+(b) “prescribed course” means a course of training prescribed by regulations made under this Ordinance.
