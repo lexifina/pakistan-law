@@ -1,0 +1,5 @@
+5. Application of Act to carriage by air which is not international. ___ (1) The rules contained in the fifth Schedule shall apply to all carriage by air, not being international carriage by air as defined in the First, Second, or as the case may be, Fourth Schedule.
+(2) Notwithstanding anything contained in the Fatal Accidents Act, 1855 (XIII of 1855), or any other law for the time being in force, the rules contained in the Fifth Schedule shall, in all cases to which those rules apply, determine the liability of a carrier in respect of the death of a passenger, and the rules contained in the Sixth Schedule shall determine the persons by whom and for whose benefit and the manner in which such liability may be enforced.
+[^3][(3) The Federal Government may, once in every three years by notification in the official Gazette, amend the Fifth Schedule and enhance the limit of liability for carriage by air, not being international carriage by air, based on average official inflation rate of the intervening period.]
+
+[^3]: Omitted, subs. and ins. by Act No. XL of 2026, ss. 4, 5 and 6.
