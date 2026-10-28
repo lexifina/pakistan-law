@@ -1,0 +1,5 @@
+6. Requisition of factories etc.___(1) The [^4][Federal Government] may, by general or special order, requisition any pressing factory or any place, whether open or enclosed, and use the same for pressing or storing cotton belonging to Government, and for purposes incidental thereto.
+(2) If any such factory or place is requisitioned under this section, there shall be paid compensation which shall be determined either with the agreement of the parties concerned, or by an arbitrator chosen with their consent, and in the absence of such consent, by an arbitrator to be appointed in accordance with the provisions of section 8 of the Arbitration Act, 1940 (X of 1940).
+(3) The arbitrator in determining the compensation under sub-section (2) shall have regard to the provisions of sub-section (1) of section 23 of the Land Acquisition Act, 1894 (I of 1894), so far as the same can be made applicable to acquisition of a temporary nature.
+
+[^4]: Subs. by the Federal Adaptation of Laws Order, 1975 (P. O. No. 4 of 1975), Art. 2 and Table.
