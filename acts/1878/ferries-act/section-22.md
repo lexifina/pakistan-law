@@ -1,0 +1,1 @@
+22. Penalty for taking unauthorized toll, and for causing delay. Every such lessee or other person as aforesaid and any person in possession of a private ferry asking or taking more than the lawful toll, or without due cause delaying any person, animal, vehicle or other thing, shall be punished with fine which may extend to one hundred rupees.
