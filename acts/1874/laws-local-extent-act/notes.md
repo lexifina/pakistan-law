@@ -1,0 +1,9 @@
+[^1]: For the Statement of Objects and Reasons, see Gazette of India, 1870 Pt. V., p. 153; and for Proceedings in Council, see ibid., 1871, Supplement pp. 1074 and 1218; and ibid., 1874 Supplement, pp. 1885 and 1976. This Act has been extended and shall be deemed to have been so extended to the whole of Pakistan by the Central Laws (Statute Reform) Ordinance 1960 (21 of 1960), s. 3 and 2nd Sch. (with effect from the 14th October, 1955)
+[^2]: The words “in the Presidencies of Fort St. George and Bombay, and in the Lower and the North-Western Provinces of the Presidency of Fort William in Bengal” omitted by A. O., 1949, Sch.
+[^3]: Subs. by the Central Laws (Statute Reform) Ordinance, 1960 (21 of 1960), s. 3 and 2nd Sch. (with effect from the 14th October, 1955) for “all the Provinces and the Capital of the Federation” which had been subs. by A. O., 1949, Arts 3 (2) and 4, for the whole of British India”.
+[^4]: This section was previously amended by Ord. 21 of 1960. s. 3 and 2nd Sch. and A.O., 1961, Art. 2 (w.e.f. 23-3-1956).
+[^5]: Subs. by F.A.O., 1975, Art. 2 and Table, for “Central Government” which was subs. by A.O., 1937, for “G, G. in C.”,
+[^6]: Subs. ibid., for “L. G.”
+[^7]: Cls. (e) and (h) were. rep. by Act 8 of 1887, cl. (f) by the Amending Act, 1891 (12 of 1891), cl. (g) by the Guardians and Wards Act, 1890 (8 of 1890), and cl. (i) by the Repealing and Amending Act, 1894 (4 of 1894) and cIs. (j) and (jj) by A. O. 1949, Sch. Cl. (jj) had been ins. by the Benares Family Domains Act, 1881 (14 of 1881), s. 15.
+[^8]: First Schedule previously amended by various laws from time to time has been subs. by the Federal Laws (Revision and Declaration) Ordinance, 1981 (27 of 1981), s. 3 and 2nd Sch., to read as above.
+[^9]: This Schedule previously amended from time to time by various Laws has been subs. by the Federal Laws (Revision and Declaration) Ordinance, 1981 (27 of 1981), s. 3 and IInd Sch. to read as above.
