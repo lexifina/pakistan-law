@@ -1,0 +1,1 @@
+7. Continuance in service employees. Unless the Administrator otherwise directs in any particular case, all the employees of the Company in employment immediately before the commencement of the Ordinance shall continue in their respective employments on the same terms and conditions as were applicable to them immediately before such commencement.
