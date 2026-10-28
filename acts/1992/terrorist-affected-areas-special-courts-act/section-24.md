@@ -1,0 +1,3 @@
+24. Saving.—(1) Nothing contained in this Act shall affect the jurisdiction exercisable by, or the procedure applicable to, any Court or other authority under any law relating to the Naval, Military or Air Force or any other armed force of the Government.
+(2) For the removal of doubts, it is hereby declared that, for the purpose of any such law as is referred to in sub-section (1), a Special Court shall be deemed to be a court of ordinary criminal jurisdiction.
+(3) Nothing contained in this Act shall affect any proceedings pending in any Special Court constituted under the Suppression of the Terrorist Activities (Special Courts) Act, 1975 (XV of 1975), immediately before the commencement of this Act.

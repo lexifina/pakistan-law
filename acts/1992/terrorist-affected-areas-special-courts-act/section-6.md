@@ -1,0 +1,7 @@
+6. Establishment of Special Courts.—(1) For the purpose of providing for speedy trial of scheduled offences committed in a zone, the Government may establish, by notification, a Special Court in relation to such zone__
+(a) within such zone; or
+(b) if the Government having regard to the exigencies of the situation prevailing such zone considers it expedient so to do, at any place outside such zone but within the province in which such zone is situated.
+(2) Notwithstanding anything contained in sub-section (1), if having regard to the exigencies of the situation prevailing in a province, the Government is of the opinion that it is expedient to establish in relation to a zone, or in the relation to two or more zones, in the province, a Special Court outside the said zone or zones, for the trial of such scheduled offences committed in the zone or zones the trial whereof within the zone or any of the zones—
+(a) is not likely to be fair or impartial or completed with utmost dispatch; or
+(b) is not likely to be feasible without occasioning a breach of peace or grave risk to the safety of the accused, the witnesses, the Public Prosecutor and the person constituting the Special Court, or any of them; or
+(c) is not otherwise in the interest of justice, the Government may, by notification, establish in relation to such zone or zones a Special Court at such place outside the said zone or zones as may be specified in the notification.
