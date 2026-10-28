@@ -1,0 +1,1 @@
+2. Definition. In this Act, unless the context otherwise requires, “Medical Officers” mean (a) those appointed as Medical Officers in institutions under the Health Division, and (b) those appointed as RMOs in the National Institute of Cardiovascular Diseases.
