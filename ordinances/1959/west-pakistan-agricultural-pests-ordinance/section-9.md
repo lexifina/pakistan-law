@@ -1,0 +1,4 @@
+9. Powers of Government to declare affected area and to recover costs of remedial and
+preventive measures in such areas. (1) Whenever it appears to Government that the Province or any part thereof is affected or threatened by an agricultural pest and that immediate action is necessary, Government may by notification declare the Province or such area as affected area and take such remedial and preventive measures in respect of such area as may be necessary.
+(2) Government may recover the whole or a part of the costs incurred in connection with the aforesaid remedial and preventive measures from the occupiers or land owners in the affected area or from the persons who in its opinion have benefited by such measures.
+(3) All such costs, if unpaid, shall be recoverable as arrears of land revenue.
