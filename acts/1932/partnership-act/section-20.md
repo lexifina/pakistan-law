@@ -1,0 +1,2 @@
+20. Extension and restriction of partner’s implied authority.—The partners in a firm may, by contract between the partners, extend or restrict the implied authority of any partner.
+Notwithstanding any such restriction, any act done by a partner on behalf of the firm which falls within his implied authority binds the firm, unless the person with whom he is, dealing knows of the restriction or does not know or believe that partner to be a partner.

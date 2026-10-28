@@ -1,0 +1,8 @@
+44. Dissolution by the Court.— At the suit of a partner, the Court may dissolve a firm on any of the following grounds, namely :
+(a) that a partner has become of unsound mind, in which case the suit may be brought as well by the next friend of the partner who has become of unsound mind as by any other partner ;
+(b) that a partner, other than the partner suing, has become in any way permanently incapable of performing his duties as partner ;
+(c) that a partner, other than the partner suing, is guilty of conduct which is likely to affect prejudicially the carrying on of the business, regard being had to the nature of the business ;
+(d) that a partner, other than the partner suing, wilfully or persistently commits breach of agreements relating to the management of the affairs of the firm or the conduct of its business, or otherwise so conducts himself in matters relating to the business that it is not reasonably practicable for the other partners to carry on the business in partnership with him ;
+(e) that a partner, other than the partner suing, has in any way transferred the whole of his interest in the firm to a third party, or has allowed his share to be charged under the provisions of rule 49 of Order XXI of the First Schedule to the Code of Civil Procedure, 1908 (V of 1908), or has allowed it to be sold in the recovery of arrears of land‑revenue or of any dues recoverable as arrears of land‑revenue due by the partner ;
+(f) that the business of the firm cannot be carried on save at a loss ; or
+(g) on any other ground which renders it just and equitable that the firm should be dissolved.

@@ -1,0 +1,3 @@
+45. Liability for acts of partners done after dissolution.— (1) Notwithstanding the dissolution of a firm, the partners continue to be liable as such to third parties for any act done by any of them which would have been an act of the firm if done before the dissolution, until public notice is given of the dissolution :
+Provided that the estate of a partner who dies, or who is adjudicated an insolvent, or of a partner who, not having been known to the person dealing with the firm to be a partner, retires from the firm, is not liable under this section for acts done after the date on which he ceases to be a partner.
+(2) Notices under sub‑section (1) may be given by any partner.

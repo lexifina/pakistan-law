@@ -1,0 +1,1 @@
+35. Liability of estate of deceased partner.— Where under a contract between the partners the firm is not dissolved by the death of a partner, the estate of a deceased partner is not liable for any act of the firm done after his death.

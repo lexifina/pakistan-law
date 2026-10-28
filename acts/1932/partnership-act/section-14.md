@@ -1,0 +1,2 @@
+14. The property of the firm.— Subject to contract between the partners, the property of the firm includes all property and rights and interests in property originally brought into the stock of the firm, or acquired, by purchase or otherwise, by or for the firm, or for the purposes and in the course of the business of the firm, and includes also the goodwill of the business.
+Unless the contrary intention appears, property and rights and interests in property acquired with money belonging to the firm are deemed to have been acquired for the firm.
