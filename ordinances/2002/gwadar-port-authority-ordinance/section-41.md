@@ -1,0 +1,1 @@
+41. Compensation. Where any land is acquired under this Ordinance, there shall be paid compensation the amount of which shall be determined by the Land Acquisition Collector who shall be guided by the provisions of sections 42 and 43.

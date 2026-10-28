@@ -1,0 +1,1 @@
+17. Discharge of ship-owner’s lien for freight. Upon the production to any officer appointed by the Authority in that behalf of a document purporting to be a receipt for, or a release from, the amount of such lien, executed by the person by or on whose behalf such notice has been given, the Authority may permit such goods to be removed without regard to such lien.

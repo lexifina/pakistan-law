@@ -1,0 +1,1 @@
+67. Members not personally liable. No member shall be liable for any contract made or expense incurred by or on behalf of the Authority, but the funds from time to time in the hands of the Authority shall be liable for and chargeable with all contracts made in the manner provided in this Ordinance.

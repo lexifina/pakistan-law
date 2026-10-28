@@ -1,0 +1,1 @@
+38. Land to be marked out, measured and planned. Where any land is proposed to be acquired under section 37, the Land Acquisition Collector shall cause the land (unless it has been already marked out) to be marked out and measured, and if no plan has been made thereof, a plan to be made of the same.

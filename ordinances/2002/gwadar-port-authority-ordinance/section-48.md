@@ -1,0 +1,3 @@
+48. Appeals.—(1) The Authority or any person aggrieved by an award or final order of the Land Acquisition Collector may, within fifteen days of the award or order, appeal to the Provincial Government.
+(2) An officer authorized by the Provincial Government in this behalf may, after giving the Authority and the persons affected by the award or order appealed against an opportunity of submitting any objection to the appeal and of being heard, pass such orders thereon as he may think fit.
+(3) The order passed on any appeal under sub-section (2) shall be final and shall not be called in question by or before any court or other authority.
