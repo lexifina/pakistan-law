@@ -1,0 +1,1 @@
+9. Central Government a shareholder.___Notwithstanding anything contained in section 8, the Central Government shall be a shareholder of the Bank and shall purchase at par not less than twenty-five percent of the shares issued by the Bank from time to time.

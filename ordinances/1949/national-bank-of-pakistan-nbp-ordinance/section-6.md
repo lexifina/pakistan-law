@@ -1,0 +1,1 @@
+6. Principal register of shareholders.___The Bank shall maintain at its Head Office established under section 11 a register, to be called the principal register, of all shareholders of the Bank, and shall enter therein such particulars as may be prescribed.

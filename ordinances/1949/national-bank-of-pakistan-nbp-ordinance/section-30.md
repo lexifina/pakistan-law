@@ -1,0 +1,1 @@
+30. Acceptance of liabilities ___The Bank shall accept and honour all liabilities, obligations and commitments incurred and made by the Promotors Company, Limited, formed to provide for the establishment of the Bank in accordance with the rights and powers with which that Company, is invested by its Memorandum of Association.

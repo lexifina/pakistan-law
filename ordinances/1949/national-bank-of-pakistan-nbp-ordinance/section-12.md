@@ -1,0 +1,1 @@
+12. Central Board.___The general superintendence and direction of the affairs and business of the Bank shall be entrusted to the Central Board which may exercise all powers and do all such acts and things as may be exercised or done by the Bank and are not by this Ordinance expressly directed or required to be done by the Bank in general meeting.
