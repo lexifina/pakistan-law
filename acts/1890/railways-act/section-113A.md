@@ -1,0 +1,7 @@
+[^142][113A. Power to remove persons from railway carriage. Any person who, without having obtained the permission of a [^133][railway employee], travels or attempts to travel in a carriage without having a proper pass or ticket with him, or in a carriage of a higher class than that for which he has obtained a pass or purchased a ticket, or in a carriage beyond the place authorised by his pass or ticket, or who being in a carriage fails or refuses to present for examination or to deliver up his pass or ticket immediately on requisition being made therefor under section 69, may be removed from the carriage by any [^144][railway employee] authorised by the [^144][licensee] in this behalf or by any other person whom such [^144][railway employee] may call to his aid, unless he then and there pays the fare and the excess charge which he is liable to pay under section 113 :
+Provided that nothing in this section shall be deemed to pre clude a person removed from a carriage of a higher class from continuing his journey in a carriage of a class for which he holds a pass or ticket:
+Provided further that women and children, if unaccompanied by male passengers, shall not be so removed except either at the station at which they first enter the train or at a junction or terminal station or station at the headquarters of a civil district and o nly between the hours of 6 a.m. and 6 p.m.]
+
+[^133]: Subs. by ord. 92 of 02, s. 44 & sch. II.
+[^142]: S.113A added by Act, 6 of 1941, s. 5.
+[^144]: Subs. by ord. 92 of 02, s. 44 & sch. II.

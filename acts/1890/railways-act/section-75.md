@@ -1,0 +1,8 @@
+[^90]75.Further provision with respect to the liability of a [^89][licensee] as a carrier of articles of
+special value.—(1) When any articles mentioned in the second schedule are contained in any parcel or package delivered to a [^89][licensee] for carriage by railway, and the value of such articles in the parcel or package exceeds [^88][ten thousand rupees], the [^89][licensee] shall not be responsible for the loss, destruction or deterioration of the parcel or package unless the persons sending or delivering the parcel or package to the [^89][licensee] caused its value and contents to be declared or declared them at the time of the delivery of the parcel or package for carriage by railway, and, if so required by the [^89][licensee], paid or engaged to pay a percentage on the value so declared by way of compensation for increased risk.
+(2) When any parcel or package of which the value has been declared under sub-section (1) has been lost or destroyed or has deteriorated, the compensation recoverable in respect of such loss, destruction or deterioration shall not exceed the value so declared, and the burden of proving the value so declared to have been the true value shall, notwithstanding anything in the declaration, lie on the person claiming the compensation.
+(3) A [^89][licensee] may make it a condition of carrying a parcel declared to contain any article mentioned in the second schedule that a [^89][railway employee] authorised in this behalf has been satisfied by examination or otherwise that the parcel actually contains the article declared to be therein.
+
+[^88]: Subs. by Act IV of 1995, ss.9-10.
+[^89]: Subs. by Ord. 92 of 02, s.44 & Sch.II.
+[^90]: Cf the Carriers Act, 1830 (11 Geo. 4 & 1 Will, 4,c. 69),s.1.

@@ -1,0 +1,4 @@
+119. Entering carriage or other place reserved for females. If a male person, knowing a carriage, compartment, room or other place to be reserved by a [^147][licensee] for the exclusive use of females, enters the place without lawful excuse, or, having entered it, remains therein after having been desired by any [^147][railway employee] to leave it, he shall be punished with [^148][imprisonment for a term which may extend to six months, or with fine which may extend to one thousand rupees, or with both] in addition to the forfeiture of any fare which he may have paid and of any pass or ticket which he may have obtained or purchased, and may be removed from the railway by any [^147][railway employee].
+
+[^147]: Subs. by ord. 92 of 02, s. 44 & Sch. II.
+[^148]: Subs. by Act IV of 1995. ss. 28-32.

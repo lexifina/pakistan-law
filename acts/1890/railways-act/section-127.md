@@ -1,0 +1,4 @@
+[^157][127. Maliciously hurting or attempting to hurt persons travelling by railway or damaging property belonging to railway.—If a person unlawfully throws or causes to fall or strike at, against, into or upon any property belonging to any railway, including rolling-stock forming part or a train, any explosive substance, wood; stone or other matter or thing with intent, or with knowledge that he is likely, to endanger the safety of any person being in or upon such property, he shall be punished with [^158][* *] imprisonment for life, and shall also be liable to forfeiture of property and fine which may extend to [^158][one million rupees, keeping in view the facts of the case]].
+
+[^157]: Subs. & added by Act IV of 1995, ss. 37-38.
+[^158]: Omitted and subs. by the Act of the Railways (Amdt) Act , 2022(Act No. XXVI of 2022), ss.2 &3.

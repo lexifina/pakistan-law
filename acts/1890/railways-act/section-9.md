@@ -1,0 +1,6 @@
+[^17]9. Temporary entry upon land for repairing or preventing accident. The [^11][Authority] may authorise any [^11][licensee], in case of any slip or other accident happening or being apprehended to any cutting, embankment or other work under the control of the [^11][licensee], to enter upon any lands adjoining its railway for the purpose of repairing or preventing the accident, and to do all such works as may be necessary for the purpose.
+(2) In case of necessity the [^18][licensee], may enter upon the lands and do the works aforesaid without having obtained the previous sanction of the Federal Government [^18][or the Authority, as the case may be], but in such a case shall, within seventy-two hours after such entry, make a report to the [^18][Authority], specifying the nature of the accident or apprehended accident, and of the works necessary to be done, and the power conferred on the [^18][licensee] by this sub-section [^18][or a licence] shall cease and determine if the [^18][Authority], after considering the report, considers that the exercise of the power is not necessary for the public safety.
+
+[^11]: Subs. by Ord. 92 of 02, s.44 & Sch.II.
+[^17]: Cf. the Railway Regulation Act, 1842 (5 & 6 Viet., c. 55), s. 14.
+[^18]: Subs. & Ins. by Ord. 92 of 02, s.44 & Sch.II.
