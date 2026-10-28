@@ -1,0 +1,2 @@
+9. Repeal and saving.___(1) The Courts of Admiralty (Pakistan) Act, 1891 (XVI of 1891), the Admiralty Court Act, 1840 (3 & 4 Vict. C, 65), and the Admiralty Court Act, 1861 (24 Vict. C. 10), in so far as they apply to, and operate in, Pakistan, are hereby repealed.
+(2) Nothing in this Ordinance shall be deemed to authorise proceedings in rem in respect of any claim against the Federation or the arrest, detention or sale of any ship or aircraft of the Pakistan Navy or the Pakistan Air Force or of any cargo or other property belonging to the Federation.
