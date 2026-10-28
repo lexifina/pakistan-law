@@ -1,0 +1,12 @@
+2. Repeal and savings.—(1) The Special Courts for Speedy Trials Act, 1992 (IX of 1992), hereinafter referred to as the said Act, shall stand repealed from the twenty-sixth day of July, 1994.
+(2) Notwithstanding the repeal of the said Act,—
+(a) every order, decision or judgement passed by any Special Court or the Supreme Appellate Court constituted under the said Act before such repeal shall remain in force and the operative and the repeal shall not effect any thing duly done or punishment incurred or suffered thereunder;
+(b) all convictions passed, punishments or sentences awarded by the Special Court or the Supreme Appellate Courts before such repeal shall be executed as if the said Act was in force;
+(c) any investigation or inquiry under the said Act, made or instituted shall continue to be made and instituted;
+(d) all cases pending before the Special Courts at the time of such repeal shall stand transferred to the respective Courts of Session of the area or such other courts where the cases were registered against the accused;
+(e) the Court of Session or, as the case may be, any other court to which a case has been transferred from a Special Court under clause (d) shall try it in accordance with the provisions of the Code of Criminal Procedure, 1898 (Act V of 1898), or the law applicable to such case;
+(f) all appeals pending adjudication before the Supreme Appellate Court shall stand transferred to the respective High Courts having territorial jurisdiction; and
+(g) on receipt of an appeal under clause (f), the High Court shall cause its disposal by a Bench consisting of not less than two Judges of the High Court in accordance with the provisions of the Criminal Procedure Code, 1898 (Act V of 1898), and the original order shall be deemed to have been passed by a Single Bench of the High Court.
+(3) Where a case was transferred to the Special Court from a court other than the Court of Session, such Court of Session shall, on receipt of the case under clause (d) of sub-section (2), transmit it to chat court for further proceedings:
+Provided that where a case was transferred to the Special Court before the completion of investigation or submission of report under section 173 of Code of Criminal Procedure, 1898 (Act V of 1898), and in the case the investigation has not been completed or the report has not been submitted, such case shall be transmitted to the concerned investigation agency for further action within a period of one year.
+______________
