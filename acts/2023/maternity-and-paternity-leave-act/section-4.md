@@ -1,0 +1,2 @@
+4. Paternity leave.—(1) A male employee expecting his wife to give birth to a child shall, at his option, be granted paternity leave on full pay not exceeding thirty days outside his leave account from the date of its commencement.
+(2) Such paternity leave may not be granted for more than three times in the entire service of the male employee except when such leave is granted within his leave account due and admissible to him or as an extra ordinary leave without pay.

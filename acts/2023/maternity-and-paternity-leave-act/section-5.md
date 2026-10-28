@@ -1,0 +1,1 @@
+5. Offence and punishment.—A person who contravenes any provision of this Act shall be deemed to have committed an offence punishable with imprisonment of either description for a term which may extend to six months or a fine which may extend to one hundred thousand rupees or with both.
