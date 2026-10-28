@@ -1,0 +1,2 @@
+37. Duties and fees to be held in non-lapseable personal ledger account.⎯(1) The Commission shall establish and maintain a non-lapseable personal ledger account in its name for the purposes of this Ordinance and all duties and fees collected pursuant to this Ordinance shall be held in such account
+(2) The account to be established under sub-section (1) shall be maintained and operated in such manner as may be prescribed.

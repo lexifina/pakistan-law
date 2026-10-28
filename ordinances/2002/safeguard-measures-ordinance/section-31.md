@@ -1,0 +1,1 @@
+31. Termination without application of safeguard measure. If at any point an investigation is terminated without the application of a definitive safeguard measure, the Federal Government shall immediately notify the Committee, in conformity with any requirements established by the Committee therefore.
