@@ -1,0 +1,3 @@
+4. Power to grant exemption from payment, authorise refund and procedure for
+collection and refund of surcharge.—(1) Subject to such conditions, limitations or restrictions as it may think fit to impose, the Federal Government may, in such general cases as it may prescribe by rules or in particular cases by special order, exempt a company from the payment of the development surcharge in respect of all or any of the fertilizers or authorise the refund in whole or in part of the development surcharge paid by a company.
+(2) Subject to any rules made under this Act, the development surcharge shall be collected in the same manner as a duty of excise leviable under the Central Excises and Salt Act, 1944 (I of 1944), is collected.

@@ -1,0 +1,8 @@
+2. Definitions.— In this Act, unless there is anything repugnant in the subject or context,—
+(a) “company” means any company engaged in the business of manufacturing chemical fertilizers ;
+(b) “development surcharge” means the surcharge payable under section 3;
+(c) “differential margin”, in relation to a chemical fertilizer, means the amount by which the maximum sale price of that fertilizer exceeds its maximum retail selling price as in force immediately before the commencement of the Chemical Fertilizers (Development Surcharge) Ordinance, 1973 (VI of 1973), hereinafter referred to as the said Ordinance, or, as the case may be, the amount by which its maximum sale price exceeds the aggregate of its ex-factory price and the incidental charges;
+(d) “ex-factory price”, in relation to a chemical fertilizer produced by a factory, means such ex-factory price of that fertilizer as the Federal Government may, by notification in the official Gazette, declare to be the ex-factory price having regard to the cost of production of such factory;
+(e) “incidental charges” means the aggregate of the freight by rail or road and such distribution costs as the Federal Government may, by notification in the official Gazette, fix;
+(f) “landed cost”, in relation to any chemical fertilizer, means the aggregate of c.i.f. value, duties, taxes, fees and other charges payable on or after the import of that fertilizer into Pakistan;
+(g) “maximum sale price”, in relation to a chemical fertilizer, means such retail price of that fertilizer, not exceeding 125 per cent, of its landed cost, as the Federal Government may, by notification in the official Gazette, declare to be the maximum sale price.
