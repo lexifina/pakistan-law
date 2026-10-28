@@ -1,0 +1,1 @@
+50. Exemption from Act, VII of 2023.___ The Fund and the state-owned enterprise majority owned by the Fund shall be exempt from the applicability of the State-Owned Enterprises (Governance and Operations) Act, 2023 (VII of 2023).

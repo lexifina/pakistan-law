@@ -1,0 +1,3 @@
+41. Exemption from liability of the directors of Board, members, employees of the Fund
+and agents.___(1) No suit, prosecutions or any other legal proceedings or action in damages shall lie against the Board, Advisory Committee and their members and employees of the Fund for anything done or omission in exercise or performance of any functions, power or duty conferred or imposed by or under this Act unless the act or omission is shown, to have been in bad faith.
+(2) Directors of the Board, Advisory Committee and employees of the Fund shall not be sued in their personal capacity for the action bonafidly taken in their official capacity.

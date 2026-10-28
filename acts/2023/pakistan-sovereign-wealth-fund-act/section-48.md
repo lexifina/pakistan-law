@@ -1,0 +1,1 @@
+48. Exemption form Ordinance, LII of 2000.___The provisions of the Privatization Commission Ordinance, 2000 (LII of 2000) shall not be applicable on the acquisition, divestment and transfer of asset by the Fund.

@@ -1,0 +1,1 @@
+32. Public private partnership.___ In pursuance of Fund’s objectives, the Supervisory Council may, on its own initiative or at the request of the Federal Government, invest any part of assets of the Fund for the purpose of infrastructure development as the private partner with the Government under the Public Private Partnership Authority Act 2017 (VIII of 2017).
