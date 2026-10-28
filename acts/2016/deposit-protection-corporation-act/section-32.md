@@ -1,0 +1,1 @@
+32. Power to make rules.⸺The State Bank may, with approval of the Federal Government and by notification in the official Gazette, make rules, consistent with the provisions of this Act, for carrying out the purposes of this Act.

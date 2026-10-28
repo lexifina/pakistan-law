@@ -1,0 +1,1 @@
+37. Act to override.⸺Except the application of any provision of the Act to the Corporation as a subsidiary of the State Bank, this Act shall have effect notwithstanding anything contained in any law for the time being in force or in any agreement, contract, or other applicable documents or instrument.

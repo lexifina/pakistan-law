@@ -1,0 +1,2 @@
+30. Pension, gratuity, provident fund and other employment benefits of Corporation’s
+employees to be exempt from attachments, etc.⸺Notwithstanding anything contained in any law for the time being in force, pensions, gratuity or provident fund and other employment benefits granted by the Corporation to its executives and other employees shall not be liable to seizure, attachment or sequestration by process of any court at the instance of a creditor, for any demand against the pensioner or in satisfaction of a decree or order of any such court.
