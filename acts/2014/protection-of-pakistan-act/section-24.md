@@ -1,0 +1,2 @@
+24. Overriding effect.____ (l) Subject to such conditions as the Government may specify by notification in the Official Gazette, the provisions of this Act shall have effect notwithstanding anything contained in any other law for the time being in force.
+(2) In case there is any conflict between the provisions of this Act and any other law for the time being in force, the provisions of this Act shall prevail to the extent of inconsistency.

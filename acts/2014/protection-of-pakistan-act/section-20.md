@@ -1,0 +1,1 @@
+20. Savings._ No member of the police, armed forces or civil armed forces acting in aid of civil authority, Prosecutor General, a prosecutor, Special Judicial Magistrates or the Judge of a Special Court shall be liable to any action for the acts done in good faith during the performance of their duties.

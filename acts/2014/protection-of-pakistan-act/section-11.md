@@ -1,0 +1,1 @@
+11. Establishment of Prosecuting Agency.____ The Government shall establish an independent Prosecuting Agency headed by a Prosecutor General in order to provide consultation and legal guidance to the investigating agency and to conduct the prosecution of scheduled offences.
