@@ -1,0 +1,3 @@
+27. Governing bodies for constituent units.—(1) The University may set up separate governing bodies for its constituent units and decide on the nomenclature to be used for the same. The Registrar shall represent the University in such governing bodies.
+(2) The members of the existing governing bodies shall continue to operate with suitable representation from the University headquarters subject to ratification by the Board in its first meeting and shall consist of suitably qualified persons appointed by the Board of Governors.
+(3) The business of the governing bodies shall be regulated by the Board as may be prescribed.

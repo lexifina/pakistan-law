@@ -1,0 +1,1 @@
+22. Delegation of powers.—The Board may, by order in writing, direct that any of its powers and functions, shall, in such circumstances and under such conditions, if any, as may be specified in the order, be exercisable also by a committee, sub-committee or the Vice-Chancellor.

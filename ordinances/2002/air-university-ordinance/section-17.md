@@ -1,0 +1,2 @@
+17. Heads of constituent units.—(1) There shall be the Heads of constituent units, who shall be appointed in the manner and on such terms and conditions as may be prescribed.
+(2) The Heads of constituent units shall in addition to their positions as academic heads, abide by the academic rules and requirements of syllabi, conduct of examinations, etc., as may be prescribed they shall, simultaneously, perform their duties as executive heads of their respective Institutions.

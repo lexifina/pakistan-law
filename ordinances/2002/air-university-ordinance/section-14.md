@@ -1,0 +1,2 @@
+14. Director Finance.—(1) The Board may appoint a Director Finance, on such terms and conditions, as it may determine.
+(2) The Director of Finance shall be mainly responsible for the proper and judicious management of the University funds received from various sources, in accordance with the policies laid by the Board of Governors; Other tasks and duties assigned to him by the Vice-Chancellor from time to time, shall also become his responsibility.

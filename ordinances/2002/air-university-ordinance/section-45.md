@@ -1,0 +1,1 @@
+45. Cessation of membership of an ex-officio member. Notwithstanding anything contained in this Ordinance, a person nominated or appointed to any body or authority under this Ordinance, shall cease to be a member of such body or authority as soon as he ceases to hold the position by virtue of which he was nominated or appointed.
