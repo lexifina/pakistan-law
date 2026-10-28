@@ -1,0 +1,1 @@
+6. Inspection of certified measures by the public. A public servant having in pursuance of such a direction charge of such a measure as is mentioned in the last foregoing section shall allow any person to inspect it free of charge at all reasonable times and to compare therewith or with any measure marked thereon any measure which such person may have in his possession.
