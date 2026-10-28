@@ -1,0 +1,3 @@
+29. Establishment and operation of general reserve.___(1) The Fund shall establish a general reserve to which it shall appropriate at least fifty percent from surplus of income over expenditure of the Fund at the end of its financial year.
+(2) The Board may, in its sole discretion, decide to appropriate a higher amount from surplus to the general reserve in any given financial year.
+(3) If in any financial year, the income of the Fund together with any surplus income brought forward from a previous financial year, is insufficient to enable the Fund to meet the charges and to make the provisions required under sub-section (1), the deficiency shall be met from the general reserve.

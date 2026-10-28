@@ -1,0 +1,2 @@
+27. Holding and investment of the Fund.___(1) The Fund must be invested in conformity with the investment mandate and in whatever other way not inconsistent with the investment mandate that the Board considers most appropriate to enable it to achieve the Fund’s objectives.
+(2) At least twice a year, the Board shall review the size of the Fund and the manner in which the money held in the Fund is invested, considering the Fund’s current and potential liabilities, and in the light of that review, the Board may make any necessary adjustments in the holding of the Fund.

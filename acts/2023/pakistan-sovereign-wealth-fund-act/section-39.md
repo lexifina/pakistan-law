@@ -1,0 +1,3 @@
+39. Disclosure of interest.___(l) Every member of the Board and employee of the Fund shall disclose in writing any commercial, financial or other business interest which he or his spouse and dependent children may have, whether directly or indirectly, and which may have adverse implications for the Fund’s interest.
+(2) In performing their obligations, the persons under sub-section (1) shall be bound to place the Fund’s interests before their own interests.
+(3) Directors of the Board shall not participate in any discussion and shall restrain from voting on the issues in which their commercial, financial or other business interest, or those of their families, is involved.

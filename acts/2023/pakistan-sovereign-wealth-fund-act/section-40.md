@@ -1,0 +1,1 @@
+40. Financial year of Fund.—The financial year of the Fund shall be the financial year of the Government of Pakistan starting from the first day of July and ending on the 30th day of June of the following year.

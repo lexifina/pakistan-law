@@ -1,0 +1,1 @@
+46. Power to make regulations.___ The Board may by notification in the official Gazette, make regulations for all matters for which it is necessary or expedient for carrying out the purposes of this Act.

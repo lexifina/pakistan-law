@@ -1,0 +1,3 @@
+7. Borrowing and lending.___ (1) The Fund may, subject to Board approval, borrow in order to finance any of the investment projects that it is carrying out or participating in.
+(2) A request for loan approval must be based on a recommendation from the investment committee accompanied by a review of the economic viability of each project and the data and analysis that the Investment Committee depended on for its recommendation, and the project must meet all standards required by the investment policy of the Fund.
+(3) The Fund shall exercise its lending powers in accordance with this Act, as well as any regulations and limits established by the Board upon recommendation from the chief executive officer.

@@ -1,0 +1,2 @@
+34. Books of accounts.___(1) The Fund shall maintain proper accounts and other records to reflect true and fair view of Fund’s state of affairs and prepare financial statements as per the relevant international financial reporting standards.
+(2) The fund shall also prepare separate financial statements of each fund established under section 26 as per the relevant international financial reporting standards.

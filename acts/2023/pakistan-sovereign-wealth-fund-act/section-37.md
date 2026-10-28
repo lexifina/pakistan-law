@@ -1,0 +1,1 @@
+37. Submission of annual report to the Majlis-e-Shoora (Parliament).___The Supervisory Council, within thirty days of receipt of report from the Board as given in sub-section (3) of section 36, shall submit the report to the Majlis-e-Shoora (Parliament).
