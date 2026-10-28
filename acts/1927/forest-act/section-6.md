@@ -1,0 +1,4 @@
+6. Proclamation by Forest Settlement-officer.—When a notification has been issued under section 4, the Forest Settlement-officer shall publish in the local vernacular in every town and village in the neighborhood of the land comprised therein, a proclamation___
+(a) specifying, as nearly as possible, the situation and limits of the proposed forest;
+(b) explaining the consequences which, as hereinafter provided, will ensue on the reservation of such forest; and
+(c) fixing a period of not less than three months from the date of such proclamation, and requiring every person claiming any right mentioned in section 4 or section, 5 within such period either to present to the Forest Settlement officer a written notice specifying or to appear before him and state, the nature of such right and the amount and particulars of the compensation (if any) claimed in respect thereof.

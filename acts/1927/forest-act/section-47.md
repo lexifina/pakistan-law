@@ -1,0 +1,6 @@
+47. Procedure on claim preferred to such timber.___(1) When any such statement is presented as aforesaid, the Forest-officer may, after making such inquiry as he thinks fit, either reject the claim after recording his reasons for so doing, or deliver the timber to the claimant.
+(2) If such timber is claimed by more than one person, the Forest-officer may either deliver the same to any of such persons whom he deems entitled thereto, or may refer the claimants to the Civil Courts, or retain the timber pending the receipt of an order from any such Court for its disposal.
+(3) Any person whose claim has been rejected under this section may, within three months from the date of such rejection, institute a suit to recover possession of the timber claimed by him; but no person shall recover any compensation or costs against the [^53][Government], or against any Forest-officer, on account of such rejection, or the detention or removal of any timber, or the delivery thereof to any other person under this section.
+(4) No such timber shall be subject to process of any Civil, Criminal or Revenue Court until it has been delivered, or a suit has been brought, as provided in this section.
+
+[^53]: Subs. by A.O., 1961, Art. 2 (with effect from the 23rd March, 1956), for “Crown” which had been subs. by A.O., 1937, for “Govt.”.

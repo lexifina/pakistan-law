@@ -1,0 +1,1 @@
+12. Order on claims to rights of pasture or to forest-produce.—In the case of a claim to rights of pasture or to forest-produce, the Forest Settlement-Officer shall pass an order admitting or rejecting the same in whole or in part.

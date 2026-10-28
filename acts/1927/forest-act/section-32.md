@@ -1,0 +1,16 @@
+32. Power to make rules for protected forests.—The [^31][Provincial Government] may make rules to regulate the following matters, namely:
+(a) the cutting, sawing, conversion and removal of trees and timber, and the collection, manufacture and removal of forest-produce, from protected forests;
+(b) the granting of licences to the inhabitants of towns and villages in the vicinity of protected forests to take trees, timber or other forest-produce for their own use, and the production and return of such licences by such persons;
+(c) the granting of licences to persons felling or removing trees or timber or other forest-produce from such forests for the purposes of trade, and the production and return of such licences by such persons;
+(d) the payments, if any, to be made by the persons mentioned in clauses (b) and (c) for permission to cut such trees, or to collect and remove such timber or other forest-produce;
+(e) the other payments, if any, to be made by them in respect of such trees, timber and produce, and the places where such payment shall be made;
+(f) the examination of forest-produce passing out of such forests;
+(g) the clearing and breaking up of land for cultivation or other purposes in such forests;
+(h) the protection from fire of timber lying in such forests and of trees reserved under section 30;
+(i) the cutting of grass and pasturing of cattle in such forests;
+(j) hunting, shooting, fishing, poisoning water and setting traps or snares in such forests, and the killing or catching of elephants in such forests [^32][* * *] ;
+(k) the protection and management of any portion of a forest closed under section 30; and
+(l) the exercise of rights referred to in section 29.
+
+[^31]: Subs. by A.O., 1937, for “L.G.”.
+[^32]: The words “in areas in which the Elephants Preservation Act, 1879, is not in force” omitted by the Federal Laws (Revision and Declaration) Ordinance, 1981 (XXVII of 1981), s. 5 and Sch., IV, only to the extent of Islamabad Capital Territory.
