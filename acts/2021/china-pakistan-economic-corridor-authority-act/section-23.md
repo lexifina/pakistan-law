@@ -1,0 +1,1 @@
+23. Indemnity.—No suit, prosecution or other legal proceeding shall lie against the Authority, the Chairperson, Member, Executive Director Operations, Executive Director Research, employees, officers, experts, consultants or advisors of the Authority, in respect of anything done or purported to be done in good faith, under the provisions of this Act or the rules and regulations.

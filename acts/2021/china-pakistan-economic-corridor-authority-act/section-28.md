@@ -1,0 +1,1 @@
+28. Power to remove difficulties.—If any difficulty arises in giving effect to any provision of this Act, the Prime Minister may make such order not inconsistent with the provisions of this Act, as may be necessary to remove the difficulty.

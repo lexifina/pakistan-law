@@ -1,0 +1,1 @@
+26. Overriding effect.—The provisions of this Act shall have effect notwithstanding anything to the contrary contained in any other law, rule or regulation, for the time being in force, and any such law, rule or regulation shall, to the extent of any inconsistency, cease to have effect on the commencement of this Act.
