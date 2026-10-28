@@ -1,0 +1,4 @@
+## DISCONTINUANCE OF TRAMWAYS
+19. Cessation of powers of promoter and lessee on discontinuance of tramway. If it is proved to the satisfaction of the [^31][Government], at any time after the opening of a tramway for public traffic, that the working of the tramway, or any part thereof, has been a practically discontinued, for the space of three months, without a reason sufficient, in the opinion of the [^31] [Government], to warrant the discontinuance, the [^31][Government], if it thinks fit, may, by notification in the official Gazette, declare that the powers of the promoter and of the lessee, if any, in respect of the tramway or the part thereof of which the working has been so discontinued, shall, from the date of the notification, be at an end; and thereupon the said powers shall cease and determine, except in so far as they may be purchased by a local authority in manner by this Act provided.
+
+[^31]: Subs. by A. O., 1937, for “L.G.”.
