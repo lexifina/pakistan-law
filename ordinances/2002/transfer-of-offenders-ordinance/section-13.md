@@ -1,0 +1,2 @@
+13. No appeal or revision of a sentence of imprisonment imposed upon an offender who
+is a citizen of Pakistan:___ The sentence of imprisonment imposed on any offender who is a citizen of Pakistan in any specified country shall not be subject to any appeal or revision in any court in Pakistan, notwithstanding the fact that the order, decision or judgment imposing such sentence is deemed to be an order, decision or judgment imposed by a court of competent jurisdiction in Pakistan.
