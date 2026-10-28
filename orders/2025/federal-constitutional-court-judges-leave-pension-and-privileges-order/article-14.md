@@ -1,0 +1,1 @@
+14. Authority competent to grant leave.—The authority competent to grant or refuse, within or ex-Pakistan leave, or to revoke or curtail leave already granted, shall, in the case of the Chief Justice, be the President and, in the case of other Judges, the Chief Justice.

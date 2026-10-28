@@ -1,0 +1,2 @@
+11. Overstaying leave or vacation.—If a Judge overstays his leave or any vacation, whether combined with leave or not, he shall receive no salary for the period of his absence in excess of the leave granted to him or beyond the end of the vacation, as the case may be:
+Provided that, if such absence is due to circumstances beyond his control, the period thereof may be treated as leave admissible to him.

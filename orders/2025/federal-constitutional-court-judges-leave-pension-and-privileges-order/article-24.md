@@ -1,0 +1,1 @@
+24. Exemption from income-tax.—No income-tax shall be payable in respect of the allowance admissible to a Judge under paragraph 20 or paragraph 22 or the other benefits and perquisites to which a Judge is entitled under the said paragraph 20 or paragraph 21 or medical allowance admissible under paragraph 19.
