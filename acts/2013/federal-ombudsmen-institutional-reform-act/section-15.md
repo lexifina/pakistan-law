@@ -1,0 +1,1 @@
+15. Personal hearing.—It shall not be necessary for the President or the Ombudsman to give personal hearing to the parties and the matter may be decided on the basis of available record and written comments filed by the Agency.

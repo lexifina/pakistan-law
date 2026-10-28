@@ -1,0 +1,1 @@
+21. Miscellaneous.—A woman, with an experience of atleast ten years in the matters relating to protection of women against harassment shall also be eligible to be appointed by the President as Ombudsman under the Protection against Harassment of Women at the Workplace Act, 2010 (IV of 2010).

@@ -1,0 +1,1 @@
+8. Oath of office.—An Ombudsman shall take Oath before he enters upon his office in the form as prescribed in the relevant legislation and in case such form is not prescribed in the relevant legislation he shall make oath before the President before he enters upon office in the form set out in the Schedule to this Act.
