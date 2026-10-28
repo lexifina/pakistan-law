@@ -1,0 +1,4 @@
+10. Declaration of protected antiquities.—(1) The Federal Government may, by notification in the official Gazette, declare any antiquity to be a protected antiquity for the purposes of this Act.
+(2) A copy of a notification under sub-section (1) shall be served on the owner of the antiquity and; in the case of an immovable antiquity, shall also be fixed up in a conspicuous place of or near the antiquity.
+(3) A notification under sub-section (1) shall, unless it is cancelled by the Federal Government, be conclusive evidence of the fact that the antiquity to which it relates is a protected antiquity for the purposes of this Act.
+(4) Antiquities declared to be protected antiquities under the Antiquities Act, 1968 (XIV of 1968), and ancient monuments deemed to be protected antiquities for the purposes of that Act, shall be deemed to be protected antiquities for the purposes of this Act.

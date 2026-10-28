@@ -1,0 +1,1 @@
+32. Penalty. A contravention of any provision of this Act or the rules shall, where no punishment has been specifically provided, be punishable with rigorous imprisonment for a term which may extend to six months, or with fine which may extend to five thousand rupees, or with both.

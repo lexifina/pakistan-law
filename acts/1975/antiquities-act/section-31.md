@@ -1,0 +1,1 @@
+31. Right of access to protected immovable antiquities.—Subject to the provisions of this Act and the rules, the public shall have a right of access to any immovable protected antiquity maintained by the Federal Government under this Act.

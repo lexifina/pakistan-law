@@ -1,0 +1,1 @@
+18. Restriction on use of protected immovable antiquity. A protected immovable antiquity shall not be used for any purpose inconsistent with its character or for a purpose other than that directly related to its administration and preservation.
