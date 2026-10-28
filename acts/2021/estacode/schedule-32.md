@@ -1,0 +1,1331 @@
+ANNEXURE-III Ref. Sl.No.12.1
+PER GRADING & QUANTIFICATION FORM
+Name:
+Year Post held Min/Div/ Period of PER’S Fitness for Score Deptt. PER Assessment Promotion From To By RO By CO Previous Scale (BS-19/20)
+Aggregate Score=
+Present Scale (BS-20/21)
+CALCULATION OF SCORE
+A. PERs Quantified Basic Scale Aggregate Weightage Points Score 60:40 Score Factor Obtained @ 70% Present Scale Previous Scale i. Additions ii. Deletions Total (A):- B. Training: NIPA/NMC @ 15 % LHR KAR QTA PSH
+C. Grand Total (A+B)
+Prepared by Checked by (Superintendent or Equivalent) (Section Officer or Equivalent)
+Countersigned by
+(Deputy Secretary or Equivalent)
+Sl.No. 13
+Knowledge of Islamic/Pakistan Studies
+The President was pleased to direct vide CMLA Secretariat‘s directive No. 270 of 1981 that:—
+―Various systems and methods of selection are in vogue for inducting individuals in the government at different levels. At the higher level, selection is made by the Public Service Commissions. Separate criteria are prescribed for induction at each level. In all these systems and procedures, one thing must be common, that is, assessment of the candidate‘s knowledge of Islamic and Pakistan Studies. Persons without adequate knowledge of these subjects will not be considered fit for appointment to government jobs, irrespective of their proficiency in other fields. Necessary instructions will be issued; as executive orders, immediately, and implementation by all concerned ensured. If an Ordinance is considered to be
+ Now NIM.
+CHAPTER-7 ESTACODE (EDITION-2021) Page - 733
+necessary to give effect to this directive or would help to make its implementation more effective, it may be prepared and submitted to me‖.
+2. The matter has been examined in the Establishment Division and it has been decided that the existing rules give the Chairman, FPSC and the Departmental Selection Committees adequate powers to prescribe the qualifications for inducting individuals in government departments. There is, therefore, no need for any change in the rules.
+3. All selection authorities, however, will ensure that a certain percentage of the marks in any interview/examination carried out for induction of individuals into the government service will be reserved for Islamic and Pakistan Studies. Persons scoring less than pass marks in these subjects will not be considered fit for appointment to government jobs, irrespective of their proficiency in other fields.
+[Authority:– Estt. Secretary‘s D.O. No.4/14/81-TI, dated 24-6-1981].
+Sl.No. 14
+Declining Promotion to Evade Transfer to an Unattractive Station
+A decision was circulated vide Establishment Division O.M. No. 1/21/76-D. II, dated the 18th September, 1976 (Annex) that if a senior person declines promotion to suit his convenience, he should lose in seniority to the next junior person who is promoted in the relevant vacancy, and that he should not be considered for promotion till after his case for promotion has been considered again by the Selection Board in a subsequent meeting. The competent authority may also consider the grounds on which promotion has been declined and, in suitable cases, may take disciplinary action (on grounds of misconduct, that is, refusal to obey orders to proceed on transfer to another station) where it is clear that the promotion has been declined to evade transfer to an unattractive station, and may impose the penalty of withholding of promotion for a specified period.
+2. It has now been considered that the aforesaid decision is inconsistent with the broad provisions of the Civil Servants Act, 1973. The Establishment Division O.M. No. 1/21/76-D.II, dated 18th September, 1976 is, therefore, withdrawn with immediate effect. All such cases where senior persons decline promotion to suit their convenience shall be decided in future on merits of each case in consultation with Establishment Division.
+[Authority:– Estt. Division O.M.No.1/21/76-D.II(R-4), dated 9-5-1982].
+(ANNEX)
+[Copy of Establishment Div.’s O.M. No. 1/21/76-D.II, dated the 18th September, 1976].
+The question as to how the seniority of a person who is cleared for promotion but who declines promotion should be determined when he is subsequently promoted has been considered. It has been decided that if a senior person declines promotion to suit his convenience, he should lose in seniority to the next junior person who is promoted in the relevant vacancy, and that he should not be considered for promotion till after his case for promotion has been considered again by the Selection Board in a subsequent meeting. The competent authority may also consider the grounds on which promotion has been declined and, in suitable cases, may take disciplinary action (on grounds of misconduct that is, refusal to obey orders to proceed on transfer to another station) where it is clear that the promotion has been declined to evade transfer to an unattractive station, and may impose the penalty of withholding of promotion for a specified period.
+Page - 734 ESTACODE (EDITION-2021) CHAPTER-7
+Sl.No.15
+Discontinuation of use of the Term ―Competent Authority‖
+The Prime Minister has directed that the words ―competent authority‖ frequently used in official notifications and correspondence should be discontinued with immediate effect. Use of the term ―competent authority‖ creates ambiguity and uncertainty. The authority passing the order should be clearly specified in notification/orders/correspondence wherever such a reference is required.
+[Authority:— Cabinet Division‘s Circular No. 36/Cab/2002 dated 26-11-2002]
+____________________________
+CHAPTER 8
+CONDUCT, EFFICIENCY AND DISCIPLINE
+(735 - 736)
+CHAPTER-8ESTACODE (EDITION-2021) Page-737
+Chapter 8
+Conduct, Efficiency & Discipline
+Sl. Chapter Contents Page No(s). No(s).
+I. CONDUCT
+1.1 Government Servants (Conduct) Rules, 1964........................................ 743-753
+1.2 Delegation of Powers to Secretaries to Government under the 753 Government Servants (Conduct) Rules, 1964 ...........................................
+1.3 Delegation of Powers to Secretaries to Government of Pakistan 753 – Heads of Departments ............................................................................
+1.4 Interpretation of the term "Government" as Defined in the 753-754 Government Servants (Conduct) Rules, 1964 ...........................................
+1.5 Procedure for the Acceptance and Disposal of Gifts ................................. 754-757
+2.1 Bar Against Demanding Dowry and Acceptance of Gifts on 757-758
+Occasions of Marriages ...........................................................................
+2.2 Bar Against Acceptance of Gratification by Grade 1-3 758 Employees on Occasions of Eid etc. from Public...................................... 2.3 Acceptance of Foreign Trips Sponsored by Commercial Firms ................ 758-759
+2.4 Acceptance of Foreign Awards by Government Servants ......................... 759
+2.5 Holding of Farewell Parties on the Occasion of Transfers of 759 Government Servants In their Honour.......................................................
+3.1 Prohibition to be Chief Guests................................................................ 760
+3.2 Raising of Subscriptions for Functions, etc............................................... 760
+3.3 Raising of Subscription for Funds – Regulatory Criteria .......................... 760-761
+4.1 Grant of Permission for Acquisition of Property (Movable 761-762
+and Immovable) by Government Servants.............................................
+4.2 Revision of Proforma for Permission Regarding 762-763 Acquisition/Disposal/ Construction of Moveable/ Immovable Property ..................................................................................................... 4.3 Acquisition of Immovable Property by Government Servants 764 Posted/Employed In Pakistan Missions Abroad ........................................
+4.4 Declaration of Assets Held and Acquired by Government 765-769 Servants and Corporation Employees........................................................
+5.1 Amendments in Government Servants (Conduct) Rules, 770
+1964 and Submission of Declaration of Income and Assets
+Held and Acquired by Government Servants and
+Corporation Employees...........................................................................
+5.2 Declaration of Assets Held and Acquired by Government 771-775 Servants for the year ending 30th June, 20__.............................................
+Page-738 ESTACODE (EDITION-2021) CHAPTER-8
+Sl. Chapter Contents Page No(s). No(s).
+5.3 Quarterly Statement Regarding Permissions Granted to the 776 Federal Government Officers Under Government Servants (Conduct) Rules, 1964 by the Provincial Government to Buy and Sell Assets...........................................................................................
+6.1 Private Medical Practice by Government Servants.............................. 776
+6.2 Transaction of Insurance Business by Government Servants .................... 777
+6.3 Private Work During and After Office Hours ........................................... 777
+6.4 Future Good Conduct of Pensioners ........................................................ 777-778
+6.5 Taking Part in Politics by Pensioners.............................................................. 778
+7.1 Employment of Dependent Family Members of a 778
+Government Servant in Foreign Missions in Pakistan..........................
+7.2 Engagement in Trade, Business etc. By Spouses of Government 778-779 Servants .....................................................................................................
+7.3 Instructions under Government Servants (Conduct) Rules, 1964 779 Regarding Procedure for Engaging in Private Business, Trade and Consultancy Work ..............................................................................
+7.4 Use of Social Media by Government Servants 780-781
+7.5 Membership of Private Associations Connected with Social 782 Work..........................................................................................................
+7.6 Association with Private Trusts, Foundations, etc..................................... 782
+7.7 Prosecution of Studies by Government Servants in Educational 782 Institutions.................................................................................................
+7.8 Appearing at an Examination as Private Candidates by 782-783 Government Servants ................................................................................
+8.1 Bar Against Naming of Institutions, Projects, Roads, Streets 783-784
+etc. in the Country after the Names of Government
+Servants.................................................................................................... 8.2 Participation in Foreign Cultural Associations or Organizations .............. 784
+8.3 Membership of Foreign Cultural Associations/ Organizations ................. 784
+9.1 Membership of British Library .............................................................. 784
+9.2 Unauthorized Communication of Official Documents or 785 Information ..................................................................................................
+10.1 Premature Leakage of Information to the Press/Media........................ 785
+10.2 Instructions under Government Servants (Conduct) Rules,1964 786 Regarding Procedure for Participating in Electronic, Print and Social Media Platforms .............................................................................
+10.3 Consultation with Principal Information Officer for Projection 786-787 of Government Policies Programmes and Activities .................................
+10.4 Letters to Editor......................................................................................... 787
+CHAPTER-8ESTACODE (EDITION-2021) Page-739
+Sl. Chapter Contents Page No(s). No(s).
+11.1 Approaches to Ministers, M.N.As. etc. for Purchase or Sale 788
+of Property ...............................................................................................
+11.2 Extraneous Influence by Government Servants in Respect of 788 Service Matters.......................................................................................... 11.3 Measures to Curb Extraneous Influences by Government 789 Servants in Service Matters ....................................................................... 11.4 Steps to Curb Extraneous Influences ........................................................ 789
+11.5 Evidence Before Committee of the National Assembly ............................ 790 11.6 Clarification of Application of Instructions Regarding Radio 790-791 Broadcasts to Employees of Autonomous Bodies .....................................
+12.1 Taking Part in Politics - Bar against Supporting Student 791
+Agitations .................................................................................................
+12.2 Action to be Taken Against Government Servants Found 791-792 Indulging in Politics/Subversive Activities ............................................... 12.3 Bar Against Discussing Politics in Offices, Clubs, Restaurants 792-793 and Public Places.......................................................................................
+13.1 Supply of Copies of Government's Orders/Instructions to 793-794
+the Employees Associations.....................................................................
+13.2 Continuation of Service Association Other Than Those of 794 Services Regularly Constituted .................................................................
+14 Functioning of Service Associations.................................................................. 794
+15.1 Permission to Representatives of Service Associations to 795
+Attend Various Meetings ........................................................................
+15.2 Grant of Interview to the Office Bearers of the Association ..................... 795
+15.3 Bar Against Public Criticism of Government Action by 795 Associations etc.........................................................................................
+15.4 Demands of Service Associations ............................................................. 795-796
+16.1 Channel of Communication Between Recognized Service 796
+Associations and Government ................................................................
+16.2 Approaching Foreign Missions and Aid-Giving Agencies By 797 Officers to Secure Invitation to Visit a Foreign Country or to Elicit Offers of Training Facilities...................................................................
+17.1 Correspondence with Foreign Missions ................................................. 797
+17.2 Bar Against Security Scholarships and Invitation to Visit 798 Abroad.......................................................................................................
+18.1 Fraternisation Between Government Servants and the 798-799
+Foreign Missions in Pakistan ..................................................................
+18.2 Indulging in Critical Remarks Against Ministers ...................................... 799
+19.1 Government Servants (Marriage with Foreign Nationals) 800-803
+Rules, 1962 ............................................................................................................
+Page-740 ESTACODE (EDITION-2021) CHAPTER-8
+Sl. Chapter Contents Page No(s). No(s).
+19.2 Marriage or Promise of Marriage with Foreign National 803 (Except Indian) to be Considered `Misconduct' ........................................ 19.3 Observance of Government Servants (Marriage with Foreign 803 Nationals) Rules, 1962 and Guidelines ..................................................... 19.4 Bar Against Making Requests for Ex-Post Facto Approval for 804 Marriages with Foreign Nationals ............................................................. 19.5 Prohibition of Wasteful Expenditure on Marriages................................... 804
+II. EFFICIENCY AND DISCIPLINE
+20.1 Civil Servants (Efficiency & Discipline) Rules, 2020 ............................ 805-815
+20.2 Disciplinary Proceedings under Government Servants 815-816 (Efficiency and Discipline) Rules, 1973 against Accused Government Servants: Furnishing of Case Material.................................. 20.3 Applicability of the Disciplinary Proceedings against 816 Dismissed, Removed or Compulsorily Retired Civil Servants .................. 21.1 Procedure for Obtaining Orders of the President or Prime 816-817 Minister in Disciplinary Cases .................................................................. 21.2 Appointment of an Inquiry Officer Under the Government 817-818 Servants (Efficiency and Discipline) Rules, 1973 .....................................
+22.1 Need of Keeping the Provisions of FR-29 in View While 818
+Imposing the Penalty Under Rule 4(c) of the Civil Servants
+(Efficiency and Discipline) Rules,2020...................................................
+22.2 Disciplinary Procedure to be Followed in Cases Where No 818-819 Inquiry Officer/ Committee is Appointed.................................................. 22.3 Requirement to Issue a Fresh Show Cause Notice if the Penalty 819-820 Imposed Under Government Servants (Efficiency and Discipline) Rules, 1973, or Proposed to be Imposed is Greater than that Specified in the Show Cause Notice, or is Proposed to be Enhanced by the Appellate Authority...................................................
+23.1 Publication of Notices in the Newspapers .............................................. 820-821
+23.2 Publication of Charge Sheet or Show Cause Notice in 821-822 Newspaper.................................................................................................
+24.1 Leaving Station by Government Servants under Suspension ............... 822
+24.2 Bar Against Use of Government Stationery and Service Postage 823 Stamps by Accused Government Servants in Disciplinary Proceedings ...............................................................................................
+25.1 Filling Up of Suspension Vacancies ........................................................ 823
+25.2 Termination of Services of Temporary Government Servants 823-825 under Suspension ......................................................................................
+25.3 Bar Against Mentioning of Unfinalised Departmental 825-826 Proceedings in Confidential Reports .........................................................
+26.1 T.A. Admissible to Witnesses and Accused Government 826
+Servant Summoned by an Inquiry Officer.............................................
+CHAPTER-8ESTACODE (EDITION-2021) Page-741
+Sl. Chapter Contents Page No(s). No(s).
+26.2 Admissibility of TA to Witness in Disciplinary Cases .............................. 826-827 26.3 Admissibility of TA to Government Servants under Suspension 827 26.4 Framing of an Additional Charge During Currency of the 827 Disciplinary Proceedings...........................................................................
+27.1 Scope of Departmental Proceedings Under the Efficiency 827-828
+and Discipline Rules in Cases Referred to the Courts ..........................
+27.2 Quick Disposal of Disciplinary Proceedings Pending Against 829 Government Servants Who are About to Superannuate ............................ 27.3 Censure, Reprimand and Warning............................................................. 829
+28.1 Participation of Government Servants in Drinking Parties.................. 830
+28.2 Officers' Duty to Watch Conduct of their Subordinates ............................ 830 28.3 Responsibility of Head of Department for Corruption in 830-831 Department ................................................................................................ 28.4 Loss of Security Passes to be Treated as 'Misconduct' .............................. 831-832 28.5 Use of Intemperate and Inappropriate Language in 832 Representations and Petitions of Government Servants ........................... 28.6 Grant of Leave to Government Servants Compulsorily Retired 832 from Service under the Government Servants (Efficiency and Discipline) Rules ....................................................................................... 28.7 Grant of Arrears of Pay and Allowances to Government 833 Servants for Period of Absence from Duty, On Re-Instatement as a Result of Court's Decisions ................................................................ 28.8 Reinstatement of Government Servants on Court Decision and 833-835 Functions of Enquiry Committee............................................................... 28.9 Grant of Arrears of Pay and Allowances to Government 836 Servants for Period of Absence from Duty, on Reinstatement as a Result of Court’s Decision......................................................................
+29.1 Committals to Prison - [CSR 194] .......................................................... 836
+29.2 Detention of Government Servants Under Public Safety Acts .................. 836-837 29.3 Clarification Regarding Detention of Government Servants 837 Under Public Safety Act ............................................................................ 29.4 Removal From Service as a Result of Conviction in Court 838 of Law ...................................................................................................... 30 Strictures Passed by Courts Against Government Servants ........................... 839
+31.1 False or Forged Information About Educational Qualifica- 839-840
+tions and Age and Pakistan Penal Code .................................................
+31.2 Anti-Corruption Measures – Government Servants to Disclose 840 Their Assets/Severe Disciplinary Action For Indulging in Corrupt Practices .......................................................................................
+32.1 Responsibility of Head of Department for Corruption 840-841
+within Area of his Administrative Jurisdiction..........................................
+Page-742 ESTACODE (EDITION-2021) CHAPTER-8
+Sl. Chapter Contents Page No(s). No(s).
+32.2 Co-operation with Investigating Officers of the Federal 841 Investigating Agency................................................................................. 32.3 Instructions Regarding Investigations by the Federal 841-845 Investigation Agency into Cases of Bribery and Corruption .....................
+33.1 The Federal Investigation Agency, Act 1974 (Act VIII of 845-850
+1975) .........................................................................................................
+33.2 Setting up of Anti-Corruption Council at the Centre to Deal 851-852 with Cases of Class I Officers....................................................................
+33.3 Correspondence with the F.I.A.................................................................. 852
+34 National Accountability Ordinance No. XVIII of 1999 .................................. 853-893
+35.1 Queries About Review Exercise ............................................................. 894
+35.2 Clarification Regarding Option of Seeking Pre-mature 894-895 Retirement ................................................................................................. 35.3 Implications of Release of a Government Servant under Section 895-896 25 of Ordinance No. XVIII of 1999 for Disciplinary Proceedings ...............................................................................................
+36 Employment/Re-employment of Persons Penalized Under the 896
+Government Servants (Efficiency and Discipline) Rules, 1973 and
+the Removal from Service (Special Powers) Ordinance, 2000 ........................
+————————
+CHAPTER-8 ESTACODE (EDITION-2021) Page - 743
+CHAPTER 8
+CONDUCT, EFFICIENCY AND DISCIPLINE
+I. CONDUCT
+1.1 Government Servants (Conduct) Rules, 1964
+In exercise of the powers conferred by paragraph (a) of clause (2) of Article 178 and clause (1) of Article 179 of the Constitution and of all powers enabling him in that behalf, the President is pleased to make the following rules, namely:—
+THE GOVERNMENT SERVANTS (CONDUCT)
+RULES, 1964
+1. Short title and commencement.— (1) These rules may be called the Government Servants (Conduct) Rules, 1964.
+(2) They shall come into force at once.
+2. Extent of application.— These rules apply to every person, whether on duty or on leave, within or without Pakistan, serving in a civil capacity in connection with the affairs of the **Centre and to the members of an All-Pakistan Service during their employment under the Provincial Governments or while on deputation with any other Government, agency, institution or authority:
+Provided that the Central Government may, by a notification in the official Gazette, exempt any class of Government servants from the operation of all or any of these rules.
+3. Definitions.— (1) In these rules, unless there is anything repugnant in the subject or context,—
+(a) ―Government‖ means the **Central Government and in respect of officers of an All-Pakistan Service serving in a Province, the Provincial Government;
+(b) ―Government servant‖ means a person to whom these rules apply; and
+(c) ―member of a Government servant‘s family‖ includes-
+(i) his wife, child or step-child, whether residing with the Government servant or not; and
+ Constitution, 1962. Ref. Chapter, 1, Vol. I, Article 241 of the Constitution, 1973 provides that all rules and orders in force before the commencing day shall, so far as consistent with the provisions of the constitution, continue in force and may be amended from time to time by the Federal Government. Hence section 25 (2) of Civil Servants Act, 1973.  Federal
+Page - 744 ESTACODE (EDITION-2021) CHAPTER-8
+(ii) any other relative of the Government servant or his wife, when residing with and wholly dependent upon the Government servant, but does not include a wife legally separated from the Government servant, or a child or step-child who is no longer in any way dependent upon him, or of whose custody the Government servant has been deprived by law.
+(2) Reference to a wife in clause (c) of sub-rule (1) shall be construed as references to a husband where the Government servant is a woman.
+4. Repeal of previous Conduct Rules.—The Government Servants Conduct Rules made under section 96-B of the Government of India Act, 1919, and the Secretary of State‘s Services (Conduct) Rules, 1942, made under sections 247(1), 250 and 269 of the Government of India Act, 1935, in so far as they applied to the persons to whom these rules apply, are hereby repealed, but such repeal shall not affect anything duly done or suffered under those rules.
+[5. Gifts.—(1) Save as otherwise provided in this rule, no Government servant shall, except with the previous sanction of the Government, accept, or permit any member of his family to accept, from any person any gift the receipt of which will place him under any form of official obligation to the donor. If, however, due to very exceptional reasons, a gift cannot be refused, the same may, under intimation to the Cabinet Division, be kept for official use in the Department or Organisation in which he is working].
+(2) If any question arises whether receipt of a gift places a Government servant under any form of official obligation to the donor, the decision of the Government thereon shall be final.
+(3) If any gift is offered by the head or representative of a foreign State, the Government servant concerned should attempt to avoid acceptance of such a gift, if he can do so without giving offence. If, however, he cannot do so, he shall accept the gift and shall report its receipt to the Cabinet Division for orders as to its disposal.
+(4) Government servants are prohibited from receiving gift of any kind for their person or for members of their families from diplomats, consular and other foreign Government representatives or their employees who are stationed in Pakistan. If, however, due to very exceptional reasons, a gift cannot be refused, it should invariably be deposited in the ‗Toshakhana‘.
+(5) Government servants, except those belonging to BPS 1 to 4, are prohibited from accepting cash awards offered by the visiting foreign dignitaries. In case, however, it becomes impossible to refuse without causing offence to the visiting dignitary, the amount may be accepted and immediately deposited in the Treasury under the proper head of account.
+(6) The responsibility for reporting the receipt of a gift shall devolve on the individual recipient. All gifts received by a Government servant, irrespective of their prices,
+ Subs vide Estt. Div.‘s Notification No.807(I)/79, dated 12-9-1979. Note.- Rule 5 may be read in conjunctions with the instructions contained in the Cabinet Division O.M. No. 8/5/2017-TK, dated 18-12-2018 at Sl.No. 1.5.
+CHAPTER-8 ESTACODE (EDITION-2021) Page - 745
+must be reported to the ‗Toshakhana‘ in the Cabinet Division. However, the responsibility for reporting to the Cabinet Division receipt of gifts, including the names of recipients, from foreign dignitaries or delegations who come to Pakistan or when Pakistani dignitaries or delegations go abroad, shall lie with the Chief of protocol or his representative in the former case, and with the Ambassador concerned in the latter case. In the case of foreign delegat-ions or visiting dignitaries with whom the Chief of Protocol is not associated, the Ministry sponsoring the visit shall be responsible to supply the details of gifts, if received, and the list of recipients to the Cabinet Division and the Ministry of Foreign Affairs.
+(7) The value of gifts shall be assessed by the Cabinet Division and the monetary limits up to which and the condition subject to which, the gifts may be allowed to be retained by the recipient shall be as follows:-
+(a) gifts valued upto Rs. 1,000 may be allowed to be retained by the recipient;
+(b) gifts valued between Rs. 1,000 and 5,000 may be allowed to be retained by a recipient on his paying 25% of the value of the gift in excess of Rs. 1,000; and
+(c) gifts of value exceeding Rs. 5,000 may be allowed to be retained by a recipient on his paying 25% of so much of the value as exceeds Rs. 1,000 but does not exceed Rs. 5,000 and 15% of so much of the value as exceeds Rs. 5,000].
+6. Acceptance of foreign awards.— No Government servant shall, except with the approval of the President, accept a foreign award, title or decoration.
+Explanation.— For the purposes of this rule, the expression ―approval of the President‖ means prior approval in ordinary cases and ex-post-facto approval in special cases where sufficient time is not available for obtaining prior approval.
+7. Public demonstrations in honour of Government Servants.— (1) No Government servant shall encourage meetings to be held in his honour or presentation of address of which the main purpose is to praise him.
+(2) Notwithstanding anything contained in sub-rule(1)—
+(a) a Government servant may, with the previous permission of his next higher officer, take part in the raising of funds to be expended for any public or charitable purpose;
+(b) a Government servant may take part, with the previous sanction of the Government, in the raising of funds to be expended for any public or charitable object connected with the name of any other Government servant or a person who has recently quitted the service of the Government;
+(c) the Head of a Pakistan Mission abroad, while so posted, may attend a public meeting or entertainment held in his honour.
+Values given in Rule 5(7) may be read in conjunctions with the Cabinet Division‘s O.M No. 8/5/2017-TK dated 18-12-2018 at Sl.No. 1.5.
+Page - 746 ESTACODE (EDITION-2021) CHAPTER-8
+(3) When a Government servant takes part in the raising of funds in accordance with the provisions of clauses (a) and (b) of sub-rule (2), he shall be required to keep regular accounts and submit them to his next higher officer for scrutiny.
+(4) Clauses (a) and (b) of sub-rule (2) shall not apply to officers of the Police Service of Pakistan and the Pakistan Taxation Service.
+8. Gift to Medical Officers.— Subject to the departmental rules governing the question, a Medical Officer may accept any gift of moderate value offered in good faith by any person or body of persons in recognition of his professional services.
+9. Subscriptions.— Subject to rule 7, no Government servant shall, except with the previous sanction of the Government, ask for or accept or in any way participate in the raising of any subscription or other pecuniary assistance in pursuance of any object whatsoever.
+10. Lending and Borrowing.— (1) No Government servant shall lend money to, or borrow money from, or place himself under any pecuniary obligation to, any person within the local limits of his authority or any person with whom he has any official dealings:
+Provided that the above rule shall not apply to dealings in the ordinary course of business with a joint stock company, bank or a firm of standing.
+(2) When a government servant is appointed or transferred to a post of such a nature that a person from whom he has borrowed money or to whom he has other wise placed himself under a pecuniary obligation will be subject to his official authority, or will reside, possess immovable property, or carry on business within the local limits of such authority, he shall forthwith declare the circumstances to the Government through the usual channel.
+(3) Non-gazetted Government servants shall make the declaration referred to in sub-rule (2) to the head of their office.
+(4) This rule, in so far as it may be construed to relate to loans given to or taken from co-operative societies registered under the Cooperative Societies Act, 1912 (II of 1912), or under any law for the time being in force relating to the registration of Cooperative Societies, by the Government servants, shall be subject to any general or special restrictions or relaxations made or permitted by the Government.
+[11. Omitted
+*11-A Omitted]
+12. Declaration of property.— (1) Every Government servant shall, at the time of entering Government service, make a declaration to the Government, through the usual channel, of all immovable and movable properties including shares, certificates, securities, insurance policies and jewellery having a total value of **[Rs.50,000 (fifty
+ Omitted vide Estt. Div.‘s Notification SRO 984(I)/2004, dated 15th December, 2004. **Subs.vide Estt.Div.‘s SRO No. 846(1)/85, dated 5.9.1985 for the words Rs. 10,000/- (Ten thousand).
+CHAPTER-8 ESTACODE (EDITION-2021) Page - 747
+thousand rupees)] or more belonging to or held by him or a member of his family and such declaration shall,—
+(a) state the district within which the property is situated.
+(b) show separately individual items of jewellery exceeding [Rs. 50,000 (fifty thousand rupees)] in value, and
+(c) give such further information as the Government may, by general or special order, require.
+*(2) Every Government Servant shall submit to the Government, through the usual channel an annual declaration of income, assets and expenses for the financial year, ending on 30th June, showing any increase or decrease of property as shown in the declaration under sub-rule(1) or the last annual return, as the case may be.
+(3) Declaration of Assets Proforma shall be opened in the concerned section each year and entered into the relevant database in the month of December showing any increase or decrease of property as shown in the declaration under sub-rule or, as the case may be, the last annual return.
+13. Disclosure of assets, immovable, movable and liquid.— A Government servant shall, as and when he is so required by Government by a general or special order, furnish information as to his assets disclosing liquid assets and all other properties, immovable and movable, including shares, certificates, insurance policies, jewellery *[and expenses during any period specified by such order in the form specified therein].
+13-A. Assets to be made public.—The assets of all those who are paid from the government exchequer shall be made public.
+14. Speculation and investment.— (1) No Government servant shall speculate in investments. For the purpose of this sub-rule, the habitual purchase and sale of securities of notoriously fluctuating value shall be deemed to be speculation in investments.
+(2) No Government servant shall make, or permit any member of his family to make, any investment likely to embarrass or influence him in the discharge of his official duties.
+(3) No Government servant shall make any investment the value of which is likely to be affected by some event of which information is available to him as a Government servant and is not equally available to the general public.
+(4) If any question arises whether a security or an investment is of the nature referred to in any of the foregoing sub-rules, the decision of the Government thereon shall be final.
+Subs. vide Estt. Div.‘s SRO No. 846 (1)/85, dated 5.9.1985 for the words Rs. 10,000/- (Ten thousand).  Added vide Estt. Division‘s Notification No. SRO.225(1)/92, dated 31-03-1992.  Inserted vide Estt. Div.‘s Notification No. S.R.O 771(I)/2012 dated 04-06-2012.
+Page - 748 ESTACODE (EDITION-2021) CHAPTER-8
+15. Promotion and Management of companies, etc.— No Government servant shall, except with the previous sanction of the Government, take part in the promotion, registration or management of any bank or company:
+Provided that a Government servant may, subject to the provisions of any general or special order of the Government, take part in the promotion, registration or management of a Co-operative Society registered under the Cooperative Societies Act, 1912 (II of 1912), or under any similar law.
+16. Private trade, employment or work.— (1) No Government servant shall, except with the previous sanction of the Government, engage in any trade or undertake any employment or work, other than his official duties:
+Provided that he may, without such sanction, undertake honorary work of a religious, social or charitable nature or occasional work of a literary artistic-character, subject to the conditions that his official duties do not thereby suffer and that the occupation or undertaking does not conflict or is not inconsistent with his position or obligations as a Government servant but he shall not undertake or shall discontinue such work if so directed by the Government. A Government servant who has any doubt about the propriety of undertaking any particular work should refer the matter for the orders of the Government:
+Provided further that non-gazetted Government servant may, without such sanction, undertake a small enterprise which absorbs family labour and where he does so shall file details of the enterprise alongwith the declaration of assets.
+(2) Notwithstanding anything contained in sub-rule (1), no Government servant shall associate himself with any private trust, foundation or similar other institution which is not sponsored by the Government.
+(3) This rule does not apply to sports activities and membership of recreation clubs.
+16-A. Subletting of residential accommodation allotted by Government.— No Government servant shall, except with the prior permission of the Head of the Department, sublet residential accommodation let to him by Government.
+16-B. Government Servant not to live beyond his means, etc.— No government servant shall live beyond his means or indulge in ostentation on occasions of marriage or other ceremonies.
+17. Insolvency and habitual indebtedness.— A Government servant shall avoid habitual indebtedness. If a government servant is adjudged or declared insolvent or if the whole of that portion of his salary which is liable to attachment is frequently attached for debt, has been continuously so attached for a period of two years, or is attached for a sum which, in ordinary circumstances, he cannot repay within a period of two years, he shall be presumed to have contravened this rule unless he proves that the insolvency or indebtedness is the result of circumstances which, with the exercise of ordinary diligence, he could not
+CHAPTER-8 ESTACODE (EDITION-2021) Page - 749
+have foreseen or over which he had no control and has not proceeded from extravagant or dissipated habits. A government servant who applies to be or is adjudged or declared insolvent shall forthwith report his insolvency to the Head of the Office or Department or to the Secretary of the Ministry, as the case may be, in which he is employed.
+17-A. Intimation of involvement and conviction in a criminal case.— If a Government servant is involved as an accused in a criminal case, he shall bring the fact of such involvement or conviction, as the case may be, to the notice of the head of the Office or Department immediately or, if he is arrested and released on bail, soon after such release.
+18. Unauthorized communication of official documents or information.— No Government servant shall, except in accordance with any special or general order of the Government, communicate directly or indirectly any official document or information to a Government servant unauthorized to receive it, or to a non-official person, or to the press.
+19. Approach to members of the Assemblies, etc.— No Government servant shall, directly or indirectly, approach any Member of the National Assembly or a Provincial Assembly or any other non-official person to intervene on his behalf in any matter.
+20. Management etc. of newspapers or periodicals.— No Government servant shall, except with the previous sanction of the Government, own wholly or in part, or conduct or participate in the editing or management of, any newspaper or other periodical publication.
+21. Radio broadcasts or television programmes and communications to the press.— No Government servant shall, except with the previous sanction of the Government or any other authority empowered by it in this behalf, or in the bonafide discharge of his duties, participate in a radio broadcast or television programme or contribute any article or write any letter, either anonymously or in his own name or in the name of any other person to any newspaper or periodical:
+Provided that such sanction shall generally be granted if such broadcast or television programme or such contribution or letter is not, or may not be considered likely to jeopardize the integrity of the Government servant, the security of Pakistan or friendly relations with foreign States, or to offend public order, decency or morality, or to amount to contempt of court, defamation or incitement to an offence:
+Provided further that no such sanction shall be required if such broadcast or television programme or such contribution or letter is of a purely literary, artistic or scientific character.
+22. Publication of information and public speeches capable of embarrassing the government.— No Government servant shall, in any document
+ Added vide Estt. Div.‘s Notification No. S.R.O.757(I)/78, dated 14-6-1978.
+Page - 750 ESTACODE (EDITION-2021) CHAPTER-8
+published, or in any communication made to the press, over his own name, or in any public utterance or television programme or in any radio broadcast delivered by him, make any statement of fact or opinion which is capable of embarrassing the Government:
+Provided that technical staff (both gazetted and non-gazetted) may publish research papers on technical subjects, if such papers do not express views on political issues or on Government policy and do not include any information of a classified nature.
+22-A. Where a Government Servant submits the draft of a literary, artistic or scientific article or book for obtaining previous sanction for its publication, he shall be informed within three months of his doing so whether he has or has not such sanction and, if no communication is issued to him within that period, he shall be entitled to presume that the sanction asked for has been granted.
+23. Evidence before committees.— (1) No Government servant shall give evidence before a public committee except with the previous sanction of the Government.
+(2) No Government servant giving such evidence shall criticize the policy or decisions of the Central or a Provincial Government.
+(3) This rule shall not apply to evidence given before statutory committees which have power to compel attendance and the giving of answers, not to evidence given in judicial inquiries.
+24. Taking part in politics and elections.— (1) No Government servant shall take part in subscribe in aid of or assist in any way, any political movement in Pakistan or relating to the affairs of Pakistan.
+(2) No Government servant shall permit any person dependent on him for maintenance or under his care or control to take part in or in any way assist, any movement or activity which is, or tends directly or indirectly to be, subversive of Government as by law established in Pakistan.
+(3) No Government servant shall canvass or otherwise interfere or use his influence in connection with or take part in any election to a legislative body, whether in Pakistan or elsewhere:
+Provided that a Government servant who is qualified to vote at such election may exercise his right to vote: but if he does so, he shall give no indication of the manner in which he propose to vote or has voted.
+***(4) No Government servant shall allow any member of his family dependent on him to indulge in any political activity, including forming a political association and being its member, or to act in a manner in which he himself is not permitted by sub-rule (3) to act.
+ Added vide Estt. Div.‘s Notification No.7/2/79-D IV, dated 10-7-1980.  Federal. *** Subs. vide Estt. Div.‘s Notification No. S.R.O.993(I)/76, dated 30-9-1976.
+CHAPTER-8 ESTACODE (EDITION-2021) Page - 751
+(5) A government servant who issues an address to electors or in any other manner publicly announces himself or allows himself to be publicly announced as a candidate or prospective candidate for election to a legislative body shall be deemed for the purpose of sub-rule (3) to take part in an election to such body.
+(6) The provisions of sub-rules (3) and (5) shall, so far as may be, apply to elections to local authorities or bodies, save in respect of Government servants required or permitted by or under any law, or order of the Government, for the time being in force, to be candidates at such elections.
+(7) If any question arises whether any movement or activity falls with the scope of this rule, the decision of the Government thereon shall be final.
+25. Propagation of sectarian creeds etc.— No Government servant shall propagate such sectarian creeds or take part in such sectarian controversies or indulge in such sectarian partiality and favouritism as are likely to affect his integrity in the discharge of his duties or to embarrass the administration or create feelings of discontent or displeasure amongst the Government servants in particular and amongst the people in general.
+25-A. Government servant not to express views, against ideology of Pakistan.— No Government servant shall express views detrimental to the ideology or integrity of Pakistan.
+[25-B. Government servant not to take part in or assist, any public demonstration against Government decisions, etc.— No Government servant shall take part in, or in any manner assist, any public demonstration directed against a government decision or policy or permit any member of his family dependent on him to do so].
+26. Nepotism, favouritism and victimization, etc.— No Government servant shall indulge in provincialism, parochialism, favouritism, victimization and willful abuse of office.
+27. Vindication by Government servants of their public acts or character.— A Government servant may not, without the previous sanction of the Government, have recourse to any court or to the press for the vindication of his public acts or character from defamatory attacks. In granting sanction, the Government will ordinarily bear the cost of the proceedings and in other cases leave the Government servant to institute them at his own expense. In the latter case, if he obtains a decision in his favour, the Government may reimburse him to the extent of the whole or any part of the cost.
+Nothing in this rule limits or otherwise affects the right of a Government servant to vindicate his private acts or character.
+28. Membership of service associations.— No Government servant shall be a member, representative or officer of any association representing or purporting to
+ Added vide Estt. Div.‘s Notification No. S.R.O. 432(1)/80, dated 27-4-1980.  Added vide Estt. Div.‘s Notification No. S.R.O. 837(1)/83 dated 22-8-1983.
+Page - 752 ESTACODE (EDITION-2021) CHAPTER-8
+represent, Government servants or any class or Government servants, unless such association satisfies the following conditions, namely:—
+(a) Membership of the association and its office bearers shall be confined to a distinct class of Government servants and shall be open to all Government servants of that class.
+(b) The association shall not be in any way connected with, or affiliated to any association which does not, or any federation of associations which do not satisfy condition (a).
+(c) The association shall not be in any way connected with any political party or organization, or engage in any political activity.
+(d) The association shall not —
+(i) issue or maintain any periodical publication except in accordance with any general or special order of the Government;
+(ii) except with the previous sanction of the Government, published any representation on behalf of its members, whether in the press or otherwise.
+(e) The association shall not, in respect of any election to a legislative body, or to a local authority or body, whether in Pakistan or elsewhere—
+(i) pay or contribute towards, any expenses incurred in connection with his candidature by a candidate for such election;
+(ii) by any means support the candidature of any person for such election; or
+(iii) undertake or assist in the registration of electors, or the selection of a candidate for such election.
+(f) The association shall not—
+(i) maintain, or contribute towards the maintenance of, any member of a legislative body, or of any member of local authority or body, whether in Pakistan or elsewhere;
+(ii) pay, or contribute towards, the expenses of any trade union which has constituted a fund under section 16 of the Trade Union Act, 1926 (XVI of 1926).
+[28-A. Membership of non-political associations.— No Government servant shall accept membership of any non-political association or organization whose aims and objects, nature of activities and membership are not publicly known].
+29. Use of political or other influence.— No Government servant shall bring or attempt to bring political or other outside influence, directly or indirectly, to bear on the Government or any Government servant in support of any claim arising in connection with his
+Added vide Estt. Div.‘s Notification S.R.O. No. 1809(K), dated 8-9-1969.
+CHAPTER-8 ESTACODE (EDITION-2021) Page - 753
+employment as such.
+30. Approaching foreign Missions and aid-giving agencies. —No Government servant shall approach, directly or indirectly a foreign mission in Pakistan or any foreign aid-giving agency to secure for himself invitations to visit a foreign country or to elicit offers of training facilities abroad.
+31. Delegation of power.— The Government may, by general or special order, delegate to any officer or authority subordinate to it all or any of its powers under these rules and may, by such order, prescribe the channel through which reports shall be made to the Government and the officers receipt by whom of such reports shall be regarded as receipt of the reports by the Government within the meaning of these rules.
+32. Rules not to be in derogation of any law, etc.— Nothing in these rules shall derogate from the provisions of any law, or of any order of any competent authority, for the time being in force, relating to the conduct of Government servants.
+[Authority.- Estt. Div.‘s Notification No. S.R.O.405(K)/64, dated 1-5-1964].
+1.2 Delegation of Powers to Secretaries to Government under the Government Servants (Conduct) Rules, 1964
+In exercise of the powers conferred by rule 31 of the Government Servants (Conduct) Rules, 1964, the Central Government is pleased to delegate to the Secretaries to the Government of Pakistan the powers of the *Central Government under rules 23 and 27 of the said Rules, in respect of the officers and staff working under their administrative control.
+[Authority.- Estt. Div.‘s Notification No.3/10/65-DII, dated 19-7-1965].
+1.3 Delegation of Powers to Secretaries to Government of Pakistan – Heads of Departments
+The *Central Government has been pleased to delegate to the Secretaries to the Government of Pakistan the powers of the *Central Government under rule 21 of the Government Servants (Conduct) Rules, 1964, in relation to the Heads of Departments and the government servants under their administrative control, and to the Heads of Departments in respect of the officers and staff working under them.
+[Authority.- Estt. Div.‘s O.M.No.3/10/65-D.II, dated 27-8-1966].
+1.4 Interpretation of the term ―Government‖ as Defined
+in the Government Servants (Conduct) Rules, 1964
+The term ―Government‖ has been defined in rule 3 (a) of the Government Servants (Conduct) Rules, 1964 as the ―*Central Government‖ and in respect of officers
+Federal.
+Page - 754 ESTACODE (EDITION-2021) CHAPTER-8
+of an All-Pakistan Service serving in a Province, the Provincial Government. A question has arisen as to whether the term ―Central Government‖ for the purpose of these Rules means the *Central Government in the Establishment Division or the *Central Govern-ment in each administrative Ministry/Division.
+2. The matter has been considered in consultation with the Law Division and it has been held that the term ―Government‖ appearing in the Government Servants (Conduct) Rules, 1964 means the *Central Government in any Ministry/Division. This means that ordinarily an officer in each administrative Ministry/Division is to be granted permission under any rule of the Government Servants (Conduct) Rules, 1964 from that Ministry/ Division.
+3. Ministries/Divisions are therefore advised:-
+(a) to dispose of individual cases under the Government Servants (Conduct) Rules, 1964 in the light of the above interpretation instead of referring such cases to the Estt. Division.
+(b) to consider internal delegation of powers below the rank of Secretaries/ Acting Secretaries so that cases may be decided at appropriate level and all cases are not referred to the Secretary of a Ministry/ Division.
+4. Cases involving interpretation of the Conduct Rules will, however, continue to be referred to the Establishment Division for advice.
+5. Cases of officers belonging to an All-Pakistan Service who are serving, for the time being, in a province, should be decided by the Chief Secretary of the Province concerned. Provincial Governments may also like to consider further delegation of powers so that cases can be decided at appropriate level and every case is not referred to the Chief Secretary.
+6. This supersedes all previous orders on the subject.
+[Authority.- Estt. Div.‘s O.M. No.26/1/69-D-IV, dated 17-12-1969].
+1.5 Procedure for the Acceptance and Disposal of Gifts
+In supersession of Cabinet Division‘s O.M No. 9/8/2004-TK, dated 13th October,2017 and all other instructions issued on the subject from time to time and to state that the Government of Pakistan has made the following procedure for acceptance and disposal of gifts received by Government/Public functionaries.
+(1) The responsibility rest with the individual recipient to report receipt of the gift(s) to Cabinet Division. All gifts received by the Government/Public functionaries irrespective of their prices, must be reported and deposited
+Federal.
+CHAPTER-8 ESTACODE (EDITION-2021) Page - 755
+immediately in Toshakhana of the Cabinet Division, Government of Pakistan. If it is found, on checking, that an individual has not reported the receipt of a gift, appropriate action will be taken against him under the relevant rules.
+(2) If the Chief of Protocol, Ministry of Foreign Affairs, or his representative has been attached to a visiting dignitary or a foreign delegation, it shall be his responsibility to supply the list of the gifts received, together with the names of the recipients, to the Cabinet Division. In the case of other delegations or visiting dignitaries with whom the Chief of Protocol or his representative is not associated, the Ministry sponsoring the visit shall be responsible to supply the details of gifts received and the list of recipients to the Cabinet Division. In the case of outgoing delegations or visits abroad of our dignitaries, it shall be the responsibility of the Ambassador of Pakistan and/or Head of the Pakistan mission in the country concerned to report the receipt of the gifts, together / with the name of the recipients, to the Cabinet Division through the Ministry of Foreign Affairs.
+(3) Government/Public functionaries, except those in BPS 1 to BPS 4 are prohibited from receiving cash awards offered by the visiting foreign dignitaries. Such gifts may be politely refused. In case, however it becomes impossible to refuse without causing offence to the visiting dignitary, the amount shall be immediately deposited in the Government treasury and copy of Treasury Challan shall be provided to the Toshakhana Incharge, Cabinet Division.
+(4) Government/Public functionaries, except the President and the Head of the Government, are prohibited from receiving gifts of any kind for their person or for members of their families from diplomats, consular and other foreign government representatives who are stationed in Pakistan or from any public organization or private individual and firm within the country. However, if due to very exceptional reasons the gift cannot be declined, it shall invariably be deposited in the Toshakhana. These instructions do not apply to gifts and donations made to institutions.
+(5) (i) Cabinet Division will get the value of the gifts assessed from Government Sector experts in FBR. Cabinet Division will also get the value of gifts assessed by the private appraisers borne on its approved panel.
+(ii) If the difference in value of gifts assessed by two categories of appraisers is less than 25% the high value will be accepted. However, if the difference in value is 25% or more, a Committee to be constituted by the Cabinet Secretary shall decide the final value.
+Page - 756 ESTACODE (EDITION-2021) CHAPTER-8
+(iii) Private Appraisers borne on the approved panel of the Cabinet Division will be paid 2% of the evaluation cost of each gift or Rs.2000/-, whichever is less.
+(6) The monetary limits upto which the gifts can be retained by the recipients are as follows:—
+(i) Gifts upto a value of Rs. 30,000/-(Rupees thirty thousand only) may be retained free of cost by the recipient.
+(ii) Gifts valued above Rs.30,000/- may be allowed to be retained by the recipient on payment of 50% of the value exceeding the basic exemption of Rs.30,000/-. This exemption shall however not be available in case of antiques and gifts of intrinsic historical value. All such gifts shall be properly catalogued and displayed at the prominent buildings owned by the Government. Different gift articles given by a single dignitary to a functionary at one occasion will be treated as single gift for the purpose of valuation.
+(7) The recipient should collect the gifts after payment of retention price within four months failing which it will become the property of the Toshakhana and will be disposed of as per Toshakhana Rules. The Head of Account of Toshakhana in which the amounts are to be deposited is ―1300000- Others (NES) Misc. Receipt of Darbar Presents (Central)‖.
+(8) Gifts deposited in the Toshakhana which are fit for display, shall be properly catalogued and then displayed in the prominent buildings/institutions owned by Government or in the official residences of the Head of the State or the Head of the Government. Such articles shall be properly entered in the Toshakhana register and in the stock registers of the respective offices/institutions.
+(9) An annual physical verification shall be carried out in respect of such articles by an authorized officer of the Cabinet Division in the first quarter of each calendar year.
+(10) Gifts which are not fit to be retained or displayed shall be disposed of by periodical sales to be arranged by the Cabinet Division, Government of Pakistan. These sales shall be held once or twice a year. The list of gifts to be sold shall be circulated to all Federal Government officers and officers of the Armed Forces. The articles not purchased in two consecutive auctions by the Government servants should be disposed of to the public through sealed bids.
+CHAPTER-8 ESTACODE (EDITION-2021) Page - 757
+(11) Antique items and vehicles shall not be allowed to be purchased by the recipients. Antiques shall be placed in the museums or displayed in official building owned by the Government. Vehicles shall be given to the Central Pool of Cars of the Cabinet Division.
+(12) Gifts, other than those in the nature of antiques or of intrinsic historical value, given to but not retained by the President, the Head of the Government and the Governors, will be sold in accordance with sub-para (10) above. The gifts in the nature of antiques or of intrinsic historical value shall be put on display in accordance with sub-para (8) above.
+(13) The procedure shall apply to the President/Head of the Government and their family members, Chairman Senate, Speaker National Assembly, Chief Justice of the Supreme Court, Governors of the Provinces, Members of the Federal Cabinet, Attorney General for Pakistan, Ministers of State, Deputy Chairman Senate, Deputy Speaker National Assembly, Dignitaries holding ministerial status, Members of Provincial Cabinets, Judges of Supreme Court, Chief Justice/Judges of the High Courts, Parliamentarians and other elected representatives, all Government servants (Civil and Military) as well as employees of the Government controlled corporations, autonomous and semi-autonomous bodies and their spouse/dependents, members of the Provincial Governments, other members of public visiting abroad as members of official delegation.
+[Authority.— Cabinet Division‘s O.M No. 8/5/2017-TK dated 18-12-2018.]
+2.1 Bar Against Demanding Dowry and Acceptance of Gifts on Occasions of Marriages
+Attention is invited to rule 5(1) of the Government Servants (Conduct) Rules, 1964, according to which no government servant shall, except with the previous sanction of the government, accept or permit any member of his family to accept from any person any gift the receipt of which may place him under any form of official obligation to the donor. It has been found that this rule is not being observed by government servants and a number of cases have recently come to notice in which government servants have accepted, particularly on occasions of marriage, expensive gifts from persons with whom they have or are likely to have official dealings. It has also been observed that government officials demand expensive dowries at the time of marriage and even display such dowries and gifts before large gatherings. The Committee on the Eradication of Social Evils has deplored the practice of demanding and displaying dowries and gifts on occasions of marriage as it encourages lavish expenditure and ostentatious living.
+2. In view of the increasing tendency to demand and display dowries and to accept expensive gifts, government have decided that rule 5 (1) of the Government Servants (Conduct) Rules, 1964 should be enforced more rigorously and government servants should be directed to avoid lavish expenditure on marriage and other ceremonies
+Page - 758 ESTACODE (EDITION-2021) CHAPTER-8
+and to desist from demanding or displaying dowries or accepting gifts from persons other than those who are closely related to them.
+[Authority.- Estt. Div.‘s O.M. No. 3/8/67-D.II, dated 27-6-1967].
+2.2 Bar Against Acceptance of Gratification by Grade 1-3 Employees on Occasions of Eid etc. from Public
+Allegations have come to the notice of government that on occasions of Eid and other national festivals, Grade 1-4 employees of certain government departments like the Post Offices, Telegraphs, Income Tax, Customs Departments etc., pester people for money and other gratifications. Government view such malpractices with extreme displeasure and wish to re-emphasize the necessity of stopping forthwith such practices, wherever they exist and in whatever form or shape.
+2. In this connection, attention of the Ministries/Divisions is invited to clause (1) of rule 5 of the Government Servants (Conduct) Rules, 1964 which provides, inter alia, that a government servant shall not, except with the previous sanction of the government, accept, or permit any member of his family to accept, from any person any gift the receipt of which will place him under any form of official obligation to the donor. [If, however, due to very exceptional reasons, a gift cannot be refused, the same may, under intimation to the Cabinet Division, be kept for official use in the department or organization in which he is working].
+3. It is requested that all the Ministries/Divisions may kindly bring the above instructions home to all the BS-1-4 employees under their control including those employed in the Departments, etc., under them, and take effective steps to eradicate such evil practices.
+[Authority.- Estt. Div.‘s O.M. No. 4/11/62-D.II, dated 14-4-1962].
+2.3 Acceptance of Foreign Trips Sponsored by Commercial Firms
+It has come to the notice of the government that government servants accept offers of foreign trips through the generosity of parties who have commercial dealings with government departments or autonomous bodies. Besides being unbecoming of a government servant, acceptance of such offers tends to place him under official obligation to the party concerned which is not conducive to good administration. It has, therefore, been decided that government servants should attempt to avoid acceptance of offers of such trips. If in any case it is not considered desirable to refuse such an offer in public
+ BPS. Telephone & Telegraph Department (T&T Deptt.) converted into Pakistan Telecommunication Corporation and later privatized as Pakistan Telecommunication Company Ltd. (PTCL). However, National Telecommunication Corporation caters to the telecommunication needs of the government. The posts of Telephone Operators continue to exist in government organizations.  Amended according to rule 5(1) of the Government Servants (Conduct) Rules, 1964.
+CHAPTER-8 ESTACODE (EDITION-2021) Page - 759
+interest prior permission of the Establishment Division and the Ministry of Finance should invariably be obtained for its acceptance.
+[Authority.- Estt. Div.‘s O.M. No 3/8/66-D.II, dated 13-8-1966].
+2.4 Acceptance of Foreign Awards by Government Servants
+It is noted with regret that contrary to the laid down instructions, there have been several instances where government servants have accepted title, honour or decoration from foreign states. Invariably the excuse for having accepted awards by government servants in ignorance of the rules.
+2. The competent authority has taken serious notice of this tendency and has been pleased to direct that all Ministries/ Divisions/Departments may be asked to disseminate the rule position to government servants for strict compliance. The Ministries/Divisions are requested to please bring the rule position as defined in Section 6 of the Government Servants (Conduct) Rules, 1964 and Article 259 (1) of the Constitution of Pakistan, to the notice of all employees working under them and also to the employees of autonomous statutory bodies under their administrative control.
+[Authority.- Estt. Div.‘s O.M. No. 6/10/88-D-3, dated 3-10-1988].
+2.5 Holding of Farewell Parties on the Occasion of
+Transfers of Government Servants in their Honour
+Attention is invited to rule 3 of the Government Servants (Conduct) Rules,1964 according to which a government servant shall not, without the pervious sanction of the local government, receive any complimentary or valedictory address, or take part in the presentation of a complimentary or valedictory address or attend a public meeting, or entertainment held in the honour of such other government servant or to any person. Under sub-rule 2(c) of the same rule, no government servant shall solicit any subscriptions in aid of a fund raised for non-official purposes. Instructions in amplification of this rule issued in the Establishment Division O. M. No. 4/39/61-EVI, dated the 26th July 1961 enjoin that subscriptions which tend to glorify a particular government official should be discoura-ged. In view of this, the conduct of government servants who encourage non-officials to give big farewell parties on the occasion of their transfers, or who take interest in promoting a large number of pointless functions and inauguration ceremonies would attract the provisions of rule 3 of the Government Servants (Conduct) Rules,1964.
+2. It is, therefore, requested that the Ministries/Divisions/Provincial Governm-ents may kindly bring the above rule and instructions to the notice of all government servants and put a stop to this tendency among them. It may also be emphasized that breach of this rule will make them liable to be proceeded against under the Government Servants (Efficiency and Discipline) Rules, 1973 .
+[Authority.- Estt. Div.‘s Letter No. 4/4/63-D.II, dated 15-3-1963].
+ Article 259(1) of the Constitution of Pakistan, 1973 reads. ― No citizen shall accept any title, honour or decoration from any foreign State except with the approval of the Federal Government‖.  Rules 7 and 9 of the Government Servants (Conduct) Rules, 1964. Now Civil Servants (Efficiency & Discipline) Rules, 2020.
+Page - 760 ESTACODE (EDITION-2021) CHAPTER-8
+3.1 Prohibition to be Chief Guests
+In rule 7 (I) of the Government Servants (Conduct) Rules, 1964 it has been laid down that no government servant shall encourage meetings to be held in his honour or presentation of addresses of which the main object is to praise him.
+2. A question has been raised whether cases of government servants who are invited as chief guests would come within the mischief of this rule.
+3. The main object of this rule is to discourage government servants from accepting invitation to parties where they will be chief guests. In cases where acceptance of such invitations are considered to be unavoidable, the official concerned should take permission from the next higher authority. When the government servant concerned is the Head of the Department or Secretary to the Government, he will obtain permission through the Secretary of the Ministry concerned or the Establishment Secretary as the case may be.
+[Authority.- Estt. Div.‘s O.M. No. 3/8/68-D.VIl (DIV), dated 27-9-1969].
+3.2 Raising of Subscriptions for Functions, etc.
+Enquiries are frequently received from various Ministries/Divisions on the point whether government servants may participate in the raising of funds for functions such as receptions, etc. The matter has been considered and the government have decided that, whenever officials undertake to collect subscriptions for cultural and other non-official purposes, the permission of the next higher authority must invariably be taken. This would not apply naturally to the Basic Democracies*.
+2. A question has, however, arisen as to what criteria should be fixed for the guidance of the next higher authority in considering cases for such permission. The next higher authorities should naturally exercise their discretion in this regard keeping in view the basic objectives of the order which is meant to put a check on indiscriminate raising of subscriptions for purposes which are not necessary from the point of view of the community as a whole. Any subscriptions which tend to glorify a particular government official should be specifically discouraged.
+[Authority.— Establishment Division‘s O.M. No.4/63/59-E.VI, dated 5-11-1960 and O.M. No. 4/39/61-EVI, dated 26-7-1961].
+3.3 Raising of Subscription for Funds – Regulatory Criteria
+In continuation of the Establishment Division Office Memorandum No. 4/39/61-E.VI, dated the 26th of July, 1961, the following further criteria have been laid down by government to regulate the raising of funds by government servants:
+(i) The ‗next higher authority‘ for the purposes of permission should be the next higher officer of the government servant concerned, but where the next higher officer is below the rank of a Head of Department, the
+* Implies the present local government system.
+CHAPTER-8 ESTACODE (EDITION-2021) Page - 761
+permission of the Head of the Department concerned should be obtained through the next higher officer;
+(ii) No coercion or pressure should be used in the raising of funds-the basis of the campaign should be kept purely voluntary and every precaution should be taken to keep this unconnected with official matters;
+(iii) The Police and Income Tax authorities should be prohibited from taking part in any collection of funds;
+(iv) Collection of funds should take place outside office hours and it should not interfere with or hamper in the performance of the official duties of the government servants concerned;
+(v) The authority permitting the raising of funds should satisfy itself that these are utilized for the purposes for which these have been collected;
+(vi) Funds should be collected to the extent it is necessary and care should be taken to see that the public are not unnecessarily burdened;
+(vii) Foreign establishments and firms should not be individually approached but if in response to a general appeal for funds, they voluntarily contribute, this should be accepted; and
+(viii) All subscriptions should be duly receipted, accounted for and the accounts submitted to the higher officer for scrutiny.
+[Authority.- Estt. Div.‘s O.M. No. 4/39/61-D.II, dated 28-4-1962].
+4.1 Grant of Permission for Acquisition of Property (Movable and Immovable) by Government Servants
+Clarifications to rule 11 of the Conduct Rules, 1964.— The following clarifications are issued for guidance of the Ministries/Divisions in partial modification of the instructions contained in Establishment Division O.M. No. 3/17/67-D.II, dated the 28th September, 1967 and with reference to the amendments made in the Government Servants (Conduct)Rules, 1964 vide S.R.O. No. 211 (R)/68:—
+(a) for purchase of land from Co-operative Housing Society or Government Housing Scheme no permission of the Government is necessary, but for construction of house on the same plot, permission of Government will be required under rule 11-A* of the Government Servants (Conduct) Rules, 1964.
+(b) for purchase of bonds, shares or securities from the approved security market, a semi-government institution or through public offer by a company prior permission is not necessary. Permission will, however, be necessary if the purchase is made from sources other than these mentioned above; and
+* Rule 11-A, omitted vide Estt. Div.‘s Notification SRO 984(1)/2004, dated 15-12-2004.
+Page - 762 ESTACODE (EDITION-2021) CHAPTER-8
+(c) If the wife of a government servant finances construction of a house from her independent sources of income, permission of the government will not be required. But if financial arrangements are being made by the government servant either from his own savings or from loan taken by him prior permission should be obtained even if the house to be constructed is in the name of the wife or any dependent member of the government servant.
+[Authority.- Estt. Div.‘s O.M.No. 3/17/67-D.VII,(D-IV), dated 6-8-1969].
+4.2 Revision of Proforma for Permission Regarding
+Acquisition/ Disposal/ Construction of Movable/
+Immovable Property
+The proforma for obtaining information from officers/officials for permission in regard to acquisition/ disposal/construction of movable/immovable property has been revised in order to make it elaborate. Requests from the officers/officials for permission in this regard may henceforth be decided by the Ministries/Divisions concerned after obtaining the necessary information in the revised proforma, (Annex).
+2. As regards the officers belonging to the groups controlled by the Establishment Division, namely APUG and OMG, information as in the proforma may be obtained from the officers concerned and forwarded to Establishment Division for necessary action alongwith their applications.
+[Authority.— Estt. Div.‘s O.M. No.3/47/70-D.IV, dated 29-8-1978].
+ Add ―and Service‖. All Pakistan Services (Change in Nomenclature) Rules, 1973, notified vide SRO 1307(I)/73 dated 14-09- 1973, have been repealed vide SRO 89(I)/2014 dated 14-02-2014, whereby all notifications and instructions issued on the subject from time to time were mutatis mutandis amended.
+CHAPTER-8 ESTACODE (EDITION-2021) Page - 763
+(Annex) (Sl.No.4.2) PARTICULARS OF THE MOVABLE/IMMOVABLE PROPERTY PROPOSED TO BE BOUGHT/SOLD
+Description Value of Amount for Sources and Whether Detailed Whether the Particulars of the of property the which the funds from permission was particulars of the government existing movable/ proposed to property property is which the obtained from purchaser/ seller servant had any immovable be bought, to be property is government for i.e., Name, dealing with property and value sold or purchased/ to be purchased purchase, sale Address, the purchaser thereof owned by constructed sold or or constructed or construction Profession and or seller during the government constructed of property Relationship with his service servant and his the government under family servant, if any government 1 3 3 4 5 6 7 8
+Family:— Includes the wife and children dependent on the Government Servant.
+Signature __________________________ Designation ________________________ Ministry/Division ____________________ Dated _____________________________
+Establishment Division‘s O.M. No. 3/47/70-D IV, dated 30-8-1978.
+Page - 764 ESTACODE (EDITION-2021) CHAPTER-8
+4.3 Acquisition of Immovable Property by Government Servants Posted/ Employed In Pakistan Missions Abroad
+The question of acquisition of assets in the form of immovable property by Pakistanis residing abroad has been under consideration of the government for sometime past, Pakistani nationals residing abroad fall into the following broad categories:-
+(a) Pakistani nationals who have more or less settled down abroad. Such persons may be employed there or may be carrying on some independent business or profession;
+(b) Government servants who are Pakistani nationals employed in our Embassies/Missions abroad;
+(c) Pakistani nationals employed in branches or subsidiaries abroad of Pakistani companies/firms.
+2. There is no objection to Pakistani nationals who have settled down abroad acquiring immovable property or foreign shares and securities by resorting to bank borrowings from their own resources provided no exchange liability is created for remittance from Pakistan at any stage. If and when such persons return to Pakistan, they will have to transfer the income and the sales-proceeds of such properties to Pakistan as required in terms of the provisions of the Foreign Exchange Regulation Act, 1947. There would also be no objection if the branches of Pakistani banks operating abroad give loans and advances to Pakistani settlers abroad for the purpose of acquiring properties abroad provided these advances and interest thereon are recovered entirely in foreign exchange and no exchange liability is created for remittance from Pakistan as stated above.
+3. As regards government servants who are Pakistani nationals employed in the Embassies/Missions abroad or other government servants posted on duty or training abroad, they should be discouraged from acquiring properties or foreign shares and securities abroad. The remuneration which such persons receive is intended to cover their living and other incidental expenses. If an official can manage to save funds out of his remuneration, such savings should be remitted to Pakistan rather than used for acquiring properties and foreign shares and securities abroad.
+4. Some Pakistani banks, companies and firms have been permitted to establish branch offices or subsidiaries abroad. In some cases, Pakistani nationals have been employed in such branch offices or subsidiaries abroad. They should also, like government servants, transfer their savings, if any, to Pakistan instead of acquiring assets abroad.
+[Authority.- Finance Division‘s O.M.No.1(14)-EF/EXP/62, dated 19-8-1963].
+Also refer to State Bank of Pakistan-Foreign Exchange Manual as updated upto March,2017.
+CHAPTER-8 ESTACODE (EDITION-2021) Page - 765
+4.4 Declaration of Assets Held and Acquired by
+Government Servants and Corporation Employees
+Instructions regarding Declaration of Property and Assets have been issued from time to time, but unfortunately these have been either insufficiently understood or dealt with in routine. As a result, the compliance of these instructions by the Ministries/ Divisions/Departments etc. and by the officials themselves has remained sporadic. The President has also taken notice of this unsatisfactory state of affairs.
+2. The instructions on the filing of Declaration of Assets have been revised and consolidated for strict compliance by all concerned, as follows:-
+(I) The Declaration of Assets are to be submitted by—
+(a) all government servants of all grades,
+(b) all re-employed government servants,
+(c) all persons employed on contract,
+(d) provincial civil servants and corporation employees serving on deputation in the Federal Government,
+(e) all officers and employees of corporations/ autonomous bodies set up and/or controlled by the Federal Government.
+(f) commissioned and non-commissioned officers of the armed forces serving on secondment in civil posts and in corporations/autonomous bodies.
+(II) (a) The Declaration of Assets should be submitted by all concerned on first appointment and thereafter annually on 31st December each year, on the attached proforma which should be filled in and signed by the Declarant himself.
+(b) The revised proforma for declaration of assets provides for affixing of photographs of all officers of BS-17 and above on the first submission of declaration of assets under these instructions.
+(III) The Declarations are to be made in respect of Property and Assets held in the name of government servant himself and members of his family as defined in rule 3(1) (c) of the Government Servants (Conduct) Rules, 1964 reproduced below:-
+―Member of a government servant‘s family‖ includes–
+(i) his wife, child or step-child, whether residing with the government servant or not; and
+ BPS.
+Page - 766 ESTACODE (EDITION-2021) CHAPTER-8
+(ii) any other relative of the Government Servant or his wife, when residing with and wholly dependent upon the government servant, but does not include a wife legally separated from the government servant, or a child or step-child who is no longer in any way dependent upon him, or of whose custody the government servant has been deprived by law‖.
+(IV) The Declaration should include the description/ details of immovable property such as land, houses required, built, or under construction including the property which is under mortgage or which is otherwise encumbered and movable property such as motor vehicles, investment or ownership (part or otherwise) of business enterprises, stocks, shares, securities, certificates, prize bonds, insurance policies and jewellery having a total value of Rs.[50,000] or more, in terms of rule 12 of the Government Servants (Conduct) Rules, 1964.
+(V) (a) It will be the responsibility of Ministries/ Divisions/ Departments/ Corporations/Autonomous Bodies to obtain the declaration of assets in respect of persons serving under them. Failure to file the declarations on the prescribed date or within fifteen days thereof construed as misconduct and the defaulters will be liable to disciplinary action under the rules. Action against the defaulting persons will be taken by the respective Ministries / Divisions / Departments / Organizations etc. under whom the official is serving for the time being in accordance with the relevant disciplinary rules.
+(b) A certificate to the effect that such declarations have been obtained from all officials should be forwarded to the Establishment Division by all Ministries/Divisions/ Departments by 1st March of each year.
+(VI) (a) The Declaration of Assets should be maintained and handled in the same manner as the confidential reports. These should be kept on separate files for each individual official and maintained as companion files of the C.R. dossiers of the officials concerned. The declaration of assets of the officials whose C.R. dossiers are not required to be maintained under the relevant instructions, should be kept in the above manner as companion files to their service books.
+(b) The Ministry/Division/ Department/ Corporation or Autonomous Body which maintains the original C.R. dossier/ Service Books of the officers/staff will be responsible for custody and maintenance of the files of Declaration of Assets in the prescribed manner.
+(c) For this purpose, the Declarations should be forwarded, alongwith lists to the respective Secretaries of the Ministries/ Divisions/Heads of Attached Departments/ Corporations/ Autonomous Bodies who
+ Revised vide Estt. Div.‘s Notification No. S.R.O. 846(I)/85 dated 5-9-1985 from Rs. 10,000 (Ten Thousand).
+CHAPTER-8 ESTACODE (EDITION-2021) Page - 767
+are responsible for the maintenance of the C.R. dossiers of the concerned officials by 1st March of each year.
+(VII) Under a directive of the President, the Secretaries of the Ministries/ Divisions and Heads of Departments etc. are to be held responsible for any case of corruption in the Ministry/Department etc. under them. In cases where the Secretary has reasons to believe that the assets have not been correctly reported, or are in excess of known means of income, may order an investigation through an internal inquiry or by FIA, to be followed by proceedings under disciplinary rules in the event of such charges having been, prima facie, established.
+3. The various instructions issued from time to time, regarding filing of Declaration of Assets are deemed to have been modified to the extent stated above.
+4. The Ministries/Divisions may please bring these instructions to the notice of the officials serving under them and the Attached Departments/ Subordinate Offices and Heads of Corporations/Autonomous Bodies for compliance.
+[Authority.- Estt. Secretary‘s D.O. letter No.2/2/81.D.A/D.I, dated 19-9-1982].
+Page - 768 ESTACODE (EDITION-2021) CHAPTER-8
+(ANNEX)
+S-121 (Revised) (Loose)
+Declaration of Assets for the year ending on 31st December, 20 /on____________________ (initial appointment)
+PHOTOGRAPH
+(To be affixed by officers in BPS 17 & above only on the first declaration under the revised instruction).
+1. Name and Designation_______________________________________ with BPS__________________________________________________ 2. Occupational Group/Service_____________________________(if any). 3. Name of Organization where __________________________serving.
+DECLARATION
+I__________________S/o___________________________ hereby declare that the Assets, immovable and movable, described in the proforma overleaf duly signed, are held by me and members of my family, [ ‗family‘ as defined in Rule 3(1) (c) of the Government Servants (Conduct) Rules, 1964] on 31st December, 20 /on____________________________________________________________________ _____________________(the date of initial appointment).
+Signature _______________ Designation ______________
+Rules 3(1) (c) of Government Servants (Conduct) Rules, 1964.
+―Member of a government servant‘s family‖ includes:-
+(i) his wife, child or step-child, whether residing with the Government servant or not; and
+(ii) any other relative of the government servant or his wife, when residing with and wholly dependent upon the government servant, but does not include a wife legally separated from the government servant, or a child or step-child who is no longer in any way dependent upon him or of whose custody the government servant has been deprived by law.‖
+Reference to a wife shall be construed as reference to a husband where the government servant is a woman.
+CHAPTER-8 ESTACODE (EDITION-2021) Page - 769
+For the year ending 31st December, 20…. S-121(Revised) (Loose)
+PROFORMA (See Sl. No. 4.6)
+I,................S/D/o................. Employed in ...........................................hereby declare that no immovable and movable property, i.e, bonds, shares, certificates, securities, insurance policies and jewellery having a total value of Rs [50,000]or more is held by me and members of my family, except as stated below:-
+Name In whose name Province & District Nature of property Approximate How acquired Remarks held in which the and extent of value of whether by purchase, property is situated interest held property gift or by inheritance 1 2 3 4 5 6 7
+1. For the period of......................... 20 ........................................... 2. Accretions/decrements made during ......................................... 20 .............................................
+Members of family.- As defined in Rule 3(1) (c) of Government Servants (Conduct) Rules, 1964
+Signature .................................
+Designation...........................
+ Subs. vide Estt. Div.‘s Notification No. SRO 846(I)/85 dated 5.9.1985.
+Page - 770 ESTACODE (EDITION-2021) CHAPTER-8
+5.1 Amendments in Government Servants (Conduct) Rules, 1964 and
+Submission of Declaration of Income and Assets Held and
+Acquired by Government Servants and Corporation Employees
+By amendments in the Government Servants (Conduct) Rules, 1964 vide SRO No. 984(I)/2004, dated 15-12-2004 rules 11 and 11A pertaining to buying/ selling of moveable/immoveable property and construction of building etc. have been omitted. By virtue of substitution of sub-rule (2) of rule-12, every government servant shall submit to the government, through the usual channel an annual declaration of income, assets and expenses for each financial year, (from 1st July to 30th June), showing any increase or decrease of property as shown in the declaration under sub-rule (1) or the last annual return, as the case may be. According to the new sub-rule (3) of the rule 12, declaration of assets proforma shall be opened in the section concerned each year and entered into the relevant database. To meet the requirements of the amended provisions of rule-12 of the Government Servants (Conduct) Rules, 1964, a revised Declaration of Assets Proforma has been devised (Annex).
+2. Following guidelines may be noted for strict compliance:
+(i) Declaration of Income, Assets & Expenses are to be submitted on prescribed proforma by all government servants in all BPS including all persons re-employed/employed on contract.
+(ii) First Declaration of Assets on the revised proforma containing full details assets and liabilities be submitted by all concerned for the Financial Year ending on 30th June by 31st July. The government servants appointed after 30th June submit Declaration of Assets as on the date of their first appointment. Thereafter, every government servant is required to submit declaration of his income and assets on the close of every financial year i.e. 30th June by 31st July each year.
+(iii) The declaration of assets belonging to officers of PAS, PSP, Secretariat Group and OMG officers only will be forwarded to the Establishment Division.
+(iv) A certificate to the effect that such declaration has been obtained from all officers/officials should be forwarded to the Establishment Division by all the Ministries/ Divisions by 1st of September each year. The controlling Ministries/Divisions will submit a consolidated certificate in respect of Departments etc. controlled by them.
+(v) It will be the responsibility of Ministries/Divisions/ Departments/ corporations/Autonomous Bodies to obtain the declaration of assets in respect of persons serving under them, take disciplinary actions against the defaulting officers/officials who do not submit declarations by the prescribed date or within fifteen days thereof.
+(vi) Ministries/Divisions/Departments/Corporations /Autonomous Bodies shall also maintain database regarding annual declaration of income, assets and expenses in respect of the officers/officials administratively controlled by them.
+[Authority:- Establishment Division‘s O.M. No. 2/1/2004-D-4, dated 22nd Dec., 2004]
+CHAPTER-8 ESTACODE (EDITION-2021) Page - 771
+5.2 Declaration of Assets Held and Acquired by Government Servants for the year ending 30th June, 20__
+Refer to Rule 12 of the Government Servants (Conduct) Rules, 1964 and administrative instructions issued by the Establishment Division from time to time, on the subject cited above. It is requested to obtain Declarations of Assets and Liabilities by August 31, 20__ for the year ending June 30, 20__ from the officers/officials belonging to occupational cadres serving under you, on the prescribed proforma (Annex), which is also available on website ―http:www.establishment.gov.pk‖ of the Establishment Division.
+2. Establishment Division maintains the record of Declaration of Assets of PAS, PSP, Secretariat Group and OMG Officers. Therefore, Declarations of the officers belonging to these Groups should be forwarded to Establishment Division. Officers belonging to these Groups serving under the respective Provincial Governments may send an advance copy of their Declaration to Establishment Division, to avoid delay. The Declarations of Assets in respect of all other Service Groups/Cadres will be maintained by their respective Ministries/Divisions/Departments.
+3. It is pertinent to mention that non-compliance of the above Rules & Instructions tantamounts to ―Misconduct‖ within the meaning of Rule 2(4) of the Government Servants (Efficiency and Discipline) Rules, 1973. Further, in light of Rule 7 (j) of Civil Servants Promotion (BS-18 to BS-21) Rules, 2019 ―the civil servant who has not submitted his/her annual declaration of assets forms for the last five years‖ will be deferred from promotion in the respective promotion boards.
+[Authority.— Establishment Division‘s O.M No. 2/1/2013-D-4 dated 06-08-2020]
+ Now Civil Servants (Efficiency & Discipline) Rules, 2020.
+Page - 772 ESTACODE (EDITION-2021) CHAPTER-8
+Annex
+GOVERNMENT OF PAKISTAN
+CABINET SECRETARIAT
+ESTABLISHMENT DIVISION
+DECLARATION OF INCOME AND ASSETS
+Financial Year Ending on 30th June
+1. Name
+NIC No.
+N.T. No.
+2. Basic Pay Scale Occupational Group Service/Department
+Present Position Held
+3. Present Residential Address
+Phone (R) Mobile
+4. Income Salary (During the Rs. Rs. Rs. Financial year)
+5. Expenses Utilities (Electricity, Gas, Total Household (Approx.) Telephone etc.) expenses
+Rs. Rs.
+6. Private Foreign traveling Country/Countries Period of Stay Approx. expenses (Self, Spouse & Children visited From to___ Rs. During F.Y
+7. Children‘s Education Name(s) of children Educational institutions attended (inland & Abroad) during F.Y.
+8. Club Membership Name of Club(s) Membership No.
+CHAPTER-8 ESTACODE (EDITION-2021) Page - 773
+9. Immovable Assets (Agri & Non-Agri lands, House properties, Commercial & Industrial properties, Open plots of all types)
+Identification & nature of Asset(s) Mode of acquisition/year Cost of acquisition a) b) c) d) e) f) g) h) i) j) k) l) m)
+10. Movable Assets (Cash in hand, Motor vehicles, Jewellery, Household items, Equipment, Business Capital etc.)
+Identification & nature of Asset(s) Mode of acquisition/year Cost of acquisition a) b) c) d) e) f) g) h) i) j) k) l) m)
+11. Assets held as Attorney
+Identification & nature of Asset(s) Nature of Power of Attorney Nature & Address of (Revocable/Irrevocable the Legal Owner a) b)
+Page - 774 ESTACODE (EDITION-2021) CHAPTER-8
+12. Assets disposed off during the year
+Identification & nature of Asset(s) Date of disposal Amount received as Sales proceed (Rs.) a) b) c) d)
+13. Investments (Bonds, Shares, Certificates, deposits/Advances, Loans granted etc.)
+Details of Bonds held Investments Bond No. (s) Denomination Rs. Rs. a) Rs. b) Rs. c) Rs. d) Rs.
+14. Banks Accounts (Current, Saving, Deposit A/c & F.C. A/cs)
+A/c No. & Bank Branch Year of Opening Main source of deposits Balance as on 30.6 (Rs.) a) Rs. b) Rs. c) Rs. d) Rs.
+15. Total Assets (9-14) Rs.
+16. Liabilities (Departmental/Bank loans, Over drafts, Mortgages secured, private loans etc.)
+Outstanding liabilities (A) Liabilities paid off during the year (B) a) Rs. Rs. b) Rs. Rs. c) Rs. Rs. d) Rs. Rs.
+15-16 (A) Net worth Rs. As on 30.6.
+Net worth declared previously Rs.
+As on 30.6.
+Signature ____________________________________
+Name
+Designation
+Name of the Organization/Deptt.__________________
+Place
+Date
+CHAPTER-8 ESTACODE (EDITION-2021) Page - 775
+INSTRUCTIONS
+1. If the space provided in the form is found inadequate or some explanation is required, a separate page may be attached/annexed.
+2. All assets should be valued at cost and in the cases of assets acquired through gift name, address of the donor and donees relationship with him is to be declared.
+3. Income declared at Serial 4 must include income earned by the spouse & children as well.
+4. Information requested must be completed. No column should be left blank. Columns which are not applicable should be crossed.
+5. All assets owned by the officer & his family members (Family as defined in Rule 3(1) (c) of Conduct Rules 1964) should be declared. Assets acquired by major children dependents & others where funds have been provided by the officer are also to be declared.
+6. Assets owned partly or acquired on ―Hire purchase Agreement‖ or installment should also be declared.
+7. If any exact figure cannot be inserted an estimated/approx figure may be given.
+8. Sale proceeds of assets disposed off during the relevant financial year must be declared under the head ―other sources‖ (Serial 4).
+9. If there is no change in Assets over the previous year (for which the declaration had been filed) relevant columns (Serial 9, 10 & 11) may be marked ―As Before‖.
+10. At Serial 11 assets held by others as attorney on behalf of declarant, his spouse or dependent children are also to be declared.
+11. Expenses against utilities (Serial 5) should include bills paid against all meters (Gas & Electricity installed on the residence) and telephone connections (including Mobile) in use of the of officer, spouse & dependent children.
+12. Notwithstanding the applicability of any other law for the time being in- force, this declaration is being filed under Conduct Rule 1964 and any breach therefore (including concealment of assets or giving wrong information) is punishable under RSO* 2000.
+*Since Removal from Service (Special Powers) Ordinance, 2000, stands repealed vide Section 2 (1) of the Act No.III of 2010, notified vide Estt. Division‘s O.M.No. 3/10/2010-R.II dated 17-03-2010.
+Page - 776 ESTACODE (EDITION-2021) CHAPTER-8
+5.3 Quarterly Statement Regarding Permissions Granted
+to the Federal Government Officers Under Government Servants (Conduct) Rules, 1964 by the Provincial Government to Buy and Sell Assets
+The Chief Secretaries of Provincial Governments have been allowed to grant permissions to the officers belonging to All Pakistan Services who were for the time being serving in Provinces to buy and sell assets under the Government Servants (Conduct) Rules, 1964. However, the Establishment Division has no record regarding the number of such permissions granted under these delegated powers to APUG officers and officers/ cadres (other than PCS) during their posting in a province on deputation basis.
+2. All Provincial Governments shall submit the information regarding cases disposed of by the orders of the Chief Secretary in respect of *APUG officers on the proforma attached herewith, on quarterly basis as in the enclosed statement (Annex).
+[Authority:- Estab. Div.‘s O.M. No. 1/3/99/D-3, dated 30th November, 2002]
+Annex
+Cases Disposed of by the Orders of Chief Secretary, Government of
+______________ under the Provision of the Govt. Servants
+(Conduct) Rules, 1964 during the Calendar Years 2001-2002
+(onwards), to the Federal Government Officers Posted in the
+Provinces for the Time Being
+Sl. Name, Designation, Description of Copy of Proforma as Prescribed No. BPS/Group/Service Property Sold/ by the Federal Government on
+and Cadre of the Purchased which Permission was Sought in
+Officer Case of Rule 11 & 11-A be attached
+6.1 Private Medical Practice by Government Servants
+The private practice by unqualified practitioners, will continue to apply. Further, the private practice of homeopathy by the government servants who are registered under the Unani, Ayurvedic and Homeopathic Practitioners Act, 1965, will be subject to rule 16 of the Government Servants (Conduct) Rules, 1964.
+[Authority.- Estt. Div.‘s O.M.No.6/7/89-D.3, dated 15-3-1990].
+ All Pakistan Services (Change in Nomenclature) Rules, 1973, notified vide SRO 1307(I)/73 dated 14-09- 1973, have been repealed vide SRO 89(I)/2014 dated 14-02-2014, whereby all notifications and instructions issued on the subject from time to time were mutatis mutandis amended.  Provincial Civil Service.
+CHAPTER-8 ESTACODE (EDITION-2021) Page - 777
+6.2 Transaction of Insurance Business by Government Servants
+It has been brought to the notice of the government that certain government servants transact insurance business on behalf of their wives, sisters and other members of family living with or dependent upon them in whose names they have managed to secure agencies of insurance companies. Since during performance of official duties such government servants come across other government servants and private parties, they manage to obtain insurance policies from them by taking undue advantage of their official position. This state of affairs not only brings disrepute to the departments to which they belong, but also distracts their attention from official duties and retards their efficiency.
+2. According to rule 16 of the Government Servants (Conduct) Rules, 1964, no government servant can engage himself in any trade or business, directly or indirectly, without the previous sanction of the government. Such transactions, therefore, constitute a violation of that rule and render the government servants concerned liable to disciplinary action under the Government Servants (Efficiency & Discipline) Rules.
+3. Ministries/Divisions are advised that it should generally be made known to all concerned that government view this situation with concern and desire that government servants who indulge in this business indirectly through their family members should abandon it forthwith.
+[Authority.— Estt. Div.‘s O.M.No.3/9/66-D.II, dated 15-8-1966].
+6.3 Private Work During and After Office Hours
+It has been brought to the notice of the Prime Minister that in order to supplement their income, a large number of low paid government servants do private work in addition to their government jobs. Some of them work as ushers in the afternoon, evening and night shows of cinemas while others are often absent from their jobs under government as they attend to private work even during office hours.
+2. Government work inevitably suffers on account of these government servants performing private jobs during or outside office hours. It also aggravates the unemployment problem. The Prime Minister has, therefore, been pleased to direct that action should be taken to put a stop to this objectionable trend among government servants.
+[Authority.— Estt. Div.‘s O.M. No.1/20/76-D-IV, dated 6-3-1976].
+6.4 Future Good Conduct of Pensioners
+Attention is invited to clause (1) of Article 351 of the Civil Service Regulations which reads as follows:—
+―Future good conduct is an implied condition of every grant of a pension. The Local Government and the Government of Pakistan reserve to themselves the right of withholding or withdrawing a pension or any part of it, if the
+ Now Civil Servants (Efficiency & Discipline) Rules,2020.
+Page - 778 ESTACODE (EDITION-2021) CHAPTER-8
+pensioner be convicted of serious crime or be guilty of grave misconduct.‖
+2. It has been decided that the provision of the above Article should be strictly enforced in all cases by the pension sanctioning authorities. In cases where a pensioner commits misconduct, prompt action should be taken to withhold or withdraw his pension or any part of it.
+3. Misconduct in such cases would mean conduct prejudicial to good behaviour or unbecoming of a gentleman. The decision of the President on any question whether any act on the part of the pensioner is misconduct or not shall be final and binding.
+[Authority.- Establishment Secretary‘s D.O. letter No.5/4/73-D, IV, dated 11-8-1973].
+6.5 Taking Part in Politics by Pensioners
+Attention is invited to clause (2) of Article 351 of the Civil Service Regulations which reads as follows:—
+―(2) Except with the previous sanction of the Central Government, no pensioner shall, within a period of two years from the date of his/her retirement, take part in any election or engage in political activity of any kind.‖
+2. It would be noticed from the above that the pensioner can participate in political activity within two years of his retirement from service only with the previous sanction of the Federal Government. It has, however, been decided that as a matter of policy no permission should in future be granted to any pensioner to engage in political activity of any kind.
+3. It may be clarified that political activity would include activities like affiliation with political parties, public speeches, writing articles, giving statements, attending political meetings, making monetary contribution for political purposes etc. This clarification may be brought to the notice of the government servants and also to pensioners who have not yet completed two years from the date of their retirement.
+[Authority.- Establishment Secretary‘s D.O. letter No. 5/3/73-D.IV, dated 31-7-1973].
+7.1 Employment of Dependent Family Members of a
+Government Servant in Foreign Missions in Pakistan
+A question has arisen whether dependent family members of a government servant can seek employment in foreign missions in Pakistan. The matter has been considered and it has been decided that government servants should not allow their wives to seek employment in foreign diplomatic missions in Pakistan.
+[Authority.- Estt. Div.‘s O.M. No. 1/148/76-D.IV, dated 23-11-1976].
+7.2 Engagement in Trade, Business etc. by Spouses of Government Servants
+Under the Government Servants (Conduct) Rules, 1964, no government servant is
+ Federal.
+CHAPTER-8 ESTACODE (EDITION-2021) Page - 779
+allowed to engage in any trade or undertake any employment or work, other than his official duties, except with the previous sanction of the government. There is, however, no bar to the spouses of government servants taking employment or engaging in any trade or profession. It has come to the notice of government that the wives of some government servants have been engaging in trade and business where influence of the husband could possible be misused. In such cases, the possibility of public interest being jeopardized cannot be ruled out.
+2. In order to safeguard the public interest in such cases, it has been decided that all government officials whose spouses have under-taken some private job or are engaged in business and trade may be directed to render a certificate to the Secretary of the Ministry/Division or the Head of the Department concerned that the profession, trade or business in which his or her spouse is engaged is in no way under his/her official influence.
+[Authority.-Estt. Div.‘s O.M. No. 7/1/79-D-IV, dated 1-9-1979]
+7.3 Instructions under Government Servants (Conduct) Rules, 1964
+Regarding Procedure for Engaging in Private Business, Trade and Consultancy Work
+Government servants in addition to their official duties are known to engage in private business, trade and consultancy work which provide them with pecuniary benefits. However, it has been observed that in many such instances, procedural requirements under the Government Servants (Conduct) Rules,1964 are either not complied with in letter and spirit, or are in many cases, totally ignored.
+2. Under Rule 16 of the Government Servants (Conduct) Rules, 1964, government servants are not allowed to engage in private business, trade, or employment/ consultancy work., except with the previous sanctions of the government, and provide such activity does not amount to conflict of interest in terms of the officer‘s position or obligations as a government servant. Further, a government servant shall not undertake or shall discontinue such work, if so directed by the Government. Also, a government servant who has any doubt about the propriety of undertaking any particular work should refer the matter for orders of the Government.
+3. The above provisions of the Government Servants (Conduct) Rules,1964 need to be complied with in letter and spirit. These may therefore be circulated to all government servants belonging to all occupational cadres falling under the Federal Government jurisdiction. Any violation of these instructions tantamounts to misconduct and is liable to be proceeded against under the Government Servants (Efficiency and Discipline) Rules,1973.
+[Authority.- Estt. Div.‘s O.M.No.1/20/1976-D-3, dated 23-07-2020].
+Now Civil Servants (Efficiency & Discipline) Rules, 2020.
+Page - 780 ESTACODE (EDITION-2021) CHAPTER-8
+7.4 Use of Social Media by Government Servants
+Kindly refer to Establishment Division‘s Circular No. 1/20/1976-D-3, dated 23rd July, 2020 whereby detailed instructions under Government Servants (Conduct) Rules, 1964, governing participation of government servants in difference media forums including social media platforms were issued for compliance.
+2. Under the Rules ibid, no government servant can participate in any media platform except with the express permission of the Government. Rule 18 of the Rules ibid bars a government servant from sharing official information or document with a government servant unauthorized to receive it or a private person or press. Further, Rule 22 of the Rules ibid refrains a government servant from making any statement of fact or opinion which is capable of embarrassing the Government in any document published or in any communication made to the press or in any public utterance or television programme or radio broadcast delivered by him or her. Furthermore, Rules 21, 25, 25-A and 25-B of the Rules ibid bar a government servant from expressing views against ideology and integrity of Pakistan or any government policy or decision. Besides, they also bar a government servant from offering views on any media platform which may either harm the national security or friendly relations with foreign states; or offend public order, decency or morality; or amount to contempt of court or defamation or incitement to an offence; or, propagate sectarian creeds.
+3. Despite the aforementioned instructions and the guiding legal frame-work, it has been observed that government servants often engage themselves with social media i.e. websites and applications that enable users to create and share contents or participate in social networking /virtual communities/online groups. They, while using different social media platforms including Facebook, Twitter, WhatsApp, Instagram, Microblog-ging etc. to air their views on a host of subject, sometimes indulge in actions or behavior that does not conform to the required standards of official conduct, as envisaged in the Rules ibid. Such actions range from unauthorized relaying of the official information to disseminating the wrong or misleading information to airing of political or secretarian views etc.
+4. In view of the foregoing, it is expedient to issue the following instructions for governing use of social media platforms by government servants:-
+i. The same instructions as are applicable to government servants while speaking at public fora or publishing articles in print media, shall apply, mutatis mutandis, to the use of social media by them.
+ii. As provided in Rule 18 of the Rules ibid, they shall not indulge in
+CHAPTER-8 ESTACODE (EDITION-2021) Page - 781
+unauthorized disclosure of the official information or sharing of the official documents they come across during the course of performing their duties, via social media.
+iii. In order to maintain their impartiality and objectivity in performance, they shall not partake in any discussion on social media or exchange or forward information or message that express their opinion on political issues.
+iv. They shall not participate in furthering of any information especially pertaining to government matters that, prima facie, appears to be unauthentic and misleading.
+v. They shall not make any disparaging remarks aimed at any individual or group or sect or faith and shall uphold values guiding the Civil Service at all times. They are advised to observe discretion and moderation in use of the Social Media and uphold high standards of propriety.
+5. It is, however, clarified that the instructions contained at para 4 are not intended to discourage any constructive and positive use of social media by a government organization for engaging with the public to solicit feedback on a government policy, suggestions for improvement in service delivery and resolution of their complaints. However, such an organization shall edit their social media platforms continuously or frequently to re move offensive, inappropriate and objectionable remarks.
+6. All government servants are required to comply with the above instructions in letter and spirit. These may, therefore, be circulated to all government servants belonging to all the occupational cadres falling in the jurisdiction of the Federal Government. Violation of one or more of these instructions will tantamount to misconduct and shall invite disciplinary action against the delinquent government servant under Civil Servants (Efficiency and Discipline) Rules, 2020. Further, in case of a violation committed on a group platform the ‗Administrators‘‘ or the ‗Admin‘, if they are serving government servants, shall also be liable to the disciplinary proceedings.
+7. All Federal Secretaries/Additional Secretaries (Incharge)/Service or Cadre Administrators/Chief Secretaries are requested to ensure implementation of these instructions.
+[Authority:—Establishment Division‘s O.M No. 14/04/2021-D-II dated 25-08-2021.]
+Page - 782 ESTACODE (EDITION-2021) CHAPTER-8
+7.5 Membership of Private Associations Connected with Social Work
+It has been brought to the notice of the Establishment Division that permission was refused to a government servant to become an office-holder of a private association, whose activities are confined to social work only and whose character is non-political, on the ground that membership of such associations is barred to government servants. Attention of the Ministry of Finance, etc. is drawn to rule 16 of the Government Servants (Conduct) Rules, 1964 and the note thereunder and it is stated that there is no bar to government servants becoming office bearers of such associations, provided they inform their immediate departmental superiors who will decide, with reference to the said rule and note, whether the matter should be reported for the orders of government.
+[Authority.- Estt. Div.‘s O.M. No. 4/1/49-Ests.(SE), dated 8-6-1949].
+7.6 Association with Private Trusts, Foundations, etc.
+The Government of Pakistan have considered the desirability or otherwise of serving government servants being associated with private trusts, foundations and similar other institutions which are not sponsored by the government itself, and have decided that no serving officer should associate himself with any such association or organization.
+2. These orders will not apply to judges of the High Courts and Supreme Court of Pakistan.
+[Authority.— Estt. Div.‘s O.M.No.4/8/63-D-II, dated 7-6-1963 read with O.M. of even number dated 8-7-1963].
+7.7 Prosecution of Studies by Government Servants in Educational Institutions
+A reference is invited to the Establishment Division O.M. No.4/24/59-VI, dated the 3rd May, 1960. It is stated that on further consideration, it has been decided that:—
+(1) Government servants intending to take-up a course of study at educational institutions should be required to take prior permission of the Head of the Department.
+(2) No such permission should be granted unless the Head of the Department is satisfied that the prosecution of studies will not interfere with the government servants‘ official duties.
+(3) Permission granted may be withdrawn, if the Head of the Department is convinced that the government servant is taking part in politics or prosecution of such studies is interfering with the satisfactory performance of the duties.
+[Authority.- Estt. Div.‘s O.M.No.4/9/63-D.II, dated 23-9-1964].
+7.8 Appearing at an Examination as Private Candidates by Government Servants
+A question has been raised whether permission is necessary for a government
+CHAPTER-8 ESTACODE (EDITION-2021) Page - 783
+servant for appearing at an examination as a private candidate. The matter has been considered in consultation with the Home Affairs Division and the two Provincial Governments and it has been decided that:—
+(a) In case of those government officials who are prosecuting studies in educational institutions with the permission of the Head of Department no further permission is required for appearing in the examination.
+(b) In case of those who want to prosecute studies in spare time without attending any educational institution, no permission is necessary. For appearing in the examination, the Head of the Department may grant leave provided the government servant concerned can be spared without detriment to the work of the government.
+[Authority.- Estt. Div.‘s O.M.No.4/9/63-D-VII(D.IV), dated 18-8-1969].
+8.1 Bar Against Naming of Institutions, Projects, Roads, Streets
+etc. in the Country after the Names of Government Servants
+The instructions issued by the Federal Government from time to time for naming institutions, projects, roads, etc. have become out of date. The matter has been reconsidered by the Government of Pakistan, and it has been decided to lay down the following guidelines on the subject in supersession of all previous orders:—
+(i) No institution, road, street, etc., should be named after a government servant or a public representative while he is still alive.
+(ii) No institution, official or semi-official should be allowed to be named after a non-Pakistani without the permission of the Federal Government.
+(iii) British names of towns, institutions, settlements etc. should be gradually replaced by Pakistani or Islamic names.
+(iv) Institutions and projects like bridges, buildings, roads, streets, etc. may be named after the following:—
+(a) The founder of the nation and persons who were in the forefront of the freedom movement, and took a prominent part in the creation of Pakistan.
+(b) National personalities (no longer alive) with unblemished record of service to the nation.
+(c) Heroes who have laid down their lives for the defence of the country in war.
+(d) Art and cultural institutions may be named after dead artists of national fame. The same principle can be followed in respect of educational institutions, libraries, scientific and technical institutions etc.
+(e) Principal donors of any building or institution built out of or for charity.
+ Now Interior Division.  The word ‗two‘ may be read ‗four‘.
+Page - 784 ESTACODE (EDITION-2021) CHAPTER-8
+(f) Living or dead heads of state/government of foreign countries friendly towards Pakistan.
+(v) Defence installations, military lines and institutions in cantonments and army stations may be named after war ―shaheeds‖.
+(vi) No sports tournaments would be named after Governors, Ministers, government officials or public representatives of their wives.
+2. Permission of the competent authority in the Federal Government or the Provincial Government concerned (President/ Governor as the case may be) shall be obtained in advance for the naming of institutions etc., on the basis of the above guidelines. In the case of defence installations etc., mentioned at (v) above, prior approval of the Chief of Staff Army/Navy/Air Force should be obtained.
+[Authority.- Cabinet Secretary‘s letter No.107/21-78-Min., dated 13-5-1978 to all Provincial Governments with copies to Ministries/Divisions].
+8.2 Participation in Foreign Cultural Associations or Organizations
+Government of Pakistan have had under their consideration the desirability or otherwise of government servants participating in foreign cultural associations or organizations and have decided that no government servant should associate himself with any such associations or organizations.
+[Authority.- Estt. Div.‘s O.M. No. 4/26/60-E.VI, dated 17-6-1961].
+8.3 Membership of Foreign Cultural Associations/Organizations
+Government have since further decided to authorize the Secretary of the Ministry concerned to grant permission, in consultation with the Ministry of Home Affairs, to continue the existing membership of such organization, by a government servant who is committed and cannot extricate himself. In new cases, in which also the Ministry of Home Affairs** should be consulted, the policy should be to discourage new membership in the interest of the proper performance of official duties.
+[Authority.- Estt. Div.‘s O.M. No. 4/26/60-D.II, dated 16-9-1961].
+9.1 Membership of British Library
+A question arose as to whether the restrictive orders should be applicable also to the membership of the British Council Library and other organizations of like nature. It has been decided that there should be no objection to officers becoming members of the British Council Library and similar organizations.
+[Authority.- Estt. Div.‘s O.M. No. 4/26/60-D.II, dated 15-11-1961].
+Note:— For definition of foreign cultural association, please see Section 2 (a) of the Foreign Cultural Associations (Regulation and Functions) Ordinance, 1975.
+ Prime Minister; Chief Minister.  Ministry of Interior (Interior Division).
+CHAPTER-8 ESTACODE (EDITION-2021) Page - 785
+9.2 Unauthorized Communication of Official Documents or Information
+The Rules of Business contain a provision to the effect that no information acquired directly or indirectly from official documents or relating to official matters shall be communicated by a government servant to the press, to non-officials or even officials belonging to other government offices, unless he has been generally or specially empowered to do so. It has been brought to the notice of the Cabinet Division that the implications of the above rule are not fully appreciated by government servants with the result that information contained in official documents finds its way to non-officials or officials belonging to other government offices and through them to outsiders. Ministry of Finance, etc., are requested kindly to bring the matter to the notice of all government servants under their administrative control and warn them that they should not talk about or discuss official matters coming to their knowledge directly or indirectly with outsiders or even with officials belonging to other government offices.
+2. It may further be brought to the notice of the government servants that a provision to the same effect as in the Rules of Business, 1973 is made in rule 18 of the Government Servants Conduct Rules,1964 and an infringement thereof can be the subject of departmental proceedings. It is also an offence under Section 5 of the Official Secrets Act, 1923.
+[Authority.— Cabinet Division‘s O.M. No. Cord.(1)-8/97/58, dated 28-11-1958].
+10.1 Premature Leakage of Information to the Press/Media
+Instances have come to the notice of the government where information regarding its policies and other activities was communicated to the press before these policies etc., had been finalized, by sources which were not competent to release or indicate that information. The premature leakage of such information places the government in an embarrassing position.
+2. Communication to the press/media or to a Government servant unauthorized to receive it or to a non-official person of any statement facts or opinion or other information by a Government servant which is likely to embarrass the Government is prohibited under rule 22 of the government Servants (Conduct) Rules, 1964 and any infringement of that rule is cognizable under the Government Servants (Efficiency and Discipline) Rules, 1973.
+3. It is therefore, imperative to bring these provisions of Rules to the notice of all Government Servants for strict compliance. In case of violation of these Rules/instructions, the defaulting Government servants may be proceeded under *Government Servants (Efficiency and Discipline) Rules, 1973.
+[Authority.- Estt. Div.‘s O.M.No.1/20/76-D-IV-D.3, dated 02-07-2011].
+Now Civil Servants (Efficiency & Discipline) Rules, 2020.
+Page - 786 ESTACODE (EDITION-2021) CHAPTER-8
+10.2 Instructions under Government Servants (Conduct) Rules,1964
+Regarding Procedure for Participating in Electronic, Print and Social Media Platforms
+Various instances have come to the notice of Establishment Division that Government Servants participate in electronic, print and social media platforms to air their views on a variety of subjects. However, it has been observed that in many such instances, procedural requirements under the Government Servants (Conduct) Rules,1964 are either not complied with in letter and spirit, or in many cases, totally ignored.
+2. Under the Government Servants (Conduct) Rules,1964, no government servant can participate in any media platforms, except with the express permission of the Government. Rules 20,21,22,25,25-A,25-B of the Government Servants (Conduct) Rules,1964 bar government servants from expressing views against policy or ideology of Pakistan, which may harm the security of Pakistan or friendly relations with foreign states, offend public order, decency or morality, or amount to contempt of court, defamation or incitement to an offence, besides propagation of sectarian creeds, and also places a bar on government servants from taking part in any public demonstration directed against a government decision or policy.
+3. Attention is also invited to Rule 22 of the Rules Ibid which bars a government servant from making any statement of fact or opinion which is capable of embarrassing the Government in any document published or in any communication made to the press or in any public utterance or television programme or in any radio broadcast delivered by him. Also, Rule 18 bars the government servant from communicating any official document or information to a Government servant unauthorized to receive it or to a non-official person or to the press.
+4. The above provisions of the Government Servants (Conduct) Rules,1964 need to be complied with in letter and spirit. These may, therefore, be circulated to all government servants belonging to all the occupational cadres falling under the Federal Government jurisdiction. Any violation of these instructions will tantamount to misconduct, and is liable to be proceeded against under the Government Servants (Efficiency and Discipline) Rules, 1973.
+[Authority.- Estt. Div.‘s O.M. No.1/20/1976-D-3, dated 23-07-2020].
+10.3 Consultation with Principal Information Officer for Projection
+of Government Policies Programmes and Activities
+According to the existing instructions, only Ministers and Secretaries, and such officers as may be specifically authorized, may act as official spokesman of the government and all official news and information is required to be conveyed to the press and the public through the Press Information Department.
+Now Civil Servants (Efficiency & Discipline) Rules, 2020.
+CHAPTER-8 ESTACODE (EDITION-2021) Page - 787
+2. The Principal Information Officer serves the Government of Pakistan as a whole, in addition to arranging issuance of publicity material emanating from ministries/conferences/press briefings for Ministers, Secretaries and official spokesman of the government. As such, it is desirable that the Principal Information Officer be consulted on the medium to be employed for projection of government policies, programmes and activities according to the situation and the subject matter.
+3. (i) Press Conferences.— These shall be called by Ministers or Secretaries/other officials who may be authorized by their respective Ministers.
+(ii) Press Statements.— On matters of policy which have already been approved by government and which require publicity and proper projection press releases may be authorized by Secretary concerned and issued through the Press Information Department.
+(iii) Press Notes: On matters of public interest, other than policy, press notes of purely informative nature may be issued by the Heads of Attached Departments through the Press Information Department.
+4. There is a possibility of incorrect or unauthorized information being collected by journalists and press representatives in informal contacts with officials. Attention is drawn to rule 18 of the Government Servants (Conduct) Rules, 1964 which prohibits unauthorized communication of official documents of information to a government servant unauthorized to receive it, or to a non-official person, or to the press. All government servants are warned to be careful in this matter. Any breach of this rule coming to notice will be severely dealt with.
+[Authority.- Estt. Div.‘s O.M. No.4/1/72-D.IV, dated 3-2-1972].
+10.4 Letters to Editor
+The Ministries/Divisions are aware that most of the people explain their difficulties through the ―Letters to Editor‖ columns of newspapers with the intention of seeking redress of their grievances from concerned government departments/agencies.
+2. This Ministry holds the view that if the position is clarified by the government departments/agencies by addressing letters to the editors of newspapers in which letters concerning them are published, it will not only clarify their position but also ensure removal of genuine public grievances.
+3. Ministries/Divisions are therefore, requested to kindly consider the above viewpoint, and, where practicable, take action in accordance with the procedure laid down in para 1 of Establishment Division‘s Office Memorandum No. 4/l/72-D.IV, dated the 3rd February, 1972.
+4. The clipping from the ―Letters to the Editors‖ columns will, as usual, be supplied to the government departments/agencies concerned by the Press Information Department.
+[Authority.- Information and Broadcasting Division‘s O.M. No. 1(18)/72-P.III, dated 16-5-1972].
+Page - 788 ESTACODE (EDITION-2021) CHAPTER-8
+11.1 Approaches to Ministers, M.N.As. etc. for Purchase or Sale of Property
+It has come to government‘s notice that government servants make approaches through Ministers, Chief Ministers, M.N.As. and M.P.As. or other means for issue of permit to buy transportation vehicles or other imported material and for purchase and sale of property.
+2. Such acts are not only in serious breach of Government Servants (Conduct) Rules, 1964 but also contrary to all tenets of propriety and are totally unbecoming of government servants. Government has, therefore, taken serious note of such acts on the part of government servants. In future, if any such case comes to notice, stern action will be taken against those involved. The attention of the government servants, working in your Ministries/Divisions and Attached or Subordinate Offices and Autonomous Institutions may be drawn to the Government Servants (Conduct) Rules, 1964, with direction to refrain from making such requests in future.
+[Authority.— Establishment Secretary‘s D.O. No.1/38/74-D.IV, dated 8-5-1974].
+11.2 Extraneous Influence by Government Servants in Respect of Service Matters
+It has been observed that the government servants, at times, attempt to bring extraneous influences in respect of service matters, such as posting, transfer, deputation etc. These acts are not only in breach of Government Servants (Conduct) rules, 1964 (as amended), but also constitute ‗Misconduct‘ in terms of rule 2(k) of the Government Servants (Efficiency and Discipline) Rules, 1973, reproduced below:—
+“„Misconduct‟ means conduct prejudicial to good order or service discipline or contrary to Government Servant (Conduct) Rules, 1964 or unbecoming of an officer and a gentleman and includes any act on the part of a Civil servant to assert or attempt to assert political or other exterior influence directly or indirectly to bear on the government or any government officer in respect of any matter relating to the appointment, promotion, transfer, punishment, retirement or other conditions of service of a Civil servant or having entered into plea bargain under any law for the time being in force and has returned the assets or gains acquired through corruption or corrupt practices, voluntarily.”
+2. The civil servants are, therefore, advised, in their own interest, to scrupulo-usly observe the provisions contained in the Government Servants Conduct 1964 and discipline rules. In future, if any civil servant attempts to bring extraneous influence in respect of his posting, transfer, deputation, etc., a note to this effect will be placed in his CR dossier, unless of course, proposals on these matters are made by the Ministries/Divisions/ Departments themselves formally to the Establishment Division.
+[Authority.- Estt. Div.‘s D.O. Letter No. 5/4/82-DI, dated 28-4-1982].
+ Now Civil Servants (Efficiency & Discipline) Rules, 2020.
+CHAPTER-8 ESTACODE (EDITION-2021) Page - 789
+11.3 Measures to Curb Extraneous Influences by Government Servants in Service Matters
+It has been observed there is an increasing trend among government servants to bring extraneous influences in service matters such as postings and transfers, promotions, etc. Apart from that in terms of rule 19 of the Government Servants (Conduct) Rules, 1964, read with sub-rule (k) of rule 2 of the Government Servants (Efficiency and Discipline) Rule, 1973, such acts constitute ‗misconduct‘, they have an adverse effect on the overall discipline and working efficiency of the concerned set ups.
+2. In order to curb these practices, the Establishment Division has been circulating instructions reminding the government servants of the provisions under the rules and emphasizing the need to refrain from bringing in extraneous influences in service matters, in the then Adviser to the Prime Minister for Establishment‘s d.o. letter No. 57-27/86-E.II, dated 25th May, 1989, and the then Establishment Secretary‘s d.o. letter of even number dated 27th May, 1990. Despite clear position under the rules and issuing instructions and reminders on the subject, the instances of misconduct on the part of the defaulting government servants continue to come to notice.
+3. It has accordingly been decided that all the competent authorities would bring, immediately, to the notice of the Prime Minister‘s Office cases of the defaulting civil/government servants whenever extraneous pressures are brought to bear upon the normal channels of discipline, for seeking orders to initiate disciplinary proceedings on case to case basis, through the Establishment Division.
+[Authority.- Estt. Div.‘s D.O. letter No.5/4/82-D.I, dated 5-7-1995].
+11.4 Steps to Curb Extraneous Influences
+In order to curb the general tendency among the civil/government servants to use extraneous influence in contravention of rules 19 and 29 of the Government Servants (Conduct) Rules, 1964, the present government has decided to take effective steps on the subject. This includes suspension of any civil/government servant accused of the said contravention followed by expeditious E&D proceedings.
+2. It is accordingly requested that, henceforth, all cases of contravention of the said rules must be dealt with by placing the defaulter under suspension, in the first instance, with the approval of the competent authority concerned. It may be ensured that this action is taken without loss of time.
+3. It is further requested that copies of suspension orders and, in due course, the final orders in such E&D proceedings, may also be forwarded to Establishment Division.
+[Authority.- Estt. Div.‘s d.o. letter No.5/4/82-D.I, dated 7-11-1996].
+ Now Civil Servants (Efficiency & Discipline) Rules, 2020.
+Page - 790 ESTACODE (EDITION-2021) CHAPTER-8
+11.5 Evidence Before Committee of the National Assembly
+Under rules 114 and 179 of the Rules of Procedure of the National Assembly of Pakistan, the Committees of the Assembly have the power, inter alia, to summon and examine any government servant and to require the production of any official record. As the government servant, who may be thus summoned or directed by a Committee would, in the matter of giving evidence before the Committees, be also subjected to the restrains provided for in rule 23 of the Government Servants (Conduct) Rules, 1964 , a question has arisen as to whether a government servant can, in the course of his examination by any such Committee, decline to disclose any information or to produce any document which he thinks it would not be in the interest of the defence, the security or the external relations of Pakistan or in the public interest generally to disclose or produce. The matter has been considered carefully and it has been decided that in such cases, the government servant concerned should claim privilege and politely decline to disclose such information or produce such document on grounds of public interest.
+[Authority.- Estt. Div.‘s O.M. No. 1/1/64-F.I./DII, dated 14-1-1965].
+11.6 Clarification of Application of Instructions Regarding Radio Broadcasts to Employees of Autonomous Bodies
+A reference is invited to the Ministry of Communications O.M. No. KP-2(20)/61, dated the 20th March, 1962 (Annex). It is stated that the instructions contained in this Division‘s O.M. No. 18(1)/48-B, dated the 15th December, 1950 apply to all persons in the civil service of Pakistan, whether for the time being on foreign service or not, to whom the Government Servants Conduct Rules also apply.
+2. It has been held by the Cabinet Secretariat (Establishment Division) in consultation with the Ministry of Law that the employees of autonomous and semi-autonomous bodies, like the Port Trust, P.I.D.C., Pakistan Council of Scientific and Industrial Research etc. except the government servants who may be on deputation to those bodies cannot be regarded to be in the civil service of Pakistan, and, therefore, they do not come under the purview of the Government Servants Conduct Rules.
+3. In view of the above position, the heads of autonomous and semi-autonomous bodies do not come within the fold of the orders contained in this Division‘s O.M referred to above.
+[Authority.- M/o Information & Broadcasting O.M. No.1(18)/62, dated 10-7-1962].
+(ANNEX)
+[Copy of Ministry of Communications O.M. No., KP-2(20)/61, dated the
+20th March, 1962].
+Reference Information and Broadcasting Division‘s Office Memorandum No.13 (1)/48-B, dated the 15th December, 1950 regarding broadcast talks by government servants. A question has arisen whether instructions laid down therein are also applicable to the heads
+CHAPTER-8 ESTACODE (EDITION-2021) Page - 791
+of autonomous, semi-autonomous bodies like the Port Trust etc. and if the heads of such institutions are asked to broadcast talks, their cases should come to the administrative Ministry concerned for grant of permission. Since mention has been made only of government servants, it is presumed, they do not come into the picture. However, the Ministry of National Reconstruction and Information are requested to kindly clarify the above points for guidance.
+12.1 Taking Part in Politics- Bar against Supporting Student Agitations
+Attention is invited to rule 23 of the Government Servants Conduct Rules, according to which a government servant shall not permit any person dependent on him or under his care or control, to take part in, or in any way assist any movement or activity which is, or tends directly or indirectly to be subversive of government as by law established in Pakistan. Under the same rule, a government servant shall be deemed to have permitted a person to take part in, or assisted a movement or activity, if he has not taken every possible precaution, and done everything in his power to prevent such person so acting. In view of this, the conduct of government servants who may, consciously or unconsciously, support the student agitators and have sympathies with them would attract the provision of rule 23** of the Government Servants Conduct Rules.
+2. It is, therefore, requested that the above rule may be brought to the notice of all government servants and it may also be emphasized that a breach of this rule will make them liable to proceeded against under the Government Servants (Efficiency and Discipline) Rules.
+[Authority.- Estt. Div.‘s O.M.No.4/23/62-D.II, dated 19-10-1962].
+12.2 Action to be Taken Against Government Servants
+Found Indulging in Politics/Subversive Activities
+Instructions have been issued from time to time bringing to the notice of the government servants, rules under which their participation and the activities of political organizations is prohibited. In the context of the present situation it is necessary to bring the provisions of the relevant law/rules to the notice of all government servants for their guidance.
+2. Action against the defaulting government servants can be taken under the following law/rules:—
+(i) The Pakistan Essential Services (Maintenance) Act, 1952.
+(ii) The Government Servants (Conduct) Rules, 1964.
+(iii) The @Government Servants (Efficiency and Discipline) Rules.
+(a) Pakistan Essential Services (Maintenance) Act, 1952.— If a
+ Now Ministry of Information and Broadcasting.  Rule 24 of the Govt. Servants (Conduct) Rules, 1964 .  Refers to Government Servants (Efficiency and Discipline) Rules, 1960. @ Now Civil Servants (Efficiency & Discipline) Rules,2020.
+Page - 792 ESTACODE (EDITION-2021) CHAPTER-8
+government servant, whose employment has been declared essential under rule 3 of the Pakistan Essential Services (Maintenance) Act, 1952, disobeys a lawful order or abandons work without reasonable excuse or departs from any area-specified in an order of a competent authority, he can be prosecuted under the Act and punished with imprisonment upto one year and with fine.
+(b) Government Servants (Conduct) Rules, 1964.— Rule 24 of the Government Servants (Conduct) Rules 1964 prohibits government servants from taking part in, subscribing in aid of, or assisting in any way any political movement in Pakistan, or relating to the affairs of Pakistan, government servants are thus debarred from joining any political party. A defaulting government servant may be proceeded against under the Government Servants (Conduct) Rules 1964 on the charge of misconduct.
+(c) Government Servants (Efficiency & Discipline) Rules.— A government servant can be proceeded against if he is guilty of misconduct or is found to be engaged in subversive activities independently or in association with others under rule 3 of the said rules. For subversive activities, the penalty can be compulsory retirement, removal or dismissal from service.
+[Authority.- Estt. Div.‘s O.M.No.3/I/69-D.II, dated 19-2-1969].
+12.3 Bar against Discussing Politics in Offices, Clubs, Restaurants and Public Places
+Attention is drawn to rule 24 of the Government Servants (Conduct) Rules, 1964 which prohibits government servants from taking part in politics and elections. The rule is reproduced below:-
+―Rule 24 Taking part in politics and elections:-
+―(1) No Government servant shall take part in, subscribe in aid of or assist in any way, any political movement in Pakistan or relating to the affairs of Pakistan.
+―(2) No Government servant shall permit any person dependent on him for maintenance or under his care or control to take part in, or in any way assist, any movement or activity which is, or tends directly or indirectly to be, subversive of Government as by law established in Pakistan.
+―(3) No Government servant shall canvass or otherwise interfere or use his influence in connection with or take part in any election to a legislative body, whether in Pakistan or elsewhere:
+Provided that a Government servant who is qualified to vote at such election may exercise his right to vote; but if he does so, he shall give no indication of the manner in which he proposes to vote or has voted.
+CHAPTER-8 ESTACODE (EDITION-2021) Page - 793
+―(4) No Government servant shall allow any member of his family dependent on him to indulge in any political activity, including forming a political association and being its member, or to act in a manner in which he himself is not permitted by sub-rule (3) to act. ―(5) A government servant who issues an address to electors or in any other manner publicly announces himself or allows himself to be publicly announced as a candidate or prospective candidate for election to a legislative body shall be deemed for the purpose of sub-rule (3) to take part in an election to such body. ―(6) The provisions of sub-rules (3) and (5) shall, so far as may be, apply to elections to local authorities or bodies, save in respect of Government servants required or permitted by or under any law, or order of the Government for the time being in force to be candidates at such elections. ―(7) If any question arises whether any movement or activity falls within the scope of this rule, the decision of the Government thereon shall be final‖.
+2. It is clarified that under sub-rule (7) of the above rule, the government servant is prohibited from discussing politics in offices, clubs, restaurants and other public places. Although a government servant is not debarred from voting at the elections, he cannot propagate his political views openly in a manner that might influence the opinions of others or indicate the trends of his own political thinking. He cannot also attend or participate in functions of political leaders, political rallies, processions etc. Nor can he develop associations which would get him involved directly or indirectly in a realm that is essentially political.
+3. It is requested that these instructions should be brought to the notice of the all government servants for strict compliance. The government servants should be warned that any breach of these instructions will be dealt with severely.
+[Authority.- Estt. Secretary‘s D.O. letter No. 5/2/70-DIV, dated 19-7-1973].
+13.1 Supply of Copies of Government Orders/ Instructions to the Employees Associations
+Copies of general orders of non-confidential nature, which embody decisions of the government affecting a particular class of employees, may, at the discretion of the authorities which accord recognition, be supplied to the recognized associations, through the Establishment Division.
+2. The matter has been examined in the Establishment Division. Now the government orders of non-confidential nature, relating to service matters, are available in the form of books. For instance, administrative or establishment instructions have been compiled in ―Establishment Manual‖, ―Estacode‖ etc., and financial orders in the ―Compilations‖ etc. These books or relevant instructions from those publications, can be had by the associations, individually. The orders which may not be available in those publications and may not be of confidential nature, can be obtained by the associations from the Ministry/Division concerned on formal or informal request.
+Subs. vide Estt. Div.‘s Notification No. SRO 993(1)/776, dated 30.9.1976.
+Page - 794 ESTACODE (EDITION-2021) CHAPTER-8
+3. The instructions regarding the supply of copies to the associations, as contained in the above-quoted and other orders, on the subject, are therefore, hereby withdrawn.
+4. Ministries/Divisions are requested to bring these orders to the notice of the office-bearers of the associations, who may be employed with them or with their Attached/Subordinate Organizations.
+[Authority.- Estt. Div.‘s O.M. No. 16/l/82-D.5, dated 20-6-1982].
+13.2 Continuation of Service Association Other
+Than Those of Services Regularly Constituted
+Associations of employees other than those belonging to the regularly constituted Services, may continue to function till further orders.
+[Authority.- Estt. Secretary‘s D.O. letter No.16/17/73-F.I, dated 30-1-1974].
+Sl.No.14
+Functioning of Service Associations
+Following decisions of the government were circulated to all Ministries/Offices of the Federal Government vide Establishment Division Office Memoranda of even number, dated the 7th May, 1974 and 11th June, 1974 , that:—
+(i) elections for the service associations may not be allowed to be held during office hours,
+(ii) victory celebrations in such elections may not be allowed within the office premises during the office hours, and
+(iii) meetings of service associations may not be held in the office premises during office hours.
+2. It has come to the notice of Establishment Division that these instructions are not being followed strictly. In certain cases, even the general body meetings of service associations were planned to be held in the office premises during office hours, in which the Federal Ministers had been invited to preside over the functions.
+3. The orders referred to in para 1 above were issued with a view to ensuring that the government work does not suffer due to association activities. Heads of Ministries/Offices of the Federal Government are once again requested kindly to ensure that service associations of the employees under their administrative control do not hold functions in the office premises during office hours.
+[Authority.- Estt. Div.‘s O.M. No.16/4/74-F.I, dated 1-4-1976].
+Add ―and Groups‖.
+CHAPTER-8 ESTACODE (EDITION-2021) Page - 795
+15.1 Permission to Representatives of Service Associations to Attend Various Meetings
+It is stated that representatives of service associations have informed that they are facing difficulties to attend the meetings during office hours convened by the Staff Welfare Organization.
+2. It has been decided with the approval of Establishment Secretary that the representatives of service associations may be permitted to attend meeting of Board of Trustees, Federal Employees Benevolent Fund and Group Insurance as and when held, during office hours, subject to production of notice from the organization.
+3. It is, therefore, requested that representatives of the service associations may kindly be allowed to attend the above meetings, which are officially arranged and the agenda of the meeting is also provided to the Ministries/Divisions. The timings should be invariably laid down in the orders of the meeting to ensure that the office bearers after the meeting report back for duties, within the reasonable time.
+[Authority.- Estt. Div.‘s O.M.No.16/3/87-D-3, dated 7-4-1987].
+15.2 Grant of Interview to the Office Bearers of the Association
+It is stated that Pakistan BS 1 & 2 Employees‘ Association have stated that the officers in the Ministries/Divisions do not give time for interview to discuss the problem of the employees. Ministries/ Divisions are requested that the request of office bearers of BS 1 & 2 Employees‘ Association for interview regarding their collective and genuine problems may be accepted.
+[Authority.- Estt. Div.‘s O.M.No.16/5/88-D.5, dated 20-3-1988].
+15.3 Bar Against Public Criticism of Government Action by Associations etc.
+Public criticism of the government action by a civil servant or a body of civil servants constitutes misconduct under the Government Servants (Conduct) Rules, 1964 and calls for disciplinary action.
+2. The associations of civil servants are not like the ordinary trade unions or bodies of workers employed in the industrial or commercial sector. Civil servants are allowed to form associations under a strict code which allows ventilation of their legitimate grievances only through the prescribed channel. The publicity to the press is not allowed.
+[Authority.- Estt. Div.‘s D.O. No.1471/PS/ES/76, dated 23-6-1967].
+15.4 Demands of Service Associations
+It has come to the notice of Establishment Division that un-recognized/ un-registered service associations are in existence with whom some of the Ministries/ Divisions
+Page - 796 ESTACODE (EDITION-2021) CHAPTER-8
+etc. are having discussions. It is hereby advised that the issues raised registered/ recognized associations may only be considered to ensure elimination of un-registered/un-recognized associations.
+[Authority.- Estt. Div.‘s O.M. No.16/19/88-D.II, dated 07-11-2006].
+16.1 Channel of Communication Between Recognized Service Associations and Government
+According to the rules governing recognition of associations of civil servants, the recognized associations are required to submit their representations to government through the office specifically designated for the purpose. The recognition of an association which disregards the rules and adopts other methods of representation is apt to be withdrawn.
+2. Instances have come to the notice of Establishment Division where recognized associations have addressed their representations to authorities, other than those to whom such representations should have been addressed and have circulated copies of the representations to various authorities. This is a violation of the condition of recognition of associations.
+3. In so far as associations recognized by the Establishment Division are concerned, Deputy Secretary, Establishment Division was designated as the officer to whom representations should be addressed. Other Ministries and Divisions were requested to similarly designate their officers for the purpose. The matter has been further examined and it has been decided that more senior officers should be designated for the purpose which should not be lower than Joint Secretary in the case of Ministries/Divisions and the Head of Department, or his Deputy, in the case of Attached and Subordinate Offices.
+4. The Ministries/Divisions are requested to designate appropriate officers for the purpose of receiving representations and to notify the same to the associations whose recognition is still valid in terms of Establishment Division D.O. letter No. 16/17/73-F.I., dated the 30th January, 1974. The Establishment Division may please be informed of such associations and the officers designated to receive representations from the associations.
+5. While communicating the designation etc. of the revised designated officers, the association should be warned that in case representations are addressed by the associations to the officer/authority other than the officer designated for the purpose, its recognition is apt to be withdrawn by government.
+[Authority.— Estt. Div.‘s O.M.No.1814/75-F.II, dated 28-3-1977].
+CHAPTER-8 ESTACODE (EDITION-2021) Page - 797
+16.2 Approaching Foreign Missions and Aid-Giving
+Agencies by Officers to Secure Invitation to
+Visit a Foreign Country or to Elicit Offers of Training Facilities
+It has come to Cabinet‘s notice that certain officers of the Central or Provincial Governments have approached foreign governments or their representatives in Pakistan for the grant to them of scholarships, fellowships or other facilities to visit foreign countries, etc., and have finalized the arrangements without obtaining prior approval or have taken these negotiations and arrangements to a stage where refusal by the Government of Pakistan to grant the necessary permission to the officer concerned would embarrass the government as well as the officer. In order to prevent a repetition of such cases, it is considered necessary that no officer should make such approaches in future without the prior approval of the government under which he is employed or make any commitment, whatsoever, without obtaining the prior permission of government.
+[Authority.- Cabinet Division‘s D.O. letter No. 54(38)-53-Cord, dated 25 and 26-8-1953].
+17.1 Correspondence with Foreign Missions
+Instances have come to notice in which foreign missions have offered scholarships/ fellowships to officers employed under the Government of Pakistan and the Provincial Governments direct for purposes of their training abroad. Such offers were accepted by officers and Ministries/Governments when approached subsequently, concurred in the arrangements.
+2. As the Ministry of Finance, etc., are aware, the channel of communication between the *Central and Provincial Governments and the foreign missions in Pakistan is the Ministry of Foreign Affairs except in such cases where certain Ministries/Departments have been allowed to correspond direct with foreign missions on purely routine or technical matters not involving any question of policy. The Economic Affairs Division have been authorized by the Ministry of Foreign Affairs to carry on correspondence direct with the foreign missions in matters relating to the technical assistance schemes. All Ministries/Divisions are, therefore, requested to route their correspondence with foreign missions on this subject through that Division.
+3. In view of the above, the Ministry of Finance, etc., are requested to issue instructions that no officer working under them should correspond with foreign missions in Pakistan direct and that no offer of fellowship/scholarship received from any foreign mission or any foreign government otherwise than through the Economic Affairs Division should be accepted by them nor should any Ministry concur in the acceptance of such an offer except with the concurrence of the Economic Affairs Division.
+[Authority.- Estt. Div.‘s O.M. No. 1/17/53-SE.II, dated 9-10-1953].
+ Federal.
+Page - 798 ESTACODE (EDITION-2021) CHAPTER-8
+17.2 Bar Against Security Scholarships and Invitation to Visit Abroad
+1. …………….Omitted………………..
+2. Under the existing detailed instructions, all Secretaries to the Federal Government and Chief Secretaries of Provincial Governments are required to ensure that under no circumstances should any scholarships or invitations for visits abroad be accepted from foreign missions/governments when these are offered directly to individuals. Any direct offer is required to be politely declined with the suggestion that the offer be made through the Foreign Office. In the event of direct invitation/offer being received by any individual or official from a foreign government through the post, it has to be transmitted to the Ministry of Foreign Affairs for processing.
+3. These procedures have been laid down in accordance with the well-established international rules in diplomatic theory and practice governing the conduct of a sending state and its representatives in a receiving state. Extension of invitations by a sending state to the citizens of the receiving state and their acceptance by the latter fall within the purview of Article 41 (para 2) of the Vienna Convention, as follows:—
+―All official business with the receiving state entrusted to the Mission by the sending state shall be conducted with or through the Ministry of Foreign Affairs of the receiving state or such other Ministry as may be agreed.‖
+4. It is noted with regret, however, that contrary to the laid-down instructions, there have been several instances where direct invitations were extended by certain foreign governments/missions to Pakistan nationals to visit their countries or to participate in conferences and seminars there. Certain foreign missions in Pakistan have also been seeking to establish direct contacts with various local bodies, institutions and opposition elements.
+5. Pursuant to a recent decision taken by the Federal Cabinet, it is reiterated once again that the laid-down procedure for contacts with foreign diplomatic missions, acceptance of invitations, gifts and scholarships etc., from foreign governments should be strictly enforced without any exception. In the case of private individuals and politicians receiving direct invitations, the State Bank of Pakistan and other agencies concerned should adopt effective measures to stop their departure from the country on un-authorizedly-sponsored visits abroad. The system of prior clearance from the Interior Division and the Ministry of Foreign Affairs should be strictly followed in such cases.
+[Authority.— Paras 2-5 of Estt. Secretary‘s D.O. letter No.104/30/76-Min, dated 23-6-1976].
+18.1 Fraternisation Between Government Servants and the Foreign Missions in Pakistan
+Instructions have been issued, from time to time, explaining the parameters within which a government servant could cultivate contacts with the personnel of the foreign missions in the country. It has, however, come to the notice of the government that despite clear orders there exists a tendency amongst government officials to approach the foreign
+CHAPTER-8 ESTACODE (EDITION-2021) Page - 799
+missions, directly or indirectly, for personal favours as well as consular facilities. Such acts, obviously are a clear violation of rule 30 of the Government Servants (Conduct) Rules, 1964 and instructions issued thereunder.
+2. The government has taken a serious view of the above tendency amongst government servants and it has, therefore, become imperative to circulate the government instructions on the subject once again for strict compliance by the government servants:—
+(1) Government servants should exercise great caution and restraint in the matter of social contacts with the members of foreign mission in Pakistan and, inter-alia, abstain from extending invitations to them for private lunches/dinners at their residence etc.
+(2) Officials of the level of Deputy Secretary and below should not receive the officials of the foreign missions, except with the express permission of the Secretary.
+(3) Government servants are also prohibited from contacting, or making direct approaches, to the foreign missions in Pakistan, in connection with their private business. All such approaches should be made through proper channel (i.e. the Ministry of Foreign Affairs).
+(4) Invitations extended by the foreign missions on the occasions of their national days to the officers below the status of Joint Secretaries, may be accepted only after obtaining permission from the Secretary.
+(5) The participation of officers below the status of Joint Secretary in the private functions, arranged by the foreign diplomats, should generally be discouraged. Joint Secretaries and officers of equivalent status will, however, do so with the prior approval of the Secretary.
+(6) Repeated and frequent attendance, by the officers, at private functions held by the same foreign diplomat, must be avoided.
+(7) As a general rules, only those officers who come into official contact with the foreign diplomat concerned, should accept his invitation.
+3. Compliance of the above instructions may be ensured, at all levels, so that no one approaches, directly or indirectly, any foreign missions in Pakistan or any foreign aid-giving agency, for favours and any violation of the rules, as well as the instructions issued on the subject from time to time, will be dealt with severely under the conduct and discipline rules.
+[Authority.- Estt. Div.‘s D.O. letter No.6/17/72-DA/D-IV, dated 14-4-1990].
+18.2 Indulging in Critical Remarks Against Ministers
+All government servants should be warned that they should not indulge in critical remarks against their own Ministers or other Ministers. This is against discipline or good conduct, and should be dealt with as such.
+[Authority. - Estt. Secretary‘s D.O. letter No.4/20/61-D.II, dated 23-9-1961].
+Page - 800 ESTACODE (EDITION-2021) CHAPTER-8
+19.1 Government Servants (Marriage with Foreign Nationals) Rules, 1962
+In exercise of the powers conferred by clause (2) of Article 178 of the Constitution, the President is pleased to make the following rules, namely:-
+1. Short title, application and commencement.— (1) These rules may be called the Government Servants (Marriage with Foreign Nationals) Rules, 1962.
+(2) They shall apply to every person who is a member of an All-Pakistan Service or who is serving in a civil capacity in connection with the affairs of the Central* Government, but shall not apply to any person who is employed on contract.
+(3) They shall come into force at once.
+2. Definitions.— In these rules, unless there is anything repugnant in the subject or context:-
+(a) ―foreign national‖ means a person who is not a citizen of Pakistan;
+(b) ―government servant‖ means a person in the service of Pakistan to whom these rules apply whether such person is, for the time being, on ‗foreign service‘** or not;
+(c) ―marriage‖ means matrimonial relationship entered into in accordance with any law for the time being in force or any religious rites or ceremonies, and its grammatical variations and cognate expressions shall be construed accordingly;
+(d) ―misconduct‖ has the same meaning as in the Government Servants (Efficiency and Discipline) Rules, 1960.
+―3. Marriage with Foreign nationals prohibited.-(1) Subject to the provisions of sub-rule (2), a government servant who marries or promises to marry a foreign national shall be guilty of misconduct and render himself liable to any of the major penalties under the ***Government Servants (Efficiency and Discipline) Rules, 1973.
+(2) A government servant, may with the prior permission of the @Establishment Division marry or promise to marry a @@[foreign national of any country recognized by Federal Government].
+* Federal. ** deputation.  Now Civil Servants (Efficiency & Discipline) Rules, 2020. @Subs. vide Establishment Division‘s S.R.O No. 999(I)/2019 dated 05-09-2019. @@ Subs. vide Estt. Div.‘s Notification No. S.R.O 1083(I)/2010 dated 12-11-2010.
+CHAPTER-8 ESTACODE (EDITION-2021) Page - 801
+(3) The grant of permission under sub-rule (2) shall be at the discretion of the Establishment Division, and may be subject to such conditions, if any, as it may specify.‖
+4. Supersession of previous rules, notifications, etc.-These rules shall supersede all previous rules, notifications and instructions relating to the conditions of marriage of a government servant.
+[Authority.- Estt. Division‘s Notification No. S.R.O. 341 (K)/63 (4)/103/5, dated 29-4-1963 as amended upto 13-9-1965].
+Note.— Officials who propose to marry Indian nationals should submit applications on the form prescribed vide Establishment Division O.M.No. 4/103/59-D-II, dated the 11th June, 1963.
+Subs. vide Establishment Division‘s S.R.O No. 999(I)/2019 dated 05-09-2019.
+Page - 802 ESTACODE (EDITION-2021) CHAPTER-8
+NEW PROFORMA FOR MARRIAGE WITH A FOREIGN NATIONAL
+Name of Ministry/Division/Department:_____________________
+1. Name, Designation and Department in which the official is employed:
+2. Particulars of the lady whom the applicant wishes to marry:
+(a) Name:
+(b) Father‘s Name:
+(c) Age:
+(d) Qualification:
+(e) Profession:
+(f) Full Address:
+3. Political affiliation of the lady and her family, if any.
+4. Family commitments and relationship, if any.
+5. Whether the lady would come to Pakistan to marry, or the official proposes to go to ________________________?
+6. If the official wishes to go to *_________________ why cannot the lady come over to Pakistan to get married?
+7. Whether the lady has visited Pakistan previously and if so, on what date and for what purpose? With whom and where did she stay.
+8. Near relations of the lady in *___________________ if employed, where and in what status.
+9. Relations of the lady in Pakistan with address and profession.
+10. Work on which the official is engaged at present stating the nature of work secret or ordinary.
+11. Work on which the official has been engaged during the last two years stating the nature of work secret or ordinary.
+12. (a) Number of visits made to*____________ by the applicant with approximate date and purpose of visit in each cases.
+(b) Where and with whom did he stay in *____________
+(c) Passport number with date and place of issue.
+13. Place visited in *____________________________
+14. Proof, if any, in support of the statement made at Serial No.4.
+15. Present Pakistani address of the Government Servant
+Date: Signature________________
+Designation______________
+Certificate to be recorded by Secretary/Joint Secretary/Incharge/Deputy Secretary/Head of the Department.
+CHAPTER-8 ESTACODE (EDITION-2021) Page - 803
+It is certified that the information given above represents true position in respect of ____________________________ according to his own statement. Information relating to items No.10, 11 and12 has been verified from the official record.
+Place: Signature of the recommending officer
+Date Designation___________________
+“Note: *____________ stand for name of the foreign Country.”
+19.2 Marriage or Promise of Marriage with Foreign Nationals (Except Indian) to be Considered ‗Misconduct‘
+Attention is invited to the Government Servants (Marriage with Foreign Nationals) Rules, 1962, whereunder marriage or promise of marriage with foreign nationals, except those of India, by any government servant is not permitted and contravention of these rules is considered as misconduct rendering the government servants found guilty, liable to be removed from service. Marriage or promise thereof with the citizens of India is possible only with prior permission of the government.
+2. It has come to notice that in some cases, the government servants concerned were not fully aware of these rules. Ministries/Divisions are, therefore, requested to draw attention of their officers to the provisions of these rules and advise their strict observance. The attention of all those who enter service in future may also be specifically drawn to these rules at the time of assumption of duties.
+3. There is also need for forewarning the officers particularly the young at the time of their going abroad. The officers on such occasions may be granted interviews by Secretaries or heads of departments under whom they work in which the risk involved in violating the marriage rules may be explained.
+[Authority.- Estt. Div.‘s O.M. No. 3/13/68-D.II, dated 14-6-1968].
+19.3 Observance of Government Servants (Marriage
+with Foreign Nationals) Rules, 1962 and Guidelines
+The competent authority in the Chief Executive Secretariat has directed that all government servants be directed to:—
+(i) scrupulously observe the requirements of the Government Servants (Marriage with Foreign Nationals) Rules, 1962 and policy guidelines issued from time to time; and
+(ii) abstain from applying for or acquiring green cards/foreign nationality etc. in contravention of the conduct and discipline laws/rules etc.
+[Authority: Estt. Div.‘s Circular No. 2/7/81-D4/D3, dated 15th June, 2000]
+Now Prime Minister‘s Office.
+Page - 804 ESTACODE (EDITION-2021) CHAPTER-8
+19.4 Bar Against Making Requests for ‗Ex-Post Facto‘ Approval for Marriages with Foreign Nationals
+Lately, there has been an increase in requests of ex-post facto approval for marriages with foreign nationals in relaxation of the above rules. Invariably, the excuse for having contracted such marriages by the government servants is ignorance of the rules.
+2. The competent authority has taken serious notice of this tendency and has been pleased to direct that all Ministries/ Divisions/ Departments be asked to disseminate the rule position to government servants for strict compliance. The competent authority has further directed that in future no more ex-post facto permission will be granted in such cases.
+[Authority.- Estt. Div.‘s O.M. No.2/7/81-D.IV/D.3, dated 26-9-1988].
+19.5 Prohibition of Wasteful Expenditure on Marriages
+The Cabinet in its meeting held on 11.2.1997, has, inter alia, decided that the government functionaries henceforth should not attend any such marriage functions which violate the provisions of the Marriages (Prohibition of Wasteful Expenses) Act, 1997 and use discretion in attending marriage functions other than those of close family and personal friends.
+[Authority.- Estt. Division‘s letter No.2/3/97-D.3, dated 18-6-1997].
+CHAPTER-8 ESTACODE (EDITION-2021) Page - 805
+II. EFFICIENCY AND DISCIPLINE
+20.1 Civil Servants (Efficiency and Discipline) Rules, 2020
+In exercise of the powers conferred by sub-section (1) of section 25(1) of the Civil Servants Act,1973 (LXXI of 1973), read with Notification No. S.R.O No. 120(I)/1998, dated the 27th day of February 1998, the Prime Minister is pleased to make the following rules, namely:—
+1. Short title, commencement and application.— (1) These rules shall be called the Civil Servants (Efficiency and Discipline) Rules,2020.
+(2) These shall come into force at once and shall apply to every Civil Servant.
+2. Definitions.—(1) In these rules, unless there is anything repugnant in the subject or context requires otherwise,—
+(a) ―Act‖ means Civil Servants Act,1973 (Act No. LLXI of 1973);
+(b) ―accused‖ means a civil servant against whom action is initiated under these rules;
+(c) ―authority‖ means the appointing authority as prescribed in rule 6 of the Civil Servants (Appointment, Promotion and Transfer) Rules,1973:
+Provided that where proceedings under these rules are to be initiated against two or more civil servants jointly, the authority in relation to senior most civil servant in rank shall be the authority in respect of all the accused:
+Provided further that in all such cases where the President or the Prime Minister is the authority, all functions of the authority under these rules, except approval of initiating the disciplinary proceedings, appointment of a hearing officer and final decision on the report of inquiry officer or the inquiry committee, shall be performed by the respective cadre administrator.
+(d) ―appellate authority‖ means the appellate authority as defined in the Civil Servants (Appeal) Rules,1977;
+(e) ―charges‖ means allegations framed against the accused relating to the acts of omission or commission cognizable under these rules;
+(f) ―Government‖ means the Federal Government, Provincial Governments, Government of Azad Jammu and Kashmir or Government of Gilgit-Baltistan, as the case may be.
+(g) ―hearing officer‖ means an officer, as far as possible senior in rank to the accused, appointed by the authority to afford an opportunity of personal hearing to the accused on behalf of the authority concerned;
+Page - 806 ESTACODE (EDITION-2021) CHAPTER-8
+(h) ―inefficiency‖ in relation to the discharge of duties of a civil servant means the failure to efficiently perform functions assigned to him;
+(i) ―inquiry committee‖ means a committee consisting of two or more officers, headed by a convener, as may be appointed by the authority to inquire into charges of the accused under these rules;
+(j) ―inquiry officer‖ means an officer appointed by the authority to inquire into charges of the accused under these rules;
+(k) ―misconduct‖ means conduct prejudicial to good order or service discipline or contrary to Government Servants (Conduct) Rules,1964 or unbecoming of an officer and, a gentlemen and includes any act on the part of a civil servant to assert or attempt to assert political or other exterior influence directly or indirectly to bear on the Government or any Government officer in respect of any matter relating to the appointment, promotion, transfer, punishment, retirement or other conditions of service of a civil servant, or having entered into plea bargain under any law for the time being in force and has returned the assets or gains acquired through corruption or corrupt practices, voluntarily;
+(l) ―penalty‖ means a penalty as prescribed under these rules.
+(2) Words and expressions used but not defined herein shall have the same meanings as are assigned thereto in the Civil Servants Act,1973 (LXXI of 1973) and rules made thereunder or any other legal instrument, statutory order for the time being in force.
+3. Grounds for proceedings and penalty.— A civil servant shall be liable to be proceeded under these rules by the authority, if he is—
+(a) considered or reported to be inefficient or has ceased to be efficient; or
+(b) considered or reported to be guilty of misconduct; or
+(c) considered or reported to be corrupt because—
+(i) he or any of his dependents or any other person through him or on his behalf is in possession (for which he cannot reasonably account) of pecuniary resources or of property disproportionate to his known source of income; or
+(ii) he has assumed a style of living beyond his ostensible means;
+(d) engaged, or is reasonably suspected of being engaged, in subversive activities or is reasonably suspected of being associated with other engaged in subversive activities or is guilty of disclosure of official secrets to any un-authorized person.
+4. Penalties.—(1) The authority may, by an order, in writing showing reasons, impose one or more of the penalties, in accordance with these rules.
+(2) The following shall be various minor penalties, namely:—
+CHAPTER-8 ESTACODE (EDITION-2021) Page - 807
+(a) censure;
+(b) withholding of increment or increments for a specific period, subject to a maximum of three years without cumulative effect:
+Provided that the penalty of withholding of increment shall not be imposed upon a civil servant who has reached the maximum of his pay scale or will superannuate within the period of penalty;
+(c) reduction to a lower stage or stages, in pay scale, for a specific period, subject to a maximum of three stages without cumulative effect; and
+(d) withholding of promotion for a specific period, subject to a maximum of three years, otherwise than for unfitness for promotion in accordance with the rules or orders pertaining to the service or post:
+Provided that this period shall be counted from the date when a person junior to the accused is considered for promotion on regular basis for the first time:
+Provided further that penalty under this clause shall not be imposed upon a civil servant who has no further prospects of promotion or will superannuate during the period of the said penalty.
+(3) The following shall be various major penalties, namely:—
+(a) recovery of embezzled money from civil servants convicted of embezzlement, recovery as provided under financial rules, from pay or any other amount payable to the accused, the whole or a part of any pecuniary loss caused to the Government or the organization in which he was employed or posted. If the amount due from any such civil servant cannot be wholly recovered from the pay or any other amount payable to him, such amount shall be recovered under the law for the time being in force;
+(b) reduction to a lower post and pay scale from the substantive or regular post, for a specific period, subject to a maximum of three years:
+Provided that this penalty shall not be imposed upon the accused who is likely to be superannuated within the period of the penalty;
+(c) compulsory retirement;
+(d) removal from service; and
+(e) dismissal from service
+(4) The penalty of removal from service shall not but dismissal from service, under these rules, shall disqualify the civil servant for future employment of any kind under the Government.
+Page - 808 ESTACODE (EDITION-2021) CHAPTER-8
+(5) Subject to any restraining order, passed by any court of competent jurisdiction, any proceedings under these rules shall not be discontinued merely on the grounds of the matter being sub-judice:
+Provided that where the holding of departmental inquiry during judicial custody is not possible or side by side with the criminal proceedings may have the effect of impeding the course of justice or of prejudicing the trial, the inquiry may be deferred by the authority till release on bail or termination of criminal proceedings as the case may be.
+3. Suspension and leave.— (1) The authority may place any civil servant under suspension or send him on leave, against whom proceedings are proposed to be initiated for an initial period not exceeding one hundred and twenty days at one time extendable in writing, by the authority for such period as it may deem appropriate or till conclusion of the proceedings, if in the opinion of the authority, suspension or sending civil servant on leave is necessary or expedient. If the period of suspension is not extended before the expiry of initial period of suspension, the suspension of such civil servant shall cease to have effect:
+Provided that a civil servant who has been charged for a criminal offence and is committed to prison shall be considered as under suspension from the date of his arrest without the formal approval of Authority. In case such a civil servant is not arrested or is released on bail the Authority may suspend him by specific order.
+(2) During suspension period the civil servant shall be entitled to his pay, allowance and other benefits in accordance with Fundamental Rule-53.
+(3) If a civil servant is sent on leave in pursuance of an order under sub rule(1), such period shall be treated as on duty.
+(4) In case a civil servant is absent from official duty during the proceedings, such period shall be treated as extra ordinary leave without pay.
+6. Initiation of proceedings.— Proceedings against the civil servant, in case where the authority decides that it is not necessary to hold an inquiry, shall be initiated from the date the accused is informed by an order in writing of the grounds of proceedings against him and where the authority decides to hold an inquiry against the accused, from the date of such order.
+7. Procedure where inquiry is dispensed with.— If the authority decides that it is not necessary to hold an inquiry against the accused, it shall
+(a) inform the accused, by an order in writing, of the grounds for proceedings against him, clearly specifying the charges therein, alongwith apportion-ment of responsibility and penalty or penalties proposed to be imposed upon him;
+(b) give him a reasonable opportunity of showing cause against the proposed action, which should not be less than ten days and more than fourteen
+CHAPTER-8 ESTACODE (EDITION-2021) Page - 809
+days, from the receipt of the order or within such extended period, as the authority may allow;
+(c) on receipt of reply of the accused, within the stipulated period or after the expiry thereof, if no reply is received, on the basis of available record or facts of the case, as the case may be, determine whether the charge or charges have been proved against the accused or not:
+Provided that after receipt of reply to the show cause notice from the accused or in case where no reply is received the authority shall, except in such cases where the President or the Prime Minister is the authority, decide the case within a period of thirty days;
+(d) afford an opportunity of personal hearing, before passing any order of penalty under clause (f), if the charge or charges have been proved against him;
+(e) exonerate the accused, by an order in writing, if the charge or charges have not been proved against him; and
+(f) impose any one or more penalties, mentioned in rule 4, by an order in writing, if the charge or charges have been proved against the accused.
+8. Provision of record.— After initiation of order of inquiry the authority shall ensure that relevant record of the case and other related documents should be supplied to the inquiry officer or the inquiry committee, as the case may be, within seven days or within such an extended period which the authority may allow.
+9. Procedure to be followed by authority where inquiry is necessary.— (1) If the authority decides that it is necessary to hold an inquiry against the accused, it shall pass an order of inquiry, in writing. An inquiry order shall include—
+(a) subject to sub-rule (2) the appointment of an inquiry officer or inquiry committee, provided that the inquiry officer or the convener of the inquiry committee, as the case may, shall as far as possible, be of a rank senior to the accused and where two or more accused are proceeded against jointly, the inquiry officer or the convener of the inquiry committee shall, as far as possible, be of a rank senior to the senior most accused;
+(b) the grounds for proceedings, clearly specifying the charges alongwith apportionment of responsibility which shall be communicated to accused within fourteen days, from the date of initiation of proceedings;
+(c) appointment of the departmental representative by designation; and
+(d) direction to the accused to submit his written defense to the inquiry officers or convener of the inquiry committee, as the case may be, within reasonable time which shall not be less than ten and more than fourteen days from the date of receipt of order under clause (b) or within such an extended period as the authority may allow.
+(2) In cases where more than one civil servants are accused in one case, a single inquiry officer or an inquiry committee shall be appointed and the inquiry officer or
+Page - 810 ESTACODE (EDITION-2021) CHAPTER-8
+convener of the inquiry committee so appointed shall, as far as possible, be of a rank senior to the senior most civil servant accused in the particular case.
+(3) The record of the case and the list of witnesses, if any, shall be communicated to the inquiry officer or the inquiry committee, as the case may be, alongwith the orders of inquiry.
+(4) In case where the inquiry officer or any of the members of the inquiry committee is required to be replaced for one reason or the other, the authority shall appoint another inquiry officer or the inquiry committee, as the case may be.
+10. Procedure to be followed by inquiry officer or inquiry committee.— (1) On receipt of reply of the accused or on expiry of the stipulated period, if no reply is received from the accused, the inquiry officer or the inquiry committee, as the case may be, shall inquire into the charge or charges or in defense of the accused, as may be considered necessary and where any witness is produced by one party, the other party shall be entitled to cross-examine such witness.
+(2) If the accused fails to furnish his reply within the stipulated period, the inquiry officer or the inquiry committee, as the case may be, shall proceed with the inquiry ex-parte.
+(3) The inquiry officer or the inquiry committee, as the case may be shall hear the case on day to day basis and no adjournment shall be given except for reasons to be recorded, in which case the adjournment shall not be of more than seven days.
+(4) Statements of witnesses shall be recorded in the presence of accused and departmental representative.
+(5) Where the inquiry officer or the inquiry committee, as the case may be, is satisfied that the accused is hampering or attempting to hamper the progress of the inquiry, he or it shall administer a warning and if thereafter he or it is satisfied that the accused is acting is disregard to the warning, he or it shall record a finding to that effect and proceed to complete the inquiry in such a manner as may be deemed expedient in the interest of justice.
+(6) If the accused absents himself from the inquiry on medical grounds, he shall be deemed to have hampered or attempted to hamper the progress of the inquiry, unless medical leave, applied for by him, is sanctioned by the authority on the recommendations of a registered authorized medical officer.
+(7) The inquiry officer or the inquiry committee, as the case may be, shall complete the inquiry within sixty days or within such an extended period which the authority may allow on the request of inquiry officer or Inquiry Committee, as the case may be, for reasons to be recorded and shall submit his or its report to the authority within seven days of the date of completion of inquiry. The inquiry report must contain clear findings as to whether the charge or charges have been proved or not proved and specific
+CHAPTER-8 ESTACODE (EDITION-2021) Page - 811
+recommendations regarding exoneration or imposition of minor or major penalty or penalties upon the accused:
+Provided that the inquiry shall not be vitiated merely on the grounds of non-observance of the time schedule for completion of the inquiry.
+11. Revision.— (1) Subject to sub-rule (2), the authority may call for the record of any case pending before the inquiry officer or inquiry committee, as the case may be, and pass such order in relation thereto as it may deem fit.
+(2) No order under sub-rule (1) shall be passed in respect of an accused unless the authority has informed him in writing of the grounds on which it is proposed to make the order and has been given an opportunity of showing cause against it, including an opportunity of personal hearing if requested by the accused or is otherwise necessary in the interest of justice, in particular, when the authority contemplates to pass an order adverse to the interest of the accused:
+Provided that no such opportunity shall be given where the authority, for reasons to be recorded, is satisfied that, in the interest of security of Pakistan or any part thereof, it is not expedient to give such an opportunity.
+(3) In case, the authority decides to call for a case pending before an inquiry officer or inquiry committee or pending before or disposed of by the authorized officer in terms of the Government Servants (Efficiency and Discipline) Rules, 1973, the authority may do so in exercise of powers conferred under rule 6A of the said rules:
+Provided that this power shall in no case be exercised after one year of disposal of such a case by the Authorized Officer.
+12. Powers of the inquiry officer or inquiry committee.— (1) For the purpose of an inquiry under these rules, the inquiry officer or the inquiry committee, as the case may be, shall have the powers of a civil court trying a suit under the Code of Civil Procedure, 1908 (Act No. V of 1908), in respect of the following matters, namely:—
+(a) summoning and enforcing the attendance of any person and examining him on oath;
+(b) requiring the discovery and production of documents and receiving evidence on affidavits; and
+(c) issuing commissions for the examination of witnesses or documents.
+(2) The proceedings under these rules shall be deemed to be judicial proceedings within the meaning of section 193 and 228 of the Pakistan Penal Code, 1860 (Act No. XLV of 1860).
+13. Rules 7 and 9 not to apply in certain cases.— Nothing in rule 7 or 9 shall apply to a case—
+Page - 812 ESTACODE (EDITION-2021) CHAPTER-8
+(a) where the accused is dismissed or removed from service, on the ground of conduct which has led to a sentence of fine or of imprisonment; or
+(b) where the authority competent to dismiss or remove a person from service, or to reduce a person in lower post and pay scale, is satisfied that, for reasons to be recorded in writing by that authority, it is not reasonably practicable to give the accused an opportunity of showing cause.
+14. Proceedings before or during training, scholarship and leave.—(1) In case where a civil servant who has been nominated for training or scholarship, is required to be proceeded against and he has not yet joined the training institute or institution, his nomination shall be withdrawn forthwith by the nominating authority under intimation to the training institute or institution concerned.
+(2) In case where a civil servant has already joined the training or institution he shall be allowed to complete his training or scholarship, and the proceedings against him may be deferred till completion of the training or scholarship.
+(3) No civil servant shall be denied training on account of ongoing proceedings for a period of more than one year.
+(4) In case where a civil servant on leave, is required to be proceeded against, his leave shall be cancelled by the authority and shall be called back from the leave to join the proceedings.
+15. Duties of the departmental representatives.— The departmental representative shall perform the following duties, namely:—
+(a) render full assistance to the inquiry officer or the inquiry committee, as the case may be, during the proceedings where he shall be personally present and fully prepared with all the relevant record relating to the case, on each date of hearing.
+(b) Cross-examine the witnesses produced by the accused and with the permission of the inquiry officer or the inquiry committee, as the case may be, may also cross-examine the prosecution witnesses; and
+(c) rebut the grounds of defense offered by the accused before the inquiry officer or the inquiry committee, as the case may be.
+(2) In case of failure to perform the assigned duties, the departmental representative shall be liable to departmental proceedings.
+16. Order to be passed on receipt of report from the inquiry officer or inquiry committee.— (1) On receipt of report from the inquiry officer or the inquiry committee, as the case may be, the authority shall examine the report and the relevant case material and determine whether the inquiry has been conducted in accordance with the provisions of these rules.
+CHAPTER-8 ESTACODE (EDITION-2021) Page - 813
+(2) If the authority is satisfied under sub-rule (1) that the inquiry has been conducted in accordance with the provisions of these rules, it shall further determine whether the charge or charges have been proved against the accused or not.
+(3) Where the authority is satisfied under sub-rule (2) that the inquiry proceedings have not been conducted in accordance with the provisions of these rules or the facts and merits of the case have been ignored or there are other sufficient grounds, it may, after recording reasons, either remand the inquiry to the inquiry officer or the inquiry committee, as the case may be, with such directions as the authority may like to give, or may order a de novo inquiry through different inquiry officer or inquiry committee.
+(4) The authority may in such case specified under sub-rule (3) also require the inquiry officer or the inquiry committee, as the case may be, to explain as to why the inquiry has not been conducted in accordance with these rules, or as to why the facts or merits of the case have been ignored and on the receipt of reply, may determine that the omission or commission by the inquiry officer or the inquiry committee, as the case may be, was not in good faith and there are grounds to proceed against the inquiry officer or inquiry committee, as the case may be, under these rules.
+(5) Where the charge or charges are determined not to have been proved, the authority shall exonerate the accused by an order in writing.
+(6) Where the charge or charges are determined to have been proved against the accused, the authority shall issue a show cause notice to the accused providing him therewith a copy of inquiry report by which it shall—
+(a) inform him of the charge or charges proved against him and the penalty or penalties proposed to be imposed upon him;
+(b) give him reasonable opportunity of showing cause against the penalty or penalties proposed to be imposed upon him and to submit as to why one or more of the penalties as provided in rule 4 including the penalty of dismissal from service may not be imposed upon him and to submit additional defence in writing, if any, within a period which shall not be less than ten days and more than fourteen days from the day the charge or charges have been communicated to him by affording him an opportunity of personal hearing:
+Provided that the accused shall in his reply to show cause notice, indicate as to whether he wants to be heard in person or not; and
+(c) direct the departmental representative to appear with all the relevant record on the date of personal hearing, if any.
+(7) After duly considering the reply of the accused to the show cause notice and affording personal hearing to the accused, as appropriate, the authority shall, keeping in view the findings and recommendations of the inquiry officer or the inquiry committee, as the case may be, facts of the case and defence offered by the accused if requested, by an order in writing—
+Page - 814 ESTACODE (EDITION-2021) CHAPTER-8
+(a) exonerate the accused if charge or charges are not proved; or
+(b) impose any one or more of the penalties specified in rule 4 if charges are proved:
+Provided that:—
+(i) where charge or charges of grave corruption are proved against an accused the penalty of dismissal from service shall be imposed, in addition to the penalty of recovery, if any; and
+(ii) where charge of absence from duty for a period of more than one year is proved against the accused, the penalty of compulsory retirement or removal or dismissal from service shall be imposed upon the accused.
+(8) After receipt of reply to the show cause notice and affording opportunity of personal hearing, the authority, except where the Prime Minister himself is the authority, shall decide the case within a period of thirty days, excluding the time during which the post held by the authority remained vacant due to certain reasons.
+17. Personal hearing.— Notwithstanding the proviso to clause (b) of sub-rule (6) of rule 16, the authority may, by an order in writing, call the accused and the departmental representative, alongwith relevant record of the case, to appear before him, or before a hearing officer, who shall as far as possible be senior in rank to the accused, appointed by the authority for personal hearing on the fixed date and time.
+18. Procedure of inquiry against civil servant on deputation or working in other Governments or organizations etc.— (1) Where an authority determines to proceed against a civil servant who is on deputation to any other Government, department, corporation, body corporate, autonomous or semi-autonomous body, statutory body or any other organization or institution, hereinafter referred to as the borrowing organization, the authority of such civil servant in his parent department may—
+(a) ask the relevant Government or borrowing organization, to frame charges against the civil servant and forward the same his parent department; or (b) initiate proceedings against him on its own under these rules.
+(2) In case of members of All Pakistan Service posted in a Province, Establishment Division may refer a case to the Chief Secretary concerned fro probe or fact finding inquiry and may initiate proceedings on the findings of that probe or fact finding inquiry, or on its own if no findings are received within two months:
+Provided that in case of proceedings against any Chief Secretary of a Province, the Establishment Division shall frame the charges and initiate the disciplinary proceedings with approval of the Prime Minister.
+19. Appeal. — A civil servant on whom a penalty is imposed shall have such right of appeal provided for as under the Civil Servants (Appeal) Rules,1977:
+Provided that, where the penalty is imposed by order of the President, there shall be no appeal but the civil servant concerned may apply for review of the order.
+CHAPTER-8 ESTACODE (EDITION-2021) Page - 815
+20. Appearance of counsel.— No party to any proceedings under these rules at any stage of the proceedings before the appellate authority, authority, inquiry officer or any inquiry committee as the case may be, shall be represented by an advocate
+21. Repeal.— (1) The Government Servants (Efficiency and Discipline) Rules, 1973, in their application to the civil servants to whom these rules, apply, are hereby repealed but the repeal thereof shall not affect any action taken or anything done or suffered thereunder.
+(2) Notwithstanding the repeal of the aforesaid rules, all proceedings pending immediately before the commencement of these rules against any civil servant under repealed rules shall continue under the repealed rules.
+[Authority.– Establishment Division‘s S.R.O No. 1331 (I)/2020 dated 11-12-2020].
+20.2 Disciplinary Proceedings Under Government
+Servants (E&D) Rules, 1973 Against Accused
+Government Servants: Furnishing of Case Material
+Instances have come to the notice of the Establishment Division that the Ministries/Divisions and Provincial Governments, while forwarding the cases for obtaining the orders of the competent authority i.e. Establishment Secretary under [rule 5 (1) (i) of the Government Servants (E&D) Rules, 1973], do not generally observe the provisions of said rules, laid down procedure and earlier instructions issued on the subject matter. It has particularly been observed that the copies of relevant documents and case material against the accused officers are not enclosed as annex alongwith the Summary/Note for the Establishment Secretary, duly signed by the respective authorized officers on the subject.
+2. All the Secretaries/Additional Secretaries Incharge of Ministries/ Divisions and Chief Secretaries of the Provincial Governments are requested to kindly ensure that, while forwarding the cases of @BPS-17 and above Federal Government servants for obtaining the orders of the Establishment Secretary under @@[rule 5 (1) (i) of the Government Servants (E&D) Rules, 1973], following information and copies of documents be enclosed alongwith the Summary/Note:–
+(i) In case of the proposal for placing @BPS-17 and above Federal Government servants under suspension, copies of all relevant documents/ case material including bio-data of the accused officer and copies of documents on the basis of which suspension of the officer is necessitated viz. any complaint or fact finding inquiry/probe etc. be provided.
+@@@[(ii) In case of a request for extension in suspension period of a government
+Now Civil Servants (Efficiency & Discipline) Rules,2020. Rule 5 (1) to (4) of Civil Servants (Efficiency & Discipline) Rules, 2020. The role of authorized Officer has not been incorporated in Civil Servants (Efficiency & Discipline) Rules,2020. @Under Rule 2(c) of Civil Servants (E&D) Rules,2020 read with rule 6 of Civil Servants (A.P&T)Rules,1973, the authorities for BS-17 to 19 Officers are now concerned Secretaries. Establishment Division is not required to be approached for their cases. @@Rule 5 (1) to (4) of Civil Servants (Efficiency & Discipline) Rules, 2020. @@@Cases of suspension or forced leave requires to be observed as given in Rule 5 (1) to (4) of Civil Servants
+Page - 816 ESTACODE (EDITION-2021) CHAPTER-8
+servant under suspension or extension in forced leave period, on expiry of current sanction after three months, the present position of the disciplinary case, including the stage of inquiry if it is in progress, may invariably be stated in the said proposals.]
+(ii) In case of recommendation for reinstatement in service of a government servant under suspension or termination of forced leave period, the copies of complete record of proceedings viz. charge sheet alongwith statement of allegations, show cause notice if issued instead of charge sheet, report of the Inquiry Officer and final orders of the *Authorized Officer etc. be provided.
+[Authority.– Establishment Division‘s O.M. No.11/5/2000-D.1, dated 4-5-2000].
+20.3 Applicability of Disciplinary Proceedings Against Dismissed,
+Removed or Compulsorily Retired Civil Servants
+On a directive from the Chief Executive Secretariat, the question, as to whether any order under the Government Servants (Efficiency and Discipline) Rules, 1973 can be passed against a civil servant who already stands dismissed from service, has been examined in consultation with Law, Justice & Human Rights Division. It has been clarified that if a person is dismissed or removed from service or compulsorily retired, he does not retain the status of a civil servant for the purpose of any other disciplinary proceedings or imposition of any other penalty. There is a concept of law that the process of appeal is the continuation of the original proceedings, therefore, if a dismissed, removed or retired employee moves a departmental appeal or representation or files an appeal before the appropriate judicial forum he is deemed to be a civil servant for that particular matter only under the said concept of continuation of status during the process of appeal.
+2. Where an appeal is filed, the appellant may be treated as a civil servant for the purpose of disposal of that appeal only and the result of any other inquiry that may have been conducted may be held in abeyance. However, if the dismissed, removed or retired person does not file any appeal, the order of dismissal, removal from service or compulsory retirement will attain finality and the result of the other inquiry will become infructuous.
+[Authority: Estt. Div.‘s O.M. No.SCE/6/97, dated 14.1.2002].
+21.1 Procedure for Obtaining Orders of the President
+or Prime Minister in Disciplinary Cases
+It has been decided that in future, all the summaries for the President/Prime Minister in disciplinary cases should invariably be accompanied by the information desired in the enclosed proforma. The cases/ summaries received without this information will be returned back to their respective Ministries and Divisions.
+[Authority.- Estt. Division‘s d.o. letter No.3/4/83-D-2, dated 24-3-1983].
+(Efficiency & Discipline) Rules, 2020. Now Prime Minister‘s Office. Now Civil Servants (Efficiency & Discipline) Rules, 2020.
+CHAPTER-8 ESTACODE (EDITION-2021) Page - 817
+BIO-DATA
+(TO BE USED IN DISCIPLINARY & OTHER CASES)
+1. Name of the Officer (a) Grade …………….
+(b) Date of Birth & Age on ( Years Months Days ) ………. …………. ……….
+(c) Date of Joining & Length of Service. (Years Months Days) ………. …………. ……….
+(d) Date of Absence from duty. (if applicable) ………. …………. ……….
+(e) Total PERs V.Good, Good, Average, Below Average (Years to be shown against Average & Below Average PERs).
+Note:
+(1)Any missing PERs with reasons.
+(2)Photo of the Officer is affixed in the C.R. dossier or not and reasons if missing.
+(f) Adverse Remarks. ………. …………. ……….
+(g) Service (Showing Appointments held).
+………. …………. ……….
+21.2 Appointment of an Inquiry Officer Under the Government Servants (Efficiency & Discipline) Rules, 1973
+Under rule 9 (1) (a) of the **Government Servants (Efficiency and Discipline) Rules, 1973, the ―Authorised Officer‖ has the powers to order holding of inquiry against an accused government servant through an Inquiry Officer or Inquiry Committee. It has been noticed that sometimes the Ministries/ Divisions/Departments appoint Inquiry Officers who are junior to the accused government servant.
+ BPS. Now Civil Servants (Efficiency & Discipline) Rules, 2020. Amended in the light of Civil Servants (Efficiency & Discipline) Rules, 2020
+Page - 818 ESTACODE (EDITION-2021) CHAPTER-8
+2. It is clarified that it is not appropriate to appoint an ―Inquiry Officer‖ junior to the officer being proceeded against under the aforementioned rules as that could lead to administrative and legal complications at a later stage. All Ministries/Divisions are, therefore, advised to keep this aspect in view while appointing inquiry officers in cases involving disciplinary cases under the E&D Rules.
+[Authority.- Estt. Division‘s O.M. No. 16/61/94-R.2, dated 24-1-1995].
+22.1 Need of Keeping the Provisions of FR-29 in View
+While Imposing the Penalty Under [Rule 4 (c)of the
+Civil Servants (Efficiency and Discipline) Rules, 2020]
+It is to state that *[rule 4 (c) of the Government Servants (Efficiency and Discipline) Rules, 2020] provides for the penalty of reduction to a lower post or time scale or to a lower stage in a time scale. In this connection attention is invited to the provisions of Fundamental Rule 29 which stipulates that ― if a Government Servant on account of misconduct or inefficiency is reduced to a lower grade or post or to a lower stage in his time scale, the authority ordering such reduction shall state the period for which it shall be effective and whether on restoration it shall operate to postpone future increments and if so to what extent‖. Law Division have advised that the provisions of FR-29 should be treated as supplementary to *[rule 4 (c) of the Government Servants (Efficiency and Discipline) Rules, 2020]. It is, therefore, necessary that while passing an order imposing a penalty of reduction to a lower post or time scale or to a lower stage in a time scale, the requirements prescribed in FR-29 should be strictly observed.
+[Authority.- Estt. Division‘s O.M. No. 16/18/94-R.2, dated 09-09-1998].
+22.2 Disciplinary Procedure to be Followed in Cases
+Where No Inquiry Officer/ Committee is Appointed
+[Rule 7 (a) to (f) of the Government Servants (Efficiency and Discipline) Rules, 2020] provides that if the authorized officer decides that it is not necessary to have an inquiry conducted through an Inquiry Officer or Inquiry Committee, he shall:—
+(a) by order in writing, inform the accused of the action proposed to be taken in regard to him and the grounds of action, and
+(b) give him a reasonable opportunity of showing cause against that action.
+2. Both the provisions mentioned at (a) and (b) in the preceding paragraph are mandatory. On an appeal filed by a government servant against the order of his compulsory retirement, the Service Tribunal has recently set aside the order of his compulsory retirement on the grounds that neither the action to be taken was specifically mentioned in the Show Cause Notice nor was he given a reasonable opportunity of
+ Modified as Civil Servants (Efficiency & Discipline) Rules, 2020.  BPS. Modified in line with Civil Servants (Efficiency & Discipline) Rules, 2020.
+CHAPTER-8 ESTACODE (EDITION-2021) Page - 819
+showing cause against the proposed action. It has been pointed out by the Services Tribunal that there are decisions of the superior courts on the point that whenever any discretion is given to an authority, it has to be exercised not arbitrarily but honestly, justly, and fairly in the spirit of rules, and on judicial grounds and for substantial reasons. For this purpose, the nature of allegations against the accused has to be considered. In a case where it is clear to the [authorized officer] that the accused can be given reasonable opportunity of showing cause against the action proposed to be taken e.g. where the allegations could be decided by reference to record in a summary manner, the procedure under sub-rule (iii) of rule 5(1) may be adopted. Otherwise, the ends of justice would be served by ordering an inquiry through an Inquiry Officer or Inquiry Committee.
+3. In a Show Cause Notice, the proposed action is required to be specified, and no general mention is to be made by reference to all the minor or major penalties in the rules.
+4. Further, serving of a Show Cause Notice and mere reply thereto in denial of allegations or mere questions and answers do not amount to affording the accused a reasonable opportunity of showing cause as required by [clause (b) of rule 7 (a) to (f) of the Government Servants (Efficiency and Discipline) Rules, 2020]. The requirement of reasonable opportunity of showing cause against proposed action will only be satisfied if particulars of the charge or charges, substance of evidence in support of the charges and specific punishment which would be called for after the charge or charges are established are communicated to the civil servant who is given reasonable time and opportunity to show cause.
+[Authority.- Estt. Division‘s O.M. No. 6/8/79-D.I., dated 10-7-1979].
+22.3 Requirement to Issue a Fresh Show Cause Notice If the Penalty
+Imposed Under [Government Servants (Efficiency and Discipline)
+Rules, 1973] or Proposed to be Imposed is Greater than that
+Specified in the Show Cause Notice or is Proposed to be Enhanced by the Appellate Authority
+As a result of disciplinary action taken against a government servant, the appellate authority considered the penalty imposed by the @[authorized officer] to be inadequate and enhanced the penalty. The government servant filed an appeal against enhancement of penalty before the Services Tribunal (Appeal No. 2(K) of 1980). The Services Tribunal, while accepting the appeal, observed that the penalty was enhanced without giving the appellant an opportunity of being heard which was against natural justice and further observed that ―we are of the firm opinion that even if the rules are silent on the subject, any time an appellant‘s punishment is enhanced, he will be given a show cause and a hearing. This requirement of natural justice shall always be read into the rules.‖ The Division concerned referred the
+In the present context ―authorized officer‖ may be meant as ―Authority‖ as mentioned in Rule 2(c) of Civil Servants (Efficiency & Discipline) Rules, 2020. Modified in line with Civil Servants (Efficiency & Discipline) Rules, 2020. Now Civil Servants (Efficiency & Discipline) Rules, 2020. @The role of authorized Officer has not been incorporated in Civil Servants (Efficiency & Discipline) Rules,2020.
+Page - 820 ESTACODE (EDITION-2021) CHAPTER-8
+observation of the Services Tribunal to the Ministry of Law who confirmed that, while it was open to the appellate authority to revise the sentence upward, it would be appropriate for the appellate authority to give a show cause notice to the appellant and hear him before passing the order. They advised that the order of the Tribunal should, therefore, be obeyed:
+2. The observations of the Service Tribunal and the advice of the Justice Division mentioned in para 1 is brought to the notice of all Ministries/Divisions and Departments for guidance and compliance.
+3. The cases in which a penalty is enhanced may be as follows:—
+(i) Where the authority decides to enhance the penalty proposed by the authorized officer and which is greater than the maximum penalty shown in the show cause notice issued by the [authorized officer] in terms of [rule 7 (a) (b) of the Civil Servants (Efficiency & Discipline) Rules, 2020], or in the show cause notice issued by the authorized officer in terms of [rule 7 (c)], after considering the inquiry report, as the case may be; or
+(ii) Where the authority in exercise of its revisionary powers under @[rule 11] of the rules, decides to enhance a penalty already imposed in a case already disposed of or which, in a pending case, is greater than the penalty shown in the show cause notice; or
+(iii) Where the appellate authority, in exercise of its appellate jurisdiction, decides to enhance the penalty already imposed on the appellant.
+4. The Ministries, Divisions and Departments are advised to ensure that in all such cases as are mentioned above, before the penalty is enhanced a show cause notice is invariably issued and the accused/appellant is given an opportunity of being heard in person.
+[Authority.- Estt. Division‘s O.M. No. 4/42/83-D.2, dated 29-7-1985].
+23.1 @@ [Publication of Notices in the Newspapers
+It has come to the notice of the government that the procedure of publication of notices in the press in the cases of unauthorized absence/ abscondment from duty is being frequently resorted to without taking into consideration the provisions of rule 13(b) of the Civil Servants (Efficiency and Discipline) Rules, 2020 which provides for the dispensation of adopting even formal procedure in such cases. This not only results in undue delay in finalization of these disciplinary cases but also undue wastage of government money on publication of such notices.
+The role of authorized Officer has not been incorporated in Civil Servants (Efficiency & Discipline) Rules,2020. Modified as per Rule 7 (a) (b) of Civil Servants (Efficiency & Discipline) Rules, 2020. Modified as per Rule 7 (c) of Civil Servants (Efficiency & Discipline) Rules, 2020. @Modified as per Rule 11 of Civil Servants (Efficiency & Discipline) Rules, 2020. @@Sl.No. 23.1 is modified as per Civil Servants (Efficiency & Discipline) Rules, 2020.
+CHAPTER-8 ESTACODE (EDITION-2021) Page - 821
+2. The matter has, therefore, been considered in the Establishment Division in consultation with Law Division. It is clarified that under the Civil Servants (Efficiency and Discipline) Rules, 2020, there is no provision making it obligatory or mandatory for the authority/[**] to publish a notice in the newspaper in the cases of unauthorized absence/ abscondment from duty. The requirement of rule 7 of the Civil Servants (Efficiency and Discipline) Rules, 2020, is that the accused may be informed of the action proposed to be taken in regard to him and the grounds of such action and that he may be given a reasonable opportunity of showing cause against the action. This information can be conveyed to him by different means, i.e. by registered post at his last known address or by affixation of a notice at that address, etc. Same is the position under rule 7(b) in respect of service of a charge-sheet. According to rule 13 of the said rules nothing in rule 7 shall apply if the authority competent to dismiss or remove a person from service, or to reduce a person in rank, is satisfied that, for reasons to be recorded, in writing, by that authority, it is not reasonably practicable to give the accused an opportunity of showing cause, for instance, if it is reported that the accused has left his place of abode without leaving an address or he has gone out of the country and his whereabouts are not known. If the authority mentioned in rule 8(b) is satisfied about the genuineness of the report, it may invoke the provision contained in the said rule. The publication of a notice in newspapers may not be resorted to.
+3. The publication of notice in the newspapers, in such cases should, however, be resorted to in very rare cases where the competent authority is not in a position to record reasons for its satisfaction as to the practicability of affording the accused an opportunity of showing cause. There a lack of response to such a notice may induce that authority to be so satisfied.
+[Authority.- Estt. Division‘s O.M.No.4/18/83-D-2, dated 15-2-1984].
+23.2 [Publication of Charge Sheet or Show Cause Notice in Newspaper]
+A case has come to notice where long leave granted to a postal clerk was cancelled and he was asked to resume duty immediately. When he failed to do so, a notice was published in the newspaper directing him to resume duty within seven days otherwise ex-parte proceedings under the *[Civil Servants (Efficiency and Discipline) Rules, 2020] could be taken against him which might result in his removal from service. He failed to resume duty. He was accordingly dismissed from service. His departmental appeal was rejected. Thereafter, he filed an appeal in the Services Tribunal (Appeal 2(P) of 1984). The Services Tribunal accepted the appeal and set aside the order holding as follows:
+―It is manifestly evident that the impugned order was passed without taking any proceeding under the Efficiency & Discipline Rules though in the notice published in the newspaper it was categorically stated that in case of failure of the appellant to resume duties, ex-parte proceedings
+Modified as per Civil Servants (Efficiency & Discipline) Rules, 2020.
+Page - 822 ESTACODE (EDITION-2021) CHAPTER-8
+under the E&D Rules would be taken against him. In any case, the punishment of dismissal from service could be awarded only after taking proceedings under the E&D Rules which was not done and the impugned order was passed in an arbitrary and unlawful manner. The position being so clear, the impugned order cannot be sustained and we have no option but to set it aside.‖
+2. The observations of the Service Tribunal are brought to the notice of all Ministries, Divisions and Departments who should ensure that due care is taken in observing the requirements of *[Civil Servants (Efficiency and Discipline) Rules, 2020] in taking disciplinary action against civil servants. In this case, what was published was merely a notice or a warning that if the clerk did not resume duty, action under *[Civil Servants (Efficiency and Discipline) Rules, 2020] would be taken. However, on his failure to resume duty as directed, order to dismissal was straightway passed without initiating disciplinary action on the ground of misconduct.
+3. In this connection, a reference is also invited to the Establishment Division O.M. No. 4/18/83-D.2, dated 15th February, 1984, bringing out the requirement of rule 13, clause (b) and the circumstances in which that rule can be involved. According to rule 13(b), nothing in rule 7 (containing inquiry procedure) will apply to a case where the competent authority is satisfied that for reasons to be recorded, in writing, it is not reasonably practicable to give the accused an opportunity or showing cause. If all efforts to communicate with the accused through normal channels (like sending him the notice or charge sheet by registered post to his known addresses) fail, that may induce the authority to be so satisfied. For this purpose, publication of charge sheet or show cause notice, as the case may be, in the national press is certainly not required. However, if in rare cases, the competent authority is unable to satisfy itself that it is not reasonably practicable to communicate with the accused, the competent authority may publish the notice i.e. show cause notice in terms of rule 7(b) of the Civil Servants (E&D) Rules, 2020 or rule 7(c) or charge sheet in terms of rule 7 (as the case may be) in the newspapers and any lack of response to it may satisfy the competent authority that it is not responsibly practicable to give the accused an opportunity of showing cause.
+[Authority.- Estt. Division‘s O.M.No.4/18/83-D.2, dated 9-7-1985].
+24.1 Leaving Station by Government Servants Under Suspension
+It has been observed that, on being placed under ―suspension‖, an officer is generally prohibited from leaving the station. This is desirable where it is felt that, unless he is confined to a particular station, he might tamper with the evidence likely to be produced against him, but such prohibition should not be enforced if there is no cause for such apprehension. He should simply be required to inform the authority concerned of his movement.
+[Authority.- Para 3 Estt. Division‘s O.M. No. F. 32/48-Estt.(SE), dated 21-7-1949].
+CHAPTER-8 ESTACODE (EDITION-2021) Page - 823
+24.2 Bar Against Use of Government Stationery and Service Postage
+Stamps by Accused Government Servants in Disciplinary
+Proceedings
+The question whether an accused government servant is entitled to use government stationery and service postage stamps in replying to the charges framed against him and in making other correspondence in connection with his defence has recently been examined and it is decided that an accused government servant is not entitled to use government stationery and service postage stamps in replying to the charges or making other correspondence in connection with his defence. Cost of stationery and postage stamps required by him in connection with his defence has, in all cases, to be borne by the accused government servant himself.
+[Authority.- Estt. Division‘s O.M. No. 2/29/67-D,I., dated 8-1-1968].
+25.1 Filling Up of Suspension Vacancies
+The question, whether a vacancy caused by suspension of a government servant can be filled-up like other ordinary vacancies, has been recently examined in consultation with the Ministry of Finance and the Law Division. It has been decided that though a vacancy caused by suspension of an officer cannot be filled-up substantively, it can be filled up on an officiating basis, and that no supernumerary post need be created in such case.
+2. This supersedes Establishment Division‘s O.M.No.2/14/67- C.III, dated the 19th September, 1968.
+[Authority.- Estt. Division‘s O.M. No. 6/2/71-D.I, dated 20-9-1971].
+25.2 Termination of Services of Temporary Government Servants under Suspension
+Attention is invited to Establishment Division‘s O.M. Nos. 21/11/61-D.I, dated 22nd December, 1962 (Annex-I) and 18th April, 1963 (Annex-II) on the subject of ―Speedy Disposal of Disciplinary Cases-Policy Regarding Government Servants undergoing Criminal Prosecution before Departmental Action‖. It is stated that the advice of the Justice Division was sought whether it was possible to terminate the services of an employee, who was arrested on a criminal charge of murder and had been undergoing trial for a long time, without any notice and without assigning any reasons, in accordance with the terms and conditions of his service as contained in his letter of appointment. The position as per advice of the Justice Division*, is as follows:
+2. A civil servant is not necessarily in temporary employment merely because of a statement in the order of appointment that his appointment will be purely temporary and liable to termination at any time without any notice or reasons being assigned. No civil servant is a temporary employee as long as the employment is for an indefinite period or against a post which continues to exist for an indefinite period. It is extremely difficult to
+* Law & Justice Division.
+Page - 824 ESTACODE (EDITION-2021) CHAPTER-8
+attribute to the legislature an intention to clothe the authorities concerned with arbitrary power of terminating the service of a civil servant in their discretion without assigning any reason. The courts have always been reluctant to interpret these provisions in a manner as would justify the externment of an employee without any justification.
+3. Further after the enactment of Civil Servants Act, 1973, the services of a civil servant can either be terminated under section 11 of the Act or under [Civil Servants (Efficiency & Discipline) Rules, 2020]. It is not possible to spell out any power to terminate the services of an employee without notice and without assigning any reason from the provisions of sub section (3) of section 11 of Civil Servants Act, 1973, especially in the presence of the provisions of sub-section (1) thereof regarding termination of service during the initial or extended period of probation. If an employee has passed through the period of probation to the satisfaction of the competent authority, he is no longer a temporary employee with the meanings of sub section (3) if his employment is for an indefinite period or against a post which continues to exist for an indefinite period.
+4. In the light of the above advice of the Justice Division, services of an employee can no more be terminated without notice and with assigning reason [on the basis of the contents of Establishment Division‘s O.M. dated 22nd December 1962 (Annex I) and 18th April 1963 (Annex II) referred to above].
+[Authority.- Estt. Division‘s O.M.No.31/64/86-R3 dated 20-4-1987].
+(ANNEX I)
+[Copy of Establishment Division O.M. No.12/11/61-D.I, dated 22nd December, 1962].
+Instances have come to the notice of the government that there are still a number of cases pending in courts against officials for unusually long periods without departmental proceedings having been ever resorted to. It has also been found that, in some cases, the accused officials have, while continuing under suspension, been absconding for long and sometimes for years, presumably with intent to frustrate or delay the court proceedings. With a view to meeting such situations, it has been decided that, whenever such an instance comes to the notice of the government, the accused official, whether permanent or temporary, should be asked by his last known address to report to his official superior/court. If he does not comply with the order, government should take up the formalities of his dismissal from service on charge of misconduct under the Government Servants (Efficiency & Discipline) Rules.[If he turns up and is a temporary hand, his services should be terminated after serving him with the requisite notice or paying him salary in lieu thereof, without assigning any reasons for the action].
+2. There may still be cases of temporary government servants undergoing
+Modified as per Civil Servants (Efficiency & Discipline) Rules, 2020.  Now Civil Servants (Efficiency & Discipline) Rules,2020.  Note: This applies to temporary employments made on or after 08-06-1962.
+CHAPTER-8 ESTACODE (EDITION-2021) Page - 825
+long-drawn court proceedings even if they have not absconded. If in any individual case of this nature, the appointing authority considers that irrespective of the outcome of the court proceedings, the accused official should not be allowed to continue any longer on the pay roll of the government, such authority may recall the official to duty and terminate his services after serving him with the requisite notice or paying his salary in lieu thereof without assigning any reasons for the action. [The course of action discussed in this paragraph should be resorted to unless, of course, there is any direction of the court to the contrary in any particular case].
+3. It is requested that all Ministries/Divisions, etc., may kindly check up the position of their employees involved in court proceedings and deal with the individual cases in the light of the suggestions contained in preceding paragraphs.
+(ANNEX II)
+[Copy of Establishment Division O.M. No.12/11/61-D-I date the 18th April, 1963].
+Reference.- Establishment Division O.M. No. 12/11/61-D.I, dated the 22nd December, 1962 (Annex I)
+A question has arisen as to whether it was necessary to recall a suspended temporary government servant to duty before serving him with the requisite notice of discharge on the ground that his services were no longer required. The point has been further examined in Establishment Division in consultation with Law Division and it has been held that a suspended temporary government servant can be served with service termination notice in accordance with the terms of the appointment during the period of suspension and discharged after the notice period without requiring him to resume duty.
+2. Utmost precaution should, however, be taken to see that no reason is assigned for the termination except saying that his services are no longer required by the government.
+25.3 Bar Against Mentioning of Unfinalised Departmental Proceedings in Confidential Reports
+It has been noticed that in some annual confidential reports of officers received from various Ministries, a reference is made to departmental proceedings which are still in progress against the officers concerned.
+2. The Establishment Division feel that until and unless the result of such proceedings has been known and final orders, awarding punishment, if any, have been passed by the competent authority, it would not be correct to make any such reference as
+Note: This applies to temporary employments made on or after 08-06-1962. Now Performance Evaluation Reports.
+Page - 826 ESTACODE (EDITION-2021) CHAPTER-8
+may have the effect of creating doubts about the conduct and character of the officers concerned. It can hardly be controverted that such a reference, although factually correct, if inadvertently made, cannot fail to damage the officer‘s record even if in the long run he is completely exonerated.
+3. In the circumstances it is requested that, in the case of an officer against whom departmental proceedings are in progress, no mention, whatsoever, should be made about it in his annual confidential reports. Only when such proceedings have been finalized, and the punishment, if any, has been awarded, should a mention about it be made in his confidential report. In such a case, a complete copy of the final order may be placed, as is usually done, on his character roll.
+[Authority.- Estt. Secretary‘s D.O. letter No.9(1)/58-S.E.III, dated 8-5-1958].
+26.1 T.A. Admissible to Witnesses and Accused Government
+Servant Summoned by an Inquiry Officer
+A government servant summoned by an Inquiry Officer should be allowed TA as admissible to him under S. R. 154 „et seq‟ and he should draw it on a regular TA bill from his own department on the strength of the Attendance Certificate furnished by the Inquiry Officer and this should be debited against the office at whose instance the inquiry was being conducted, by book adjustment. In the case of a witness who is not a government servant, travelling expenses should be determined by the Inquiry Officer with reference to the status of the witness and should be paid on the basis of the orders passed by the Inquiry Officer, by the department at whose instance the inquiry was being conducted. The TA to be paid to a non-government servant should, however, in no case exceed the maximum TA admissible to a government servant of the highest grade. The provisions of S.R. 190 „et seq‟ should also be kept in view in such cases.
+[Authority. - Estt. Division‘s O.M. No. 2/41/62-D.I, dated 28-2-1963].
+26.2 Admissibility of TA to Witness in Disciplinary Cases
+In continuation of the Establishment Division O. M. No. 2/41/62 D. I, dated the 28th February, 1963, a further question has since arisen as to whether the aforesaid provision of TA should equally apply to the defence witness summoned by the Inquiry Officer in departmental proceedings. The point has been examined in Establishment Division in consultation with the Ministry of Finance. The position of the defence witnesses regarding summoning them and paying them TA is as explained hereunder.
+2. It is for the Inquiry Officer to consider if any particular witness cited by the accused as a defence witness is likely to be as essential witness for the purpose of defence or in other words, for the determination of truth. If the Inquiry Officer agrees that the examination of the witness will be essential, he may summon him and as soon as he summons him, he will take
+Now Performance Evaluation Reports.  Supplementary Rules.  et seq abbr., and what follows; Latin ‗et sequentia‟.
+CHAPTER-8 ESTACODE (EDITION-2021) Page - 827
+upon himself the obligation to allow the witness reasonable TA. If the witness is an official, he is to draw the TA from his parent department on the strength of the attendance certificate furnished by the Inquiry Officer, the amount being debited by book adjustment against the office at whose instance the inquiry was conducted.
+3. If, however, the Inquiry Officer is not satisfied whether the examination of a particular witness will be essential for the determination of truth he may at his discretion, refuse to summon such a witness. He may, however, agree to summon him on condition that the accused will bear the travelling expenses of the witness and he may accordingly require the accused to deposit with him the anticipated amount of the TA of the witness, in advance, so that the witness could be paid therefrom. In that case, the attendance certificate to be furnished to the witness by the Inquiry Officer should contain the endorsement that the witness has been paid his travelling expenses. This will debar the witness from claiming the TA again from the government.
+[Authority.- Estt. Division‘s O.M. No. 2/41/62-DI, dated 13-4-1963].
+26.3 Admissibility of TA to Government Servants under Suspension
+A question has since arisen as to whether a government servant under suspension who was required to perform official journey as a witness or as an accused, would be entitled to TA. The question has been examined in Establishment Division, in consultat-ion with the Ministry of Finance, and it has been held that such a government servant would be entitled to TA in such cases and his *grade and salary for that purpose would be taken as if he was not under suspension.
+[Authority. - Estt. Division‘s O.M. No. 2/41/62-DI, dated 19-7-1963].
+26.4 Framing of an Additional Charge During Currency of the Disciplinary Proceedings
+Instances have come to the notice of the Establishment Division that in cases where the main charge of ―corruption‖ or ―subversion‖ was not proved, but there was sufficient evidence to establish the charge of ―misconduct the accused could not be punished because he had not been charged with misconduct‖, although the offences of ―corruption‖ and ―subvers-ion‖ are the graver forms of ―misconduct‖. To meet such exigencies, it has been decided in consultation with the Law Division, that in all suitable cases where an accused is charged with ―corruption‖ or ―subversion‖, an additional charge of ―misconduct‖ may be added to the main charge.
+[Authority.- Estt. Division‘s O.M. No. 2/5/66-D.I, dated 11-6-1966].
+27.1 Scope of Departmental Proceedings Under the Efficiency &
+Discipline Rules in Cases Referred to the Courts
+References are very often received in the Establishment Division on the above
+* BPS.
+Page - 828 ESTACODE (EDITION-2021) CHAPTER-8
+subject in various forms. The questions generally posed by the Ministries/ Divisions are as under:—
+(i) Whether departmental proceedings can be started against a government servant who is being prosecuted in a criminal court;
+(ii) Whether departmental inquiry can be conducted against a government servant on the same charges after his acquittal by a court;
+(iii) Whether any departmental action lies against a government servant who cannot be prosecuted in a court of law due to technical grounds.
+2. The matter has been examined in consultation with Law Division. Each case has to be decided on its merits and in the light of its facts and circumstances. However some guidelines can be laid down in the matter, and the following general guidelines are indicated for deciding such matters:-
+(i) There is no legal bar to the holding of a departmental inquiry against a government servant who is being prosecuted in a criminal court. It may, however, be pointed out that where the holding of departmental inquiry side by side with the criminal proceedings may have the effect of impeding the course of justice or of prejudicing the trial, the inquiry should be deferred till the termination of criminal proceedings.
+(ii) An acquittal from a criminal case may be on technical grounds or on the ground that all the ingredients of the offence are not proved by the evidence produced in court. But in departmental proceedings even one of the ingredients, if proved, may be sufficient to reach a conclusion that the accused has misconducted himself or has acted in a grossly negligent way or has shown inefficiency in the discharge of his official duties. As an example, to illustrate this point, a recent case may be cited. An officer employed in the Registry of the Supreme Court was charged and tried for embezzlement. He was, however, acquitted by the High Court in criminal appeal No. 676 of 1965. Subsequently, he was dismissed on the same allegations which were found proved in a departmental inquiry initiated by the Supreme Court. Thus departmental proceedings on the same facts may be started even if the person concerned has been acquitted in criminal proceedings.
+(iii) In some cases, a government servant cannot be criminally prosecuted on technical grounds. But this does not bar the government from inquiring into the truth of a charge against a government servant by means of a departmental inquiry. Therefore, there is no bar to proceed against a government servant departmentally, when he cannot be criminally prosecuted in a court of law for some reason or other.
+[Authority. - Estt. Division‘s O.M. No. 4/5/69-D.I, dated 17-6-1969].
+CHAPTER-8 ESTACODE (EDITION-2021) Page - 829
+27.2 Quick Disposal of Disciplinary Proceedings Pending Against
+Government Servants Who are About to Superannuate
+It has come to the notice of government that inquiry proceedings against civil servants under the [Government Servants (Efficiency and Discipline) Rules, 1973] tend to be unduly protracted for various avoidable reasons causing hardships to the affected government servants on the one hand and defeating the purpose of speedy disposal of cases in others. This is obviously against dictates of justice.
+2. The disposal of disciplinary proceeding assumes vital importance, especially in cases against government servants who are about to attain the age of superannuation. It goes without saying that delay in disposal of such cases not only causes hardships to the affected persons but also puts the administration to unnecessary criticism.
+3. It is, therefore, requested that disciplinary proceedings against government servants nearing the age of superannuation in future should be disposed of before they superannuate. All the agencies working under the administrative control of the Ministry concerned should be advised accordingly.
+[Authority.-Estt. Division‘s O.M. No.12/2/88-R.3, dated 3-10-1988].
+27.3 Censure, Reprimand and Warning
+From references received, it appears that some authorities are not clear regarding the procedure to be followed where punishment of Censure is awarded and regarding the distinction between ‗Censure‘ and ‗Warning‘.
+2. Censure is one of the punishments mentioned in *[rule 4 (2) (a) of the Efficiency and Discipline Rules, 2020].
+3. There is essentially no difference between ‗Censure and reprimand‘, but as the official term is ‗Censure‘, it seems preferable that normally this term should be used.
+4. [ Not reproduced ]
+5. According to rule 3 of the Civil Servants (Appeal) Rules, 1977, every civil servant is entitled to appeal to the appellate authority from an order of Censure passed by an authorized officer or an authority provided that, where the penalty is imposed by an order of the President, the civil servant has no right to appeal but he can apply for review of the order.
+6. A warning, whether oral or written and whether given ad hoc or in annual confidential report, is not a censure and does not constitute a punishment, provided that it is genuinely a warning and not a censure distinguished as such.
+[Authority. - Estt. Division‘s O.M. No. 3/1/52-SE. II, dated 12-4-1952 with necessary adaptations in the light of prevailing circumstances].
+Now Civil Servants (Efficiency & Discipline) Rules, 2020.  Performance Evaluation Report (PER).
+Page - 830 ESTACODE (EDITION-2021) CHAPTER-8
+28.1 Participation of Government Servants in Drinking Parties
+It has been reported that a number of persons organize drinking and other parties in Rawalpindi/Islamabad, which are attended by civil as well as military officers, and where views on government policies are expressed without reservations.
+2. While drinking is a manifest violation of the law of the country and the sanctity of Islam, criticism of government by its functionaries, particularly at such gatherings, is a serious offence.
+3. Under the Prohibition (Enforcement of Hadd) Order, 1979, alcoholic drinks are available to only non-Muslim foreigners and non-Muslim Citizens of Pakistan. As such, all government servants are apt to strictly follow the aforesaid Order and desist from such vices.
+4. It is requested that severe disciplinary action may be taken against the defaulters, irrespective of their status; and they may also be debarred from employment under the government, semi-government organizations, and autonomous bodies.
+[Authority. - Estt. Secretary‘s D.O. letter No.5/1/79 DIV, dated 17-9-1979].
+28.2 Officers‘ Duty to Watch Conduct of their Subordinates
+It has been decided that all officers should be informed that it is their duty to watch the conduct of their subordinates and to ensure that corruption does not spread among them. Failures to do so would be reflection on their own efficiency.
+[Authority. - Estt. Division‘s O.M.No. 3/35/59-SE.II, dated 4-3-1959].
+28.3 Responsibility of Head of Department for Corruption in Department
+Measures undertaken to curb corruption in the police have shown appreciable results, and its personnel deserve to be commended, and encouraged to continue with their efforts in that direction.
+2. Meanwhile, public complaints of corruption in several government departments persist, and effective steps are required to root it out. It is the bounden duty of every Head of Department to exercise utmost vigilance, analyse the cause, and trace the source where incidence of corruption occurs.
+3. In future, a Head of Department will bear the responsibility, and be answerable for proven charges of corruption within the area of his administrative jurisdiction. It is self-evident that corruption prevails in a department if its Head is:
+(a) himself corrupt, or
+CHAPTER-8 ESTACODE (EDITION-2021) Page - 831
+(b) wilfully blind to corruption taking place, or (c) so inefficient that he is unable to control it.
+4. Whichever of these three reasons may be applicable, such a Head of Department cannot be retained in service to the detriment of government‘s objective of serving the people and promoting their weal and welfare.
+[Authority.- President of Pakistan‘s note No. 57/l/CMLA, dated 25-9-1978].
+28.4 Loss of Security Passes to be Treated as ‗Misconduct‘
+As provided in para 97 of the [Security Instructions] (1973 Edition) prepared by the Cabinet Division and this Division‘s Circular letter No. 14/17/71-Cord., dated the 18th November, 1971, a government servant who has lost the Security Pass issued to him is required:—
+(i) to make report to the Police Station and to the Head of his Department about the loss of the Pass; and
+(ii) to deposit Rs. 5 in the State Bank of Pakistan before a new Security Pass is issued to him. The amount of Rs.5 covers only the cost of the pass and actually no penalty has been imposed on him. It has been noticed that the government servants generally do not take sufficient care to keep the passes in safe custody with the result that loss of security passes is on the increase. As the pass lost can be misused by any unauthorized person which involves serious security risk, it has been decided, in consultation with the authorities concerned, that the loss of Security Pass would be treated as ―misconduct‖ in terms of [Civil Servants (Efficiency and Discipline) Rules, 2020].
+2. However, before any action is initiated against a government servant who has lost his Security Pass, it is necessary to determine, in each case as to whether the security pass in question was lost due to negligence. If the government servant concerned is able to give a satisfactory account of the circumstances under which the security pass was lost by him, it may not be proper to proceed against him. If, after preliminary inquiry, it is found that the Security Pass was lost due to the negligence of the government servant concerned or that the lost Security Pass had fallen into unauthorized hands as a result of any wilful omission or commission on his part, only then it would be appropriate to take disciplinary action against him under the *[Civil Servants (E&D) Rules, 2020].
+3. All Ministries and Divisions are, therefore, requested that in future while referring the case of issue of a Security Pass to a person who has already lost a Security Pass, it may also please be clearly indicated whether disciplinary action, or if any, has
+Modified as per Civil Servants (Efficiency & Discipline) Rules, 2020.
+Page - 832 ESTACODE (EDITION-2021) CHAPTER-8
+been taken/is being taken against the official concerned.
+[Authority.- Ministry of Interior O.M. No. 19/2/75-Security dated 31-3-1975 as amended vide O.M. No.19/9/75- Security dated 2nd August, 1982].
+28.5 Use of Intemperate and Inappropriate Language in Representations and Petitions of Government Servants
+At times, representations of government servants contain wild allegations against superior officers. While government servants would be free to submit their representations in accordance with the prescribed procedure whenever they feel aggrieved, they should be informed that the use of such language constitutes misconduct. You may, therefore, impress upon all government servants working under your administrative control the need and propriety of refraining from the use of such language and to scrupulously observe the norms of decency and decorum. Failure to do so on their part will not only result in no action being taken on requests contained in such representations/petitions but will also render them liable to disciplinary action for misconduct. Serious action will also be taken when wild allegations are made against senior officers which, on investigations, are found to be without any basis.
+[Authority.- Estt. Division‘s D.O. letter No.8/13/71-F.II, dated 28-5-1974].
+28.6 Grant of Leave to Government Servants Compulsorily
+Retired from Service under the *Government Servants
+(Efficiency and Discipline) Rules
+A reference is invited to the Establishment Division‘s O.M. No. 4/13/60-SR, dated the 4th October, 1960 (Annex) and it is stated that the instructions contained therein have been reviewed in Establishment Division and in supersession of these instructions, it has been decided that government servants compulsorily retired from service as a measure of punishment under the Government Servants (E&D) Rules, 1973 should not be granted leave preparatory to retirement.
+[Authority.- Estt. Division‘s O.M. No.4/8/88-D.I, dated 4-4-1977].
