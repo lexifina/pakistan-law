@@ -1,0 +1,1 @@
+6. Terms and conditions of office of Chairman and Members.—The terms and conditions of the Chairman and Members and their remuneration and privileges shall be such as may be determined by the President.

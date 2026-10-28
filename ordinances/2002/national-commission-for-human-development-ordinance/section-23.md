@@ -1,0 +1,1 @@
+23. Removal of Difficulties.—If any difficulty arises in giving effect to any of the provisions of this Ordinance, the President may make such order, inconsistent with the provisions of this Ordinance, as may appear to be necessary for removing the difficulty.

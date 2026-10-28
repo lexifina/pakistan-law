@@ -1,0 +1,1 @@
+21. Authorities to aid the Commission.—(1) All executive authorities in the Federation and in the Provinces shall render such assistance to the Commission as may be necessary for execution of its programmes and projects being carried out under this Ordinance.
