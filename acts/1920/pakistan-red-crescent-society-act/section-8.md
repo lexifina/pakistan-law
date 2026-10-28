@@ -1,0 +1,19 @@
+[^10][8. Constitution of Branch Committees.___ (1) All Branch Committees of the Indian Red Cross Society which immediately before the appointed day had their headquarters at any place which has thereafter been included in [^12]* * *Pakistan, shall be deemed to have been constituted under this Act, and all property vested in them before the coming into force of the Pakistan Red Cross Society Order, 1947, shall continue to be so vested :
+[^13][Repealed]
+[^14][(1A) There shall be a Branch Committee for the Capital of the Federation which shall consist of such persons, one of whom shall be the Chairman, as the President may appoint.
+(1B) There shall be a Branch Committee for each of the Provinces of Baluchistan, the North- West Frontier, Sind and the Punjab (excluding the Islamabad Capital Territory) constituted in accordance with the provisions of sub-section (1D), and all property vested in the Branch Committee for the Province of West Pakistan functioning immediately before the commencement of the Pakistan Red Cross Society (Amendment) Act, 1972, shall, upon the constitution of the Branch Committee for each such Province, vest in that Committee in such manner, and to such extent, as may be determined by the President.
+(1C) All property vested in the Branch Committee for the Karachi Division functioning immediately before the commencement of the Pakistan Red Cross Society (Amendment) Act, 1972, shall vest in the Branch Committee constituted under sub-section (1B) for the Province of Sind.
+(1D) The first Branch Committee for each of the provinces referred to in sub-section (1B) shall consist of such persons, not exceeding ten in number, one of whom shall be the Chairman, as may be appointed by the Governor of the Province concerned.
+(lE) Regulations shall be made in pursuance of section 12 by the first Committee for each of the Provinces referred to in sub-section (1B) and, until regulations are so made, the procedure provided for the Branch Committee for the Province of West Pakistan functioning immediately before the commencement of the Pakistan Red Cross Society (Amendment) Act, 1972, shall be followed with such adaptations as may be necessary.]
+[^15]* * * * * *
+(4) Subject to the requirements of the Managing Body for the purposes of clause (a) of section 7 and any provision for expenses of management, the income of any property which vests in the Society under the provisions of clause (a) of section 6 shall be distributed annually among the Branch Committees according to the percentages specified in the Second Schedule, to be expended by them and at their discretion upon all or any of the objects referred to in clause (b) of section 7.
+(5) The [^16][President of Pakistan] may, by notification in the official Gazette, direct that any Branch Committee specified in the Second Schedule shall be excluded therefrom or that any newly constituted Branch Committee not specified therein shall be included therein, and that the percentages specified in that Schedule shall be varied as required by any such exclusion or inclusion.
+(6) On the issue of a notification under sub-section (5) the Second Schedule shall be deemed to be amended in accordance with such_notification.
+(7) No notification under sub-section (5) shall be made without the consent of every Branch Committee which is for the time being included in the Second Schedule.]
+
+[^10]: Subs. by Order No. G.G.O. V of 1947, dated the 20th December, 1947.
+[^12]: Omitted by A.O., 1961, Art. 2 and Sch. (w. e. f. the 23rd March,1956).
+[^13]: Rep. by the Federal Laws (Revision and Declaration) Act No. XXVI of 1951, s. 3 and Sch. II.
+[^14]: Subs. by Act No. XXVI of 1972, s.2, repealed by Ordinance No. XXVII of 1981, s.2, Schedule I.
+[^15]: Omitted by the Federal Laws (Revision and Declaration) Ordinance No. XXVII of 1981, s. 3 and Sch. II.
+[^16]: Subs. by A.O., 1961, Art. 2 and Sch., (w. e. f. the 23rd March, 1956).

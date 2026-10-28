@@ -1,0 +1,1 @@
+10. Decision of Managing Body as to purposes final. The Managing Body shall have authority to determine in all cases what matters properly fall within the scope of clause (b) of section 7, and its decision in all such matters shall be binding on all Branch Committees and affiliated societies or bodies.
