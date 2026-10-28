@@ -1,0 +1,2 @@
+25. Safeguard of insured person’s rights in default of payment of contribution by
+employer.—In the event of default of payment of contribution by the employer in respect of an insured person, the rights of that person to benefits under this Ordinance shall be safeguarded to such extent and in such manner as may be provided in the regulations, provided such default has not been with the consent or connivance of the insured person.

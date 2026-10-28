@@ -1,0 +1,1 @@
+20. Officers and staff of the Institution.—The Governing Body may employ such officers and staff in the headquarters office of the Institution and in the offices of the provincial institutions referred to in section 9 as the regulation may provide.

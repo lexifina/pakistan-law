@@ -1,0 +1,9 @@
+42. Disablement gratuity.___(1) An insured person who sustains minor disablement shall be entitled to a disablement gratuity at the rate provided in the Schedule.
+(2) Where a person receiving disablement pension ceases to suffer from total or partial disablement but continues to suffer from minor disablement, he shall, on the termination of his disablement pension, be entitled to disablement gratuity.
+43 Survivors’ pension.___(1) Where an insured person dies as a result of an employment injury, survivors' pension shall be payable to his dependents as follows, that is to say,__
+(a) to the widow during life, an amount equal to three-fifths of the full rate of total disablement pension provided in paragraph 8(a) of the Schedule and where there are two or more widows, the amount of pension shall be divided equally between them;
+(b) to each dependent child an amount equal to one-fifth of the full rate of total disablement pension provided in paragraph 8(a) of the Schedule:
+Provided that if the child is a full orphan the amount shall be two-fifths of such full rate.
+(2) In case the deceased person does not leave a widow, a survivors' pension shall be payable for life to a dependant father or mother equal to one-fifth of the full rate of the total disablement pension provided in paragraph 8 (a) of the Schedule:
+Provided that if and so long as the total of the dependants’ pension distributed among the widow or widows, dependant children, or dependant children and parents, exceeds the full rate of disablement pension the share of each of the survivors shall be reduced proportionately so that the total amount payable to them does not exceed the amount of the said full rate.
+(3) Survivors' pension shall be payable upon the death of the insured person and shall be terminated upon the death of the dependant child or parent or widow, upon the widow's marriage, or upon the child having attained the age of sixteen years, as the case may be.

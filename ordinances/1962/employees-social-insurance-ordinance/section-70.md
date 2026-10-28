@@ -1,0 +1,1 @@
+70. Exemption from taxes.—Notwithstanding anything contained in any other law the 1[Federal Government] or the Provincial Government may, by order in writing, exempt the Institution from any tax, rate or duty leviable by such Government or by a local authority under the control of such Government.

@@ -1,0 +1,3 @@
+26. Return of contribution paid erroneously.—Every person or his employer shall be entitled to the return of any contribution paid to the Institution under the erroneous belief that it was payable in respect of such person under the provisions of this Ordinance or was payable at a higher rate than the rate prescribed:
+Provided that where contribution was paid under the erroneous belief that a person was an insured person, any sum paid to such person or his dependants by way of benefits shall be deducted from the amount of contribution:
+Provided further that contributions shall not be returned except on application made within six months of the date on which they were paid.

@@ -1,0 +1,2 @@
+48. Institution's power to promote measures for health, welfare, etc., of insured
+persons.— The Institution may, in addition to the benefits specified in this Ordinance, undertake other measures for improving the health and welfare of insured persons and for the rehabilitation and settlement of such insured persons as might have been disabled or injured, and may for that purpose incur expenditure from the Employees, Social Insurance Fund to such extent as may be prescribed.

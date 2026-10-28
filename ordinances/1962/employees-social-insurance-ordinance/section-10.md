@@ -1,0 +1,1 @@
+10. Authentication of orders, etc., —All orders and decisions of the Governing Body shall be authenticated by the signature of the Chairman or of such other member as may have been authorized by the Governing Body in writing for the purpose.

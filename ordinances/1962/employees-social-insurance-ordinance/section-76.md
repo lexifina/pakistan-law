@@ -1,0 +1,1 @@
+76. Members and servants of the Institution to be public servants.—The members of the Governing Body and every servant of the Institution shall be deemed to be a public servant within the meaning of the Pakistan Penal Code (XLV of 1860).

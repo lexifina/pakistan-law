@@ -1,0 +1,8 @@
+30. Security reserves.___(1) Subject to such conditions as may be prescribed, the Institution shall establish and maintain a separate security reserve__
+(a) in the account covering employment injuries, equal to at least twenty-five percent. of the average annual expenditure incurred in the last preceding three financial years on the payment of benefits in respect of employment injuries other than pensions plus the prospective value of all pensions arising out of employment injuries accruing before the end of the last preceding financial year; and
+(b) in the account covering sickness, maternity and death, equal to at least twenty-five percent of the average annual expenditure incurred during the last preceding three financial years on the payment of benefits in respect of sickness, maternity and death:
+Provided that before the expiry of three financial years from the coming into force of this Ordinance, the minimum limit of each of the said security reserves shall be such as the [^9][Federal Government] may determine.
+(2) Whenever any such reserve falls below the aforesaid limits, the [^9][Fedral Government] shall, on the recommendation of the Governing Body, fix such higher rate of contribution for the next ensuing financial year as may be necessary to avoid a deficit in the security reserve and shall notify such higher rate in the official Gazette before it becomes effective:
+Provided that the [^9][Federal Government] may, instead of fixing such higher rate of contribution, grant to the Institution a sum equal to the annual receipts estimated to accrue from the increase in the rate of contribution.
+
+[^9]: Subs. by F.A.O., 1975, Art. 2 and Table, for “Central Government”.

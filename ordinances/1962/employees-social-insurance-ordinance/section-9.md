@@ -1,0 +1,5 @@
+9. Provincial institutions.___(1) There shall be established in the prescribed member two provincial institutions, one for East Pakistan and the other for West Pakistan, for carrying out the purposes of this Ordinance.
+(2) Each provincial institution shall have such constitution, composition and powers as may be prescribed.
+(3) Each provincial institution shall have its own fund which shall as far as may be comprise of such portion of the Employees' Social Insurance Fund as is collected in that Province, and the institution may incur such expenditure out of the said fund as may be necessary.
+(4) Subject to rules, a provincial institution may, within the Province, exercise all or any of the powers of the Institution, and anything done or any action taken by a provincial institution in exercise of such powers shall be deemed to have been done or taken on behalf of the Institution.
+(5) In discharging its functions a provincial institution shall be guided by such instructions on questions of policy as may be given to it from time to time by the Governing Body which shall be the sole judge as to whether any instructions are on a question of policy or not.
