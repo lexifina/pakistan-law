@@ -1,0 +1,1 @@
+46. Support of the Federal Government.— The Federal Government and all its agencies, particularly the concerned enterprises owned and controlled wholly or partially, directly or indirectly by the Federal Government, shall render support to the Commission to fulfill its objective and functions in pursuance of this Ordinance.

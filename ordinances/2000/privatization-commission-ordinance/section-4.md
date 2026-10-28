@@ -1,0 +1,1 @@
+4. Location of Office.— The principal office of the Commission shall be at Islamabad. The Commission may establish regional offices at such other place or places in Pakistan as it considers necessary.

@@ -1,0 +1,1 @@
+47. Dissolution.— No provision of law relating to the winding up of the bodies corporate shall apply to the Commission, and the Commission shall not be wound up except by order of the Federal Government, and in such manner as the Federal Government may direct.

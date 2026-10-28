@@ -1,0 +1,2 @@
+41. Regulations.—(1) The Commission may, by notification in the official Gazette, make regulations, not inconsistent with the provisions of this Ordinance or the rules, for exercising its powers and carrying out of its functions under this Ordinance.
+(2) Without prejudice to the foregoing power, such regulations may provide for appointment of its officers, members of staff and such other persons and the terms and conditions of their service.

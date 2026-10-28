@@ -1,0 +1,3 @@
+23. Advertisement of privatization.— The Commission shall, in consultation with the [^11][concerned ministry and enterprise, if required,] owned or controlled wholly or partially, directly or indirectly by the Federal Government, give notice of its intent to privatise. The Commission shall for each proposed privatisation publish, in at least two English newspapers and two Urdu newspapers with a national circulation on at least two occasions not less than seven days apart, notice of the availability of the subject-matter of the privatisation and of the salient terms and conditions thereof. Advertisements for privatisation, where necessary, will also be placed in newspapers with an international circulation.
+
+[^11]: Subs. by Act No. XVIII of 2026, ss. 2 & 7.
