@@ -1,0 +1,2 @@
+28. Rules.___(1) Authorities and the other bodies of the University may make Rules consistent with this Ordinance, Statutes and Regulations, to regulate the conduct of their business and the time and place of meetings and related matters.
+(2) The Board may make rules to regulate any matter relating to the affairs of the University, which under this Ordinance, are not specifically required to be provided for by the Statutes or the Regulations.

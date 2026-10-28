@@ -1,0 +1,24 @@
+2. Definitions.___ In this Ordinance, unless there is anything repugnant in the subject or context___
+(a) “Academic Council” means the Academic Council of the University;
+(b) “Affiliate Institution” means an institution authorised by the Board of Governors to conduct academic programmes approved by the University in accordance with rules prescribed for the purpose;
+(c) “Authority” means any of the authorities of the University specified in section 7;
+(d) “Board of Governor” means the Board of Governors of the University;
+(e) “Chairman” means the Chairman of the Board of Governors;
+(f) “Chancellor” means the Chancellor of the University;
+(g) “College” means any college maintained by the University;
+(h) “President” means the President of the University;
+(i) “Committee” means the Executive Committee of the University;
+(j) “Deans” means the Dean of a faculty of the University;
+(k) “Director” means the Director of a constituent institute of the University;
+(l) “Faculty” means the Faculty of the University;
+(m) “Head” means Head of a Teaching Department of the University;
+(n) “Patron” means the Patron of the University;
+(o) “Prescribed” means prescribed by regulation;
+(p) “Principal” means the Principal of a constituent college of the University;
+(q) “Registrar” means the Registrar of the University;
+(r) “Rector” means the Rector of the University;
+(s) “Statutes”, “Regulations” and “Rules” means the Statutes, the Regulations and the Rules respectively made under this Ordinance;
+(t) “Teaching Department” means teaching department established and maintained by the University;
+(u) “HEC” means the “Higher Education Commission” established under the Higher Education Commission Ordinance; 2002 (LIII of 2002);
+(v) “University” means the Foundation University, Islamabad;
+(w) “University Teacher” means Professor, Associate Professor, Assistant Professor and Lecturer engaged whole-time by the University for teaching;

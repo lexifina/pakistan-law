@@ -1,0 +1,4 @@
+17. Meeting of the Board of Governors.___(1) The Board shall meet at least twice year on dates to be fixed by the Chancellor provided that a special meeting may be called at any time by the Chancellor or on a request by not less than five members of the Board to consider any matter of urgent nature.
+(2) In the case of a special meeting not less than ten clear days notice shall be given to the members of the Board and the agenda of the meeting shall be restricted to the matter for which the special meeting is called.
+(3) The quorum for a meeting of the Board shall be one-half of its members, fraction being counted as one.
+(4) The decisions of the Board shall be expressed in terms of the views of the majority and voting of the members present. If the members are equally divided, the Chairman shall have the power to exercise a casting vote.
