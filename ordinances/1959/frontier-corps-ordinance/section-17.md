@@ -1,0 +1,4 @@
+17. Jurisdiction.—(1) Notwithstanding anything contained in the Code of Criminal Procedure, 1898 (Act V of 1898), the [^19][Federal Government] may declare that any Court specified for the purpose and no other shall be deemed to be the Court of Session or the Court of a Magistrate for the disposal of cases or any class of cases arising under this Ordinance and that appeals from sentences passed under this Ordinance or from any class of such sentences shall lie to any authority specified by the [^19][Federal Government] and no other.
+(2) Any person invested with any powers under the Code of Criminal Procedure, 1898 (Act V of 1898), for the disposal of any case under this Ordinance within the limits of Pakistan shall, in relation to any case arising under this Ordinance beyond such limits, have the same power and be subject to the same conditions as to appeal and other matters as if such case had arisen within such limits.
+
+[^19]: Subs. by Act No. II of 1975, s. 2.

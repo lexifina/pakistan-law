@@ -1,0 +1,6 @@
+12. Deductions from pay and allowances.- The following penal deductions may be made from the pay and allowances of a member of the Frontier Corps by the Commandant under whom he is serving, that is to say, —
+(a) all pay and allowances excluding half mounting and warm clothing allowances for every day of absence either on desertion or without leave and for every day of imprisonment by a Criminal Court or of rigorous imprisonment awarded under section 10;
+(b) all pay and allowances excluding half mounting and warm clothing allowances for every day while he is in custody on a charge for an offence of which he is afterwards convicted;
+(c) all pay and allowances excluding half mounting and warm clothing allowances for every day on which he is in hospital on account of sickness certified by the medical officer attending on him at the hospital to have been caused by an offence under this Ordinance committed by him;
+(d) good service or good conduct pay ordered to be forfeited under section 10; and
+(e) such sum as may be ordered by the Inspector General or the Commandant in order to make good any expenses caused by the member of the Frontier Corps, or any loss by him of, or damage or destruction done by him to, any arms, ammunition, equipment, clothings, instruments, decorations or necessaries belonging to the Frontier Corps or to any buildings or property.
