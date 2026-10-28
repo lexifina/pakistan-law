@@ -1,0 +1,3 @@
+8. Jurisdiction to try offences.— No court shall take cognizance of an offence punishable under this Act except upon a complaint in writing made by the Presiding Officer of the court or tribunal by which the judgement or order in respect of which the offence was committed was given or made, or by an officer generally or specially empowered by him in this behalf [^12][ or by any office holder of a registered Bar Association or a Bar council] and no court other than a court of session shall try any such offence.].
+
+[^12]: Ins. By The Law Reports (Amendment) Ord. 2002 (LXVII of 2002), ss. 2 and 3.

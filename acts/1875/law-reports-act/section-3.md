@@ -1,0 +1,5 @@
+3. Authority given only to authorized reports. No Court shall be bound to hear cited, or shall receive or treat as an authority binding on it, the report of any case [^7][decided] on or after the said day by any [^8][High Court], other than a report published under the authority of [^9][a Provincial Government].
+
+[^7]: Subs. ibid., for “decided by any of the said High Courts or by the Chief Court of Oudh on or after the said day.” For list of courts which are High Courts for the purposes of the Government of India Act, 1935, see s. 219 of that Act.
+[^8]: The original words "Court in British India which is a High Court for the purposes of the Government of India Act, 1935 “ have successively been amended by A.O., 1949, arts. 3(2) and 4, and the Central Laws (Statute Reform) Ordinance, 1960 (21 of 1960), s. 3 and 2nd Sch. (with effect from the 14th October, 1955), to read as above.
+[^9]: The original words” the G. G. in C. “have successively been subs. by the Devolution Act, 1920 (38 of 1920), s. 2 and Sch. I, A.O., 1937, and Ord. 21 of 1960, s. 3 and 2nd Sch. (with effect from the 14th October, 1955), to read as above.
