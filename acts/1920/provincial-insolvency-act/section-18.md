@@ -1,0 +1,1 @@
+18. Procedure for admission of petition. The procedure laid down in the Code of Civil Procedure, 1908 (V of 1908), with respect to the admission of plaints, shall, so far as it is applicable, be followed in the case of insolvency petitions.

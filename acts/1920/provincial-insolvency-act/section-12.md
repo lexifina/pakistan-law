@@ -1,0 +1,1 @@
+12. Verification of petitions. Every insolvency petition shall be in writing and shall be signed and verified in the manner prescribed by the Code of Civil Procedure, 1908 (V of 1908), for signing and verifying plaints.

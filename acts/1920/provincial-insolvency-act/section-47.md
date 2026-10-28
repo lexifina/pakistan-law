@@ -1,0 +1,6 @@
+47. Secured creditors.___ (1) Where a secured creditor realises his security, he may prove for the balance due to him, after deducting the net amount realised.
+(2) Where a secured creditor relinquishes his security for the general benefit of the creditors, he may prove for his whole debt.
+(3) Where a secured creditor does not either realise or relinquish his security, he shall, before being entitled to have his debt entered in the schedule, state in his proof the particulars of his security, and the value at which he assesses it, and shall be entitled to receive a dividend only in respect of the balance due to him after deducting the value so assessed.
+(4) Where a security is so valued, the Court may at any time before realisation redeem it on payment to the creditor of the assessed value.
+(5) Where a creditor, after having valued his security, subsequently realises it, the net amount realised shall be substituted for the amount of valuation previously made by the creditor, and shall be treated in all respects as an amended valuation made by the creditor.
+(6) Where a secured creditor does not comply with the provisions of this section, he shall be excluded from all share in any dividend.

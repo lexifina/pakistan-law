@@ -1,0 +1,1 @@
+29. Stay of pending proceeding. Any Court in which suit or other proceeding is pending against a debtor shall, on proof that an order of adjudication has been made against him under this Act, either stay the proceeding, or allow it to continue on such terms as such Court may impose.

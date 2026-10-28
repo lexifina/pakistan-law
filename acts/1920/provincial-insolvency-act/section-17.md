@@ -1,0 +1,1 @@
+17. Continuance of proceedings on death of debtor. If a debtor by or against whom an insolvency petition has been presented dies, the proceedings in the matter shall, unless the Court otherwise orders, be continued so far as may be necessary for the realisation and distribution of the property of the debtor.

@@ -1,0 +1,2 @@
+7. Petition and adjudication.___ Subject to the conditions specified in this Act, if a debtor commits an act of insolvency, an insolvency petition may be presented either by a creditor or by the debtor, and the Court may on such petition make an order (hereinafter called an order of adjudication) adjudging him an insolvent.
+Explanation.- The presentation of a petition by the debtor shall be deemed an act of insolvency within the meaning of this section, and on such petition the Court may make an order of adjudication.

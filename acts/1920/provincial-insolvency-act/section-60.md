@@ -1,0 +1,7 @@
+60. Special provisions in regard to immovable property.___ (1) In any local area in which a declaration has been made under section 68 of the Code of Civil Procedure, 1908 (V of 1908), and is in force, on sale of immovable property paying revenue to the Government or held or let for agricultural purposes shall be made by the receiver ; but, after the other property of the insolvent has been realised, the Court shall ascertain___
+(a) the amount required to satisfy the debts proved under this Act after deducting the monies already received ;
+(b) the immoveable property of the insolvent remaining unsold ; and
+(c) the incumbrances (if any) existing thereon ;
+and shall forward a statement to the Collector containing the particulars aforesaid; and thereupon the Collector shall proceed to raise the amount so required by the exercise of such of the powers conferred on him by paragraphs 2 to 10 of the Third Schedule to the said Code as he thinks fit, and subject to the provisions of those paragraphs so far as they are applicable, and shall hold at the disposal of the Court all sums that may come to his hands by the exercise of such powers.
+(2) Nothing in this Act shall be deemed to affect any provisions of any enactment for the time being in force prohibiting or restricting the execution of decrees or orders against immoveable property; and any such provisions shall be deemed to apply to the enforcement of an order of adjudication made under this Act as if it were such a decree or order.
+Distribution of Property

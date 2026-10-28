@@ -1,0 +1,3 @@
+26. Award of compensation.___ (1) Where a petition presented by a creditor is dismissed under sub-section (1) of section 25, and the Court is satisfied that the petition was frivolous or vexatious, the Court may, on the application of the debtor, award against such creditor such amount, not exceeding one thousand rupees, as it deems a reasonable compensation to the debtor for the expense or injury occasioned to him by the petition and the proceedings thereon, and such amount may be realised as if it were a fine.
+(2) An award under this section shall bar any suit for compensation in respect of such petition and the proceedings thereon.
+Order of Adjudication

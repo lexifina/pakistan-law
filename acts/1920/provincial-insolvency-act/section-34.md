@@ -1,0 +1,3 @@
+34. Debts provable under the Act.___ (1) Debts which have been excluded from the schedule on the ground that their value is incapable of being fairly estimated and demands in the nature of unliquidated damages arising otherwise than by reasons of a contract or a breach of trust shall not be provable under this Act.
+(2) Save as provided by sub-section (1), all debts and liabilities, present or future, certain or contingent, to which the debtor is subject when he is adjudged an insolvent, or to which he may become subject before his discharge by reason of any obligation incurred before the date of such adjudication, shall be deemed to be debts provable under this Act.
+Annulment of Adjudication
