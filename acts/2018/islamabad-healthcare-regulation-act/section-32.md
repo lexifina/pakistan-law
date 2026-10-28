@@ -1,0 +1,1 @@
+32. Cognizance by court. —(1) Save as provided in this Act, no court other than the Court of Sessions assume jurisdiction under this Act unless a complaint in writing is filled before the aforesaid court by the Authority?

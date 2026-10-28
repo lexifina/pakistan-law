@@ -1,0 +1,1 @@
+43. Public servant.—The Chairperson members and all other employees of the Authority shall be deemed to be public servants within the meaning of section 21 of the Pakistan Penal Code (Act XLV of 1860).

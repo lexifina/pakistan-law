@@ -1,0 +1,1 @@
+11. Delegation.—The Board may, by general or special order, delegate to the Chairperson or a member or an expert, consultant, adviser or other officer of the Board or any other entity any of its functions or a part thereof under this Act subject to such conditions or restrictions as it may determine.

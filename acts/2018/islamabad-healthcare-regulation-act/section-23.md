@@ -1,0 +1,1 @@
+23. Application for licence.—Within thirty days of the issuance of the certificate of registration or such other time as may be determined by the Authority, the healthcare establishment shall make an application, for a licence, to the Authority in the prescribed form which shall be accompanied by such particulars, documents and fees as the Authority may prescribe.
