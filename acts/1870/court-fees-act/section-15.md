@@ -1,0 +1,4 @@
+15. Refund where Court reverses or modifies its former decision on ground of mistake. Where an application for a review of judgment is admitted, and where, on the rehearing, the Court reverses or modifies its former decision on the ground of mistake in law or fact, the applicant shall be entitled to a certificate from the Court authorizing him to receive back from the Collector so much of the fee paid on the [^16][application] as exceeds the fee payable on any other application to such Court under the second schedule to this Act, No.1, clause (b) or clause (d).
+But nothing in the former part of this section shall entitle the applicant to such certificate where the reversal or modification is due, wholly or in part, to fresh evidence which might have been produced at the original hearing.
+
+[^16]: Subs. by Act No. XX of 1870, s. 1.

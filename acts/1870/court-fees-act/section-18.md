@@ -1,0 +1,3 @@
+18. Written examinations of complainants. When the first or only examination of a person who complains of the offence of wrongful confinement, or of wrongful restraint, or of any offence other than an offence for which police officers may arrest without a warrant, and who has not already presented a petition on which a fee has been levied under this Act, is reduced to writing under the provisions of the [^18][Code of Criminal Procedure, 1898 (Act V of 1898)] the complainant shall pay a fee of eight annas, unless the Court thinks fit to remit such payment.
+
+[^18]: Subs. by the Federal Laws (Revision and Declaration) Ordinance, 1981 (XXVII of 1981) s. 3 and II Sch.
