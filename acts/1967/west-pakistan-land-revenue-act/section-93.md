@@ -1,0 +1,1 @@
+93. Indemnity to Revenue Officer with respect to contents of proclamation. A Revenue Officer shall not be answerable for any error, mis-statement or omission in any proclamation under section 92 unless the same has been committed or made dishonestly.

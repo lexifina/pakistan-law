@@ -1,0 +1,1 @@
+106. Proclamation after postponement or on re-sale. A sale made after a postponement under section 96, and a re-sale consequent on a purchaser’s default under section 101 or on the setting aside of a sale under section 104, shall be made after the issue of a fresh proclamation in the manner provided for in section 94.

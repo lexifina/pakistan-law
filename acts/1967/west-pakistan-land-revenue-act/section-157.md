@@ -1,0 +1,2 @@
+157. Award of arbitrators and presentation thereof. (1) The arbitrators shall make an award in writing under their hands concerning the matters referred to them for arbitration, and state therein their reasons therefor, and any arbitrator dissenting from the award made by a majority of the arbitrators shall state the grounds of his dissent.
+(2) The arbitrators shall present the award to the Revenue Officer in person or by agent, or send the same to him by registered post.

@@ -1,0 +1,7 @@
+182. Power to make rules. The Board of Revenue, with the previous approval of Government, may, in addition to the other rules which may be made by it under this Act, make rules not inconsistent with this Act,—
+(a) fixing the number and amount of the installments and the times and places and the manner, by, at and in which any sum other than rent or land-revenue which is payable under this Act or of which a record has been made thereunder is to be paid ;
+(b) fixing the dates on which profits are to be divisible by headman or other persons by whom they are realized on behalf of co-sharers ;
+(c) prescribing the fees to be charged for the service and execution of processes issued by Revenue Officers and Revenue Courts, the mode in which those fees are to be collected, the number of persons to be employed in the service and execution of those processes, and the remuneration and duties of those persons ;
+(d) regulating the procedure in case where persons are entitled to inspect records of Revenue Officers or records or papers in the custody of Village Officers, or to obtain copies of the same, and prescribing the fees payable for searches and copies ;
+(e) prescribing forms for such books, entries, statistics and accounts as the Board of Revenue thinks necessary to be kept, made or compiled in Revenue Offices or submitted to any authority ; and
+(f) generally for carrying out the purpose of this Act.

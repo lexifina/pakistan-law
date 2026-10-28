@@ -1,0 +1,2 @@
+103. Application to set aside sale. (1) At any time within thirty days from the date of the sale, application may be made to the Commissioner to set aside the sale on the ground of some material irregularity or mistake in publishing or conducting it.
+(2) A sale shall not be set aside on any of the grounds specified in sub-section (1) unless the applicant proves to the satisfaction of the Commissioner that he has sustained substantial injury by reason of the irregularity or mistake.

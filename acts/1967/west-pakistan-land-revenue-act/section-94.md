@@ -1,0 +1,3 @@
+94. Publication of proclamation. A copy of the proclamation shall be served on the defaulter and be affixed in a conspicuous part of the office of the Tahsildar of the Tahsil in which the property to be sold is situate and shall also be posted in the office of the Collector.
+(2) The proclamation shall further be published in the manner prescribed in section 26, and in such other manner as the Collector thinks expedient.
+(3) A Copy of the proclamation may also be posted in the office of the Union Committee, Town Committee or Union Council within the area of which property to be sold is situate.

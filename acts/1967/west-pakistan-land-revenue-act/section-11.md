@@ -1,0 +1,1 @@
+11. Tahsildars, etc. The chief officer entrusted with the local revenue administration of a Tahsil shall be called the Tahsildar (which also includes a Mukhtiarkar), who shall exercise such powers and discharge such duties of an Assistant Collector as may be expressly conferred or imposed on him by or under this Act.

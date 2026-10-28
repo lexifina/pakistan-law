@@ -1,0 +1,1 @@
+145. Instrument of partition. When a partition is completed, the Revenue Officer shall cause an instrument of partition to be prepared and the date on which the partition is to take effect to be recorded therein.

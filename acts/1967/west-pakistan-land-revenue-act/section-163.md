@@ -1,0 +1,11 @@
+163. Review. (1) A Commissioner, Collector or an Assistant Collector, may, at any time, on his own motion, review any order passed by himself or any of his predecessors-in-office, and on so reviewing modify, reverse or confirm the same.
+(2) Any person considering himself aggrieved by an order passed by a Commissioner, Collector or an Assistant Collector, and who, from the discovery of new and important matter or evidence which, after the exercise of due diligence was not within his knowledge or could not be produced by him at the time when the order was passed, or on account of some mistake or error apparent on the face of the record or for any other sufficient reason, desires to obtain a review of the order passed against him, may apply for a review of the order to the Commissioner, Collector or Assistant Collector, as the case may be, and such officer may modify, reverse or confirm any order passed by himself or by any of his predecessors-in-office:
+Provided that—
+(a) an order passed by his predecessor-in-office shall not be reviewed under sub-section (1) or sub-section (2) by the—
+(i) Commissioner, without first obtaining the sanction of the Board of Revenue;
+(ii) Collector, without first obtaining the sanction of the Commissioner, and no order shall be reviewed by any other Revenue Officer, without first obtaining the sanction of the Revenue Officer to whose control he is immediately subject;
+(b) an application for review of an order shall not be entertained unless it is made within ninety days from the passing of the order, or unless the applicant satisfies the Revenue Officer that he had sufficient cause for not making the application within that period;
+(c) an order shall not be modified or reversed unless reasonable notice has been given to the parties affected thereby to appear and be heard in support of the order;
+(d) an order against which an appeal has been preferred shall not be reviewed.
+(3) For the purposes of this section, the Collector shall be deemed to be successor-in-office of any Revenue Officer of a lower class who has left the district or has ceased to exercise powers as a Revenue Officer, and to whom there is no successor-in-office.
+(4) An appeal shall not lie from an order refusing to review or confirming on review a previous order.

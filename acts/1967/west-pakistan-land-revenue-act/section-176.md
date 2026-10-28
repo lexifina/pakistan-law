@@ -1,0 +1,2 @@
+176. Papers kept by Village Officers to be deemed public documents. (1) Any record or paper which a Village Officer is required by law, or by any rule made under this Act, to prepare or keep shall be deemed to be the property of Government.
+(2) A Village Officer shall, with respect to any record or paper in his custody be deemed, for the purposes of the evidence Act, 1872 (Act I of 1872), to be a public officer having the custody of a public document which any person has a right to inspect.

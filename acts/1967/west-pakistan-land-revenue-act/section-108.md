@@ -1,0 +1,4 @@
+108. Sale of movable property and perishable articles. (1) The provisions of sections 92, 93, 94, 95, 96, 97, 103, 104, 105 and l06 shall apply, so far as they can be made applicable, to sale of movable property, other than perishable articles, and as if—
+(a) reference to the Commissioner in section 103 and 104 were a reference to the Collector; and
+(b) in the case of sale of animals, the period of thirty days prescribed in section 95, were a period of ten days.
+(2) Perishable articles shall be sold by auction with the least possible delay in accordance with such order as may from time to time be made by the Collector, either generally or specially in that behalf, and the sale of such articles shall be finally concluded on the spot by the officer conducting such sale and shall not require confirmation.

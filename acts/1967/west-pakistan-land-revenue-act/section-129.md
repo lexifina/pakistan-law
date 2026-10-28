@@ -1,0 +1,3 @@
+129. Cost of erection and repair of boundary and survey marks. (1) Subject to any rules which the Board of Revenue may, with the previous approval of Government, make in this behalf, boundary and survey marks shall be erected and kept in repair by or at the cost of the persons interested in the land for the indication of the limits of which they are required :
+Provided that Government may in any case direct that the cost of erection shall be borne by Government or be paid out of the proceeds of the Village Officers’ cess.
+(2) It shall be the duty of the Village Officers to prevent the destruction or unauthorized alteration of the village boundary and survey marks.

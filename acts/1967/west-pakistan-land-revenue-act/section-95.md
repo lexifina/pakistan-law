@@ -1,0 +1,2 @@
+95. Time and conduct of sale. (1) The sale shall not take place on a Sunday or other holiday, or till after the expiration of at least thirty days from the date on which the copy of the proclamation was posted in the office of the Collector.
+(2) The sale shall be by publication and shall be conducted either by the Collector in person or by a Revenue Officer specially appointed by him in this behalf.

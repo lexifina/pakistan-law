@@ -1,0 +1,4 @@
+122. Effect of the settlement of boundary. (1) The settlement of a boundary under any of the foregoing provisions of this Chapter shall, subject to the provisions of Chapter XIII, be determinative—
+(a) of the proper position of the boundary line or boundary marks, and
+(b) of the rights of the land-owners on either side of the boundary fixed in respect of the land adjudged to appertain, or not to appertain, to their respective holdings.
+(2) Where a boundary has been so fixed, the Collector may, under rules to be framed in this behalf be the Board of Revenue with the previous approval of Government, evict any land-owner who is wrongfully in possession of any land which has been adjudged in the settlement of a boundary not to appertain to his holding or to the holding of any person through or under whom he claims.

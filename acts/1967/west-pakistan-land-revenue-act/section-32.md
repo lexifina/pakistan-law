@@ -1,0 +1,1 @@
+32. Proceedings held on holidays. Any proceedings held before a Revenue Officer under this Act on a day notified as a holiday, shall not be invalid by reason of such proceedings having been held on that day.

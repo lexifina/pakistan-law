@@ -1,0 +1,1 @@
+105. Refund or deposit of purchase-money when sale set aside. Whenever the sale of any property is not confirmed or is set aside, the purchaser shall be entitled to receive back his deposit or his purchase money, as the case may be.

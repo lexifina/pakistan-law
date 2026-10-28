@@ -1,0 +1,2 @@
+27. Inquiries under the Act to be deemed judicial proceedings. (1) Every inquiry under this Act shall be deemed to be a “judicial proceeding” within the meaning of sections 193,219 and 228 of the Pakistan Penal Code 1860, (Act XLV of 1860), and the Revenue Officer holding an inquiry shall be deemed to be a Court for the purposes of such inquiry.
+(2) Every hearing and decision in such inquiry shall be in public, and the parties or their authorised agents shall have due notice to attend.

@@ -1,0 +1,3 @@
+130. Recovery of cost incurred by Government. (1) If the persons interested in the land fail to erect or repair a boundary or survey mark within thirty days from the date of their being required by a Revenue Officer to do so, the Revenue Officer may cause it to be erected or repaired.
+(2) Where the Revenue Officer causes a boundary or survey mark to be erected or repaired he shall, subject to any rules or direction under section 129, apportion the cost among the person interested in the land in such manner as he deems just, and certify, the same to the Collector.
+(3) The Collector may recover the cost form such persons as if it were an arrear of land-revenue.

@@ -1,0 +1,1 @@
+23. Summons to be in writing, signed and sealed. Every summons shall be in writing, in duplicate and shall state the purpose for which it is issued, and shall be signed by the Revenue Officer issuing it, and if he has a seal, shall also bear his seal.

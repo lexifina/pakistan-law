@@ -1,0 +1,3 @@
+91. Remedies open to person denying his liability for an arrear. (1) Notwithstanding anything in section 79, when proceedings are taken under this Act for the recovery of an arrear, the person against whom the proceedings are taken may, if he denies his liability for the arrear or any part thereof and pays the same under protest made in writing at the time of payment and signed by him or his agent, institute a suit in Civil Court for the recovery of the amount so paid.
+(2) A suit under sub-section (l) must be instituted in a Court having jurisdiction in the place where the office of the Collector of the District in which the arrear or some part thereof accrued is situate.
+Procedure in Sales

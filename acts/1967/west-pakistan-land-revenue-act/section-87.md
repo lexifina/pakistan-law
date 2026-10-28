@@ -1,0 +1,4 @@
+87. Proclamation of attachment or annulment of assessment and consequences of
+proclamation. (l) When any land is attached under section 85, or when the assessment of any land has been annulled under section 86, the Collector shall make proclamation thereof.
+(2) No payment made by any person to the defaulter before the making of the proclamation on account of rent or any other asset in anticipation of the usual time for the payment shall, without the previous sanction of the Collector, be credited to that person or relieve him from liability to make the payment to the Collector or his agent or farmer.
+(3) No payment made after the making of the proclamation on account of rent or any other asset of the holding to any person other than the Collector or his agent or farmer shall be credited to the person making the payment or relieve him from liability to make the payment to the Collector or his agent or farmer.

@@ -1,0 +1,2 @@
+48. Penalty. A person neglecting to make, within three months from the date of his acquisition of a right referred to in section 42, the report required to be made under that section or who fails to furnish the information or produce the documents required by section 47, shall be liable, at the discretion of Collector, to a fine not exceeding twenty-five rupees.
+Rights of Government and presumptions with respect thereto and to other matters.

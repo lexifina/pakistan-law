@@ -1,0 +1,2 @@
+58. Limit of assessment. If the land-revenue is assessed as a fixed annual charge, the amount thereof, and if it is assessed in the form of prescribed rate, the average amount which, according to an estimate in writing approved by Government or the Board of Revenue, as the case may be, will be leviable annually, shall not, in the case of an assessment circle, exceed one-fourth of the estimated money-value of the net assets of such assessment circle.
+General Assessments

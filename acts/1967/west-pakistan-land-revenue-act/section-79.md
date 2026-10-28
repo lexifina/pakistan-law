@@ -1,0 +1,1 @@
+79. Certified account to be evidence as to arrear. A statement of account certified by a Revenue Officer shall be conclusive proof of the existence of an arrear of land-revenue, of its amount and of the person who is the defaulter.

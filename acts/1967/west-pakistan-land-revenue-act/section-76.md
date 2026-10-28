@@ -1,0 +1,2 @@
+76. Orders to regulate payment of land-revenue. (1) Notwithstanding anything in any record-of-rights, the Board of Revenue may fix the number and amount of the instalments, and the times, places and manner, by, at and in which the land-revenue is to be paid.
+(2) Until the Board of Revenue otherwise directs, land-revenue shall be payable by the installments at the times and places and in the manner, by, at and in which it is payable immediately before the commencement of this Act.

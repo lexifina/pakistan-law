@@ -1,0 +1,2 @@
+37. Village Officers’ cess. (1) Government may, by notification, impose on all or any of the estates in the Province, a cess to be called the Village Officers’ cess, at such rate or rates, not exceeding five per centum of the land-revenue, as it may think fit, for remunerating Village Officers, other than those who are Government servants.
+(2) The Board of Revenue may, with the previous approval of Government, make rules for the collection, control and distribution of the Village Officers’ cess.

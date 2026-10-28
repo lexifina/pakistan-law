@@ -1,0 +1,1 @@
+77. Rules to regulate collection, remission and suspension of land-revenue. The Board of Revenue may, with the previous approval of Government, make rules not inconsistent with this Act to regulate the collection, remission and suspension of land-revenue.

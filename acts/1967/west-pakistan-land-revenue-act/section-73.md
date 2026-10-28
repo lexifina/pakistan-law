@@ -1,0 +1,1 @@
+73. Power to issue instructions. Government or the Board of Revenue with the approval of Government may, for the guidance of Revenue Officers, from time to time, issue executive instructions relating to all matters to which the provisions of this Chapter apply; provided that such instruction shall be consistent with the provisions of this Act and the rules made thereunder.

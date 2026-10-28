@@ -1,0 +1,1 @@
+132. Report of destruction or removal of or injury to boundary or survey marks. Every Village Officer of an estate shall be bound to furnish a Revenue Officer with information respecting the destruction or removal of, or any injury done to, any boundary or survey mark lawfully erected in the estate.

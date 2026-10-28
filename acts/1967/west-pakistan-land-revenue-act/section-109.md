@@ -1,0 +1,2 @@
+109. Mode of payment for movable property when sale is concluded on the spot. (1) When the sale of any perishable article is finally concluded by the officer conducting the same, the price of every lot shall be paid for at the time of sale, or as soon thereafter as the said officer may fix, and in default of such payment the property shall forthwith be again put to auction and sold.
+(2) On payment of the purchase-money, the officer conducting the sale shall grant a receipt for the same and the sale shall become absolute as against all persons whomsover.

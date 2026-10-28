@@ -1,0 +1,1 @@
+148. Power to make rules as to cost of partition. The Board of Revenue may, with the previous approval of Government, make rules for determining the costs of partitions under this Chapter and the mode in which such costs are to be apportioned.
