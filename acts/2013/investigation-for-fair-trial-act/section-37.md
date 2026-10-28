@@ -1,0 +1,1 @@
+37. Power to amend the Schedule.____ The Federal Government may by notification in the Official Gazette amend Schedules II, III and IV by adding any entry therein, omitting any entry therefrom or modifying any entry therein.

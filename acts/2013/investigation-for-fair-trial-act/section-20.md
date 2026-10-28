@@ -1,0 +1,1 @@
+20. Service provider to cooperate. ____ In the event the service provider declines, fails or interferes in any manner in the execution of warrant then he shall be liable to have committed an offence under this Act for obstructing investigation and justice and shall be punished with fine upto ten million rupees.

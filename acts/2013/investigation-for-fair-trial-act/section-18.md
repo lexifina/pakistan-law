@@ -1,0 +1,1 @@
+18. Indemnity for service provider. ___ Access granted by the service provider in accordance with this law shall not be called in question under any law by any person who may have been prejudiced by such access.

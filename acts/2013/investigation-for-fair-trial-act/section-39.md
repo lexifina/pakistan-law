@@ -1,0 +1,1 @@
+39. Removal of difficulty.___ If any difficulty arises in giving effect to any provision of this Act, for a period of one year from its coming into force the Federal Government may, by Order not inconsistent with the provisions of the Act, remove the difficulty.

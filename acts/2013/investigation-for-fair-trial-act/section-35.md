@@ -1,0 +1,1 @@
+35. Unauthorized surveillance or interception.___ Any person who carries out any surveillance or interception except in accordance with the provision of this Act shall in addition to any other punishment to which he may be liable under any other law for the time being in force be punished with imprisonment for upto three years and shall also be liable to fine.

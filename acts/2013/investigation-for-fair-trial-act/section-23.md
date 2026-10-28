@@ -1,0 +1,2 @@
+23. Admissibility of warrant based information. ___(1) Notwithstanding anything contained in the Qanun-e-Shahadat Order, 1984 (P.O. 10 of 1984) or any other law for the time being in force, the evidence including data, information, documents or any other material collected or received under this Act shall be admissible as evidence in the legal proceedings.
+(2) Nothing contained in sub-section (1), shall debar the admissibility of evidence collected or received, prior to the coming into force or this Act, under the provisions of any other law for the time being in force.

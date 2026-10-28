@@ -1,0 +1,1 @@
+38. Act to have effect notwithstanding existing laws.___ The provisions of this Act shall have effect, notwithstanding anything contained in any other law for the time being in force including the Code of Criminal Procedure, 1898 (Act V of 1898) and Qanun-e-Shahadat, 1984 (P.O. 10 of 1984).

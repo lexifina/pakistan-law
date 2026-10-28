@@ -1,0 +1,1 @@
+32. Warrants received from outside Pakistan.__ Warrants received from outside Pakistan may be executed by the Designated Agency or Body in the light of mutual legal assistance mechanism as agreed between Pakistan and the concerned foreign state as provided under the law, treaty or agreement.
