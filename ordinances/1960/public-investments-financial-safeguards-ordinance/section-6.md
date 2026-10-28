@@ -1,0 +1,1 @@
+6. Penalties.—Whoever fails to discharge any duty imposed by or under this Ordinance, or to comply with any direction given or any rule or order made or issued thereunder, shall be punishable with simple imprisonment for a term which may extend to three months, or with fine which may extend to ten thousand rupees, or with both.
