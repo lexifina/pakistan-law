@@ -1,0 +1,1 @@
+15. Breach of licence: Whoever, in violation of a condition subject to which a licence has been granted, does or omits to do any act shall, when the doing or omitting to do such act is not punishable under Sec. 13 or Section 14, be punished with fine which may extend to five hundred rupees.

@@ -1,0 +1,2 @@
+25. Operation of other laws not barred: Nothing in this Ordinance shall be deemed to prevent any person from being prosecuted under any other law for any act or omission which constitutes an offence against this Ordinance or the rules or from being liable under such other law to any higher punishment or penalty than that provided by this Ordinance:
+Provided that no person shall be punished twice for the same offence.

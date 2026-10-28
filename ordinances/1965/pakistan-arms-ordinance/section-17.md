@@ -1,0 +1,1 @@
+17. Penalty for breach of rules: Any person violating any provision of any rule made under this Ordinance for the violation of which no penalty is provided by this Ordinance, shall be punished with fine which may extend to two hundred rupees.

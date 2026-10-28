@@ -1,0 +1,11 @@
+10. In certain cases arms to be deposited at police station or with licensed dealers:__ (1) Any person possessing arms, ammunition or military stores the possession whereof, has, in consequence of the cancellation or expiry of a licence or of an exemption or the death of the licensee or otherwise, become unlawful, shall without unnecessary delay deposit the same either with the officer incharge of the nearest police station or, at his option and subject to such conditions as Government, may by rule prescribe, with a licensed dealer:
+provided that where, within one month of the expiry of a licence an application for its renewal has been made by registered post or by hand, the retention by the holder of such licence of the arms, ammunition or military stores covered by the licence shall be deemed to be lawful until such time as the licence has been renewed or its renewal refused.
+(2) When arms, ammunition or military stores have been deposited under sub-section (1), the depositor, or in case of his demise, his legal heir, shall, at any time before the expiry of such period as Government may by rules prescribe, be entitled—
+(a) to receive back anything so deposited the possession of which by him or his legal heirs has become lawful; and (b) to dispose, or authorise the disposal, of anything so deposited by sale or otherwise to any person whose possession of the same would be lawful, and to receive the proceeds of any such sale:
+Provided that nothing in this sub-section shall be deemed to authorise the return or disposal of anything the confiscation of which has been directed under Section [^8][20].
+(3) All things deposited under sub-section (1) and not returned or disposed of under sub-section (2) Within the prescribed period therein referred to, shall be forfeited to Government.
+(4) (a) Government may make rules consistent with this Ordinance for carrying into effect the provisions of this section.
+(b) In particular and without prejudice to the generality of the foregoing provision, Government may by rules prescribe—
+(i) the conditions subject to which arms, ammunition or military stores may be deposited with a licensed dealer; and (ii) the period after the expiry of which things deposited as aforesaid shall be forfeited under sub- section (3).
+
+[^8]: Subs. by W.P. Ord. XI of 1969, for the figure “19”.

@@ -1,0 +1,1 @@
+19. Penalty for refusing or neglecting to produce arms: Any person refusing or neglecting to produce any arms when so required under section 26 shall be punished with imprisonment for a term which may extend to one month or with fine which may extend to two hundred rupees, or with both.
