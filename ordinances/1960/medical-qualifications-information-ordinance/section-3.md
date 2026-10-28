@@ -1,0 +1,1 @@
+3. Liability to furnish information.___All persons residing in Pakistan, of whatever nationality, and falling within any of the Categories specified in the First Schedule, whether in the employment of Government or not, shall furnish information to the Director-General in the Form given in the Second Schedule.

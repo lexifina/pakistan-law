@@ -1,0 +1,2 @@
+5. Penalty and procedure.___(1) Any person who, without sufficient cause, fails to furnish the information required under this Ordinance shall be punishable with imprisonment for a term which may extend to one month, or with fine which may extend to one thousand rupees, or with both.
+(2) No Court shall take cognizance of an offence punishable under this Ordinance save on a complaint in writing made by or under the authority of the Director-General.
