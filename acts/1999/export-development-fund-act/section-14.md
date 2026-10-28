@@ -1,0 +1,1 @@
+14. Recruitment and terms and conditions of service and disciplinary powers. The Board shall prescribe the procedure for appointment and conditions of service for its officers and servants including disciplinary action and penalties.

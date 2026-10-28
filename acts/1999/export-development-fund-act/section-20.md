@@ -1,0 +1,3 @@
+20. Submission of annual reports.—(1) As soon as possible, an annual report on the conduct of its affairs shall be submitted by the Board to the Federal Government after the end of the every financial year but before the last day of December next following during the year.
+(2) A copy of the report referred to in sub-section (1) together with a copy of the audit report referred to in section 18 shall be placed by the Federal Government before the National Assembly.
+(3) The Federal Government may call upon the Board to supply any information pertaining to its responsibilities under this Act and the Board shall comply with such requirements without unnecessary delay.

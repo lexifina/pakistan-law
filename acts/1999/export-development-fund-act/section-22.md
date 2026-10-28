@@ -1,0 +1,1 @@
+22. Delegation.⸻ The Board may, by general or special order, delegate to the Chairman, member or an officer of the Board any of its powers, duties or functions under this Act subject to such conditions as it may think fit to approve.

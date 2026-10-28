@@ -1,0 +1,4 @@
+26. Savings. Upon the commencement of this Act.—(a) all funds, properties, rights and interests of whatsoever kind issued, used, enjoyed, possessed, owned or vested in the Board set up under Government of Pakistan, Ministry of Commerce Resolution No. 843 (I)/92, dated the 1st September, 1992, and all liabilities legally subsisting against the said Board shall stand transferred to the Board established under this Act; and
+(b) everything done, action taken, obligations or liabilities incurred, rights and assets acquired, persons appointed or authorized, powers conferred, funds or trusts created, donations or grants made, orders issued and rules or regulations made by the Board established under the Resolutions referred to in clause (a) shall be deemed to have been respectively done, taken, incurred, acquired, appointed, authorised, conferred, created, made or issued under this Act.
+_____________
+RGN Date: 04-02-2026
