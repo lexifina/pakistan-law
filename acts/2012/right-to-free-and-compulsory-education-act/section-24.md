@@ -1,0 +1,2 @@
+24. No Advertisement without Registration.—(1) No person shall promote an educational institution, whether by advertisement, prospectus, brochure or otherwise, unless the educational institution has been registered or a provisional certificate of registration has been issued.
+(2) A person who contravenes sub-section (1) shall be guilty of an offence and shall, on conviction, be liable to a fine not exceeding one hundred thousand rupees or to imprisonment for a term not exceeding one year or to both.
