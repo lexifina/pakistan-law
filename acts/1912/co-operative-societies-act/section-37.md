@@ -1,0 +1,1 @@
+37. Costs of inquiry. Where an inquiry is held under section 35, or an inspection is made under section 36, the Registrar may apportion the costs, or such part of the costs as he may think right, between the society, the members or creditor demanding an inquiry or inspection, and the officers or former officers of the society.

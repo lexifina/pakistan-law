@@ -1,0 +1,3 @@
+11. Amendment of the bye-laws of a registered society.—(1) No amendment of the bye-laws of a registered society shall be valid until the same has been registered under this Act, for which purpose a copy of the amendment shall be forwarded to the Registrar.
+(2) If the Registrar is satisfied that any amendment of the bye-laws is not contrary to this Act or to the rules, he may, if he thinks fit, register the amendment.
+(3) When the Registrar registers an amendment of the byelaws of a registered society, he shall issue to the society a copy of the amendment certified by him, which shall be conclusive evidence that the same is duly registered.

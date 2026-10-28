@@ -1,0 +1,3 @@
+## INSPECTION OF AFFAIRS
+35. Inquiry by Registrar.—(1) The Registrar may of his own motion, and shall on the request of the Collector, or on the application of a majority of the committee, or of not less than one-third of the members, hold an inquiry or direct some person authorised by him by order in writing in this behalf to hold an inquiry into the constitution, working and financial condition of a registered society.
+(2) All officers and members of the society shall furnish such information in regard to the affairs of the society as the Registrar or the person authorised by the Registrar may require.

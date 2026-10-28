@@ -1,0 +1,4 @@
+21. Shares or interest not liablie to attachment. Subject to the provisions of section 20, the share or interest of a member in the capital of a registered society shall not be liable to attachment or sale under any decree or order of a Court of Justice in respect of any debt or liability incurred by such member, and neither the Official Assignee under [^5][the Insolvency (Karachi Division) Act], nor a Receiver under the [^6][Provincial Insolvency Act, 1920 (V of 1920)], shall be entitled to or have ' any claim on such share or interest.
+
+[^5]: the Original word “the Presidency-towns. Insolvency Act, 1909” were first subs. By the Federal Laws (Revision and Declaration) Act, 1951 (26 of 1951), s. 4 and III Sch., and then amended by the Repealing and Amending Ordinance, 1961 (1 of 1961), s. 3 and 2nd Sch., and A.O., 1964, Art. 2 and Sch., to read as above.
+[^6]: Subs by Ord. XXVII of 1981, s.5 and Sch IV (only to the extent of Islamabad Capital Territory).

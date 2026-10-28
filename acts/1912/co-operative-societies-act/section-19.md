@@ -1,0 +1,5 @@
+19. Prior claim of society. Subject to any prior claim of the [^4][Government] in respect of land-revenue or any money recoverable as land-revenue or of a landlord in respect of rent or any money recoverable as rent, a registered society shall be entitled in priority to other creditors to enforce any outstanding demand due to the society from a member or past member—
+(a) in respect of the supply of seed or manure or of the loan of money for the purchase of seed or manure upon the crops or other agricultural produce of such member or person at any time within eighteen months from the date of such supply or loan;
+(b) in respect of the supply of cattle, fodder for cattle, agricultural or industrial implements or machinery, or raw materials for manufacture, or of the loan of money for the purchase of any of the foregoing things-upon any such things so supplied, or purchased in whole or in part from any such loan, or on any articles manufactured from raw materials so supplied or purchased.
+
+[^4]: Subs. By A.O., 1961, Art. 2 (with effect from the 23rd March, 1956), for “Crown” which had been subs. By A. O., 1937, for “Govt”.

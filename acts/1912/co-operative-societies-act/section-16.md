@@ -1,0 +1,1 @@
+16. Copy of Act, rules and bye-laws to be open to inspection. Every registered society shall keep a copy of this Act and of the rules governing such society, and of its bye-laws, open to inspection free of charge at all reasonable times at the registered address of the society.

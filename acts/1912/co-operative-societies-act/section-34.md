@@ -1,0 +1,1 @@
+34. Contribution to charitable purpose. Any registered society may, with the sanction of the Registrar, after one-fourth of the net profits in any year has been carried to a reserve fund, contribute an amount not exceeding ten per cent of the remaining net profits to any charitable purpose, as defined in section 2 of the Charitable Endowments Act, 1890 (VI of 1890).

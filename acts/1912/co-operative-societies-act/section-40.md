@@ -1,0 +1,1 @@
+40. Cancellation of registration of society. Where it is a condition of the registration of a society that it should consist of at least ten members, the Registrar may, by order in writing, cancel the registration of the society if at any time it is proved to his satisfaction that the number of the members has been reduced to less than ten.

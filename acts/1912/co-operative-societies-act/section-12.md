@@ -1,0 +1,2 @@
+## RIGHTS AND LIABILITIES OF MEMBERS
+12. Member not to exercise rights till due payment made. No member of a registered society shall exercise the rights of a member unless or until he has made such payment to the society in respect of membership or acquired such interest in the society, as may be prescribed by the rules or bye-laws.

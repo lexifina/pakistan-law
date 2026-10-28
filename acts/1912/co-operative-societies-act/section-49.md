@@ -1,0 +1,1 @@
+49. Savings of existing societies. Every society now existing which has been registered under the Co-operative Credit Societies Act, 1904 (X of 1904) shall be deemed to be registered under this Act, and its bye-laws shall, so far as the same are not inconsistent with the express provisions of this Act, continue in force until altered or rescinded.

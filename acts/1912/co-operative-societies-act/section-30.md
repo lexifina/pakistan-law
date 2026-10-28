@@ -1,0 +1,1 @@
+30. Restrictions on borrowing. A registered society shall receive deposits and loans from persons who are not members only to such extent and under such conditions as may be prescribed by the rules or bye-laws.
