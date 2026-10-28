@@ -1,0 +1,1 @@
+11. Pro-Chancellor.— The Provincial minister-in-charge of the concerned department dealing with the subject of higher education shall be the Pro-Chancellor of the Institute and shall in absence of the chancellor preside over the convocation of the Institute.
