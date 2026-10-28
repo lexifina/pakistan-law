@@ -1,0 +1,1 @@
+12. Final notification of defining limits of graveyard. When all applications presented under section 6 have been disposed of by the Tribunal the Government shall issue a final notification defining the limits of the area of the graveyard.

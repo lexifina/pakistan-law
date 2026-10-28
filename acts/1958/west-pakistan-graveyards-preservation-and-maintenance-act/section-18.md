@@ -1,0 +1,1 @@
+18. Contribution by local bodies. The Government may require any local authority to pay such annual contributions to the Committee, for the maintenance of the graveyard, as may be fixed from time to time.
