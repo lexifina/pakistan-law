@@ -1,0 +1,4 @@
+2. Power to declare organisation illegal.___(1) If the Federal Government is satisfied that any private organisation is capable of functioning as a military organisation in violation of the prohibition in Article 256 of the Constitution, the Federal Government may, by notification published in the official Gazette, direct that the organisation shall stand abolished forthwith.
+(2) Every such notification shall specify the grounds on which it is issued:
+Provided that nothing in this sub-section shall require the Federal Government to disclose any fact which it considers to be against the public interest to disclose.
+Explanation.— For the purposes of this section and section 3, an organisation shall be deemed to be capable of functioning as a military organisation if it is organised, trained or equipped so as to be capable of being employed for the use or display of physical force in promoting or attaining any object.
