@@ -1,0 +1,3 @@
+2. Levy of surcharge.—(1) There shall be levied and collected on all goods, other than foodgrains, fertilizers and petroleum products, imported through the Karachi customs-port a development surcharge at the rate of three rupees and fifty paisa per ton.
+Explanation.— In this sub-section, “petroleum products” has the same meaning as in the Petroleum Products (Development Surcharge) Ordinance, 1961 (XXV of 1961).
+(2) As soon as may be after the close of each month, the proceeds of the development surcharge recovered during that month shall, after deduction of two and one half percent thereof as expenses of collection and recovery, be paid to the Federal Government.

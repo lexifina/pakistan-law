@@ -1,0 +1,1 @@
+3. Customs Act, 1969 (IV of 1969), to apply. Subject to sub-section (1) of section 2, the provisions of the Customs Act, 1969 (1V of 1969), shall have effect in respect of the development surcharge levied under this Ordinance as if it were a duty levied under that Act.
