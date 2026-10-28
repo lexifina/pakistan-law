@@ -1,0 +1,7 @@
+[^33][27. Prohibition of broadcast media or distribution service operation.__ The Authority shall by order in writing, giving reasons therefore, prohibit any broadcast media or distribution service operator [^34][or person] from⸺
+(a) broadcasting or re-broadcasting or distributing any programme or advertisement [^34][or expression by any person] if it is of the opinion that such particular programme or advertisement [^34][or expression by any person] is against the ideology of Pakistan or is likely to create hatred among the people or is prejudicial to the maintenance of law and order or is likely to disturb public peace and tranquility or endangers national security or is pronographic, obscene or vulgar or is offensive to the commonly accepted standards of decency; or
+(b) engaging in any practice or act which amounts to abuse of media power by way of harming the legitimate interests of another licensee or willfully causing damage to any other person [^34][:]]
+[^34][Provided that the Authority after prohibiting the programme or advertisement or expression by any person under clause (a) may refer the matter to the Council of Complaints for appropriate recommendations. The Council, after hearing the concerned licensee or person, as the case may be, may recommend within thirty days to the Authority to take appropriate action as empowered under this Ordinance.]
+
+[^33]: Subs. by the Pakistan Electronic Media Regulatory Authority (Amdt.) Act, 2007(Act II of 2007), s.17, for “section 27”.
+[^34]: Ins., sub. and added by Act LXI of 2023, s.12.

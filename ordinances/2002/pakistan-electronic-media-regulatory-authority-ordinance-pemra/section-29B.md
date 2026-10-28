@@ -1,0 +1,1 @@
+29B. Dues to be recovered as arrears of land revenue.— All dues including outstanding licence fee, annual renewal fee or any other charges including fine as imposed by the Authority shall be recoverable as arrears of land revenue.]

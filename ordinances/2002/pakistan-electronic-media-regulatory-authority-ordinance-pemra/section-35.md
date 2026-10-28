@@ -1,0 +1,2 @@
+35. Cognizance of offences etc.⸺ (1) No court inferior to that of a Magistrate of the first class shall try an offence punishable under this Ordinance.
+(2) Notwithstanding anything contained in section 32 of the Code of Criminal Procedure, 1898 (Act V of 1898), it shall be lawful for any Magistrate of the first class to pass any sentence authorized by this Ordinance even if such sentence exceeds his powers under the said section 32.

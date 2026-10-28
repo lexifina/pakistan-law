@@ -1,0 +1,1 @@
+17. Annual report.__ The Authority shall compile and submit an annual report on its operations and accounts for each financial year to the President of Pakistan and shall also arrange for its publication and circulation to the media and the public.
