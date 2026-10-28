@@ -1,0 +1,1 @@
+20. Exemption of Agency vessels, etc., from port charges. The exemption from the levy of any port tax, toll, rate or other charges in any part of Pakistan, allowed to the vessels, ships and crafts of the Pakistan Navy, shall to the same extent and manner, be admissible to the vessels, ships and crafts of the Agency.
