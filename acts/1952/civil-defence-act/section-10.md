@@ -1,0 +1,3 @@
+10. Repeal of Ordinance, VIII of 1951.__ (1) The Civil Defence Ordinance, 1951, is hereby repealed.
+(2) Every appointment, order or rule made under the Civil Defence (Special Powers) Ordinance, 1951 and maintained in force under the Civil Defence Ordinance, 1951 or made under the Civil Defence Ordinance, 1951, shall, if in force immediately before the commencement of this Act, and so far as it is not inconsistent with the provisions of this Act, be deemed to have been made under the provisions of this Act, and have effect accordingly subject to the provisions of this Act.
+_________________________________________________________________________________
