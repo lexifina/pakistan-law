@@ -1,0 +1,1 @@
+46. Indemnity.— No suit or legal proceedings shall lie against the Government, the Institute or any Authority, officer or employee of the Government or the Institute or any person in respect of anything which is done in good faith under this Act.

@@ -1,0 +1,3 @@
+6. Teaching at the Institute.— (1) All, recognized teaching, professional and technical training in various courses shall be conducted by the Institute or the schools in the prescribed manner and may Include lectures, tutorials, discussions, seminars, demonstrations, distance learning and other methods of instruction as well as practical work in the laboratories, hospitals, workshops and other governmental or private organizations subject to policies prescribed by the Commission.
+(2) The Institute may set up any number of campuses, at such places in Pakistan or abroad as the Board of Governors may determine and with prior approval of Higher Education Commission.
+(3) The authority responsible for organizing recognized teaching shall be such as may be prescribed.
