@@ -1,0 +1,2 @@
+3. Government may levy tolls.__ Government may cause tolls to be levied on all persons, animals, vehicles or other things using, crossing or passing over any road or bridge vesting in it or which may hereafter vest in it at such rates as it may notify in the Official Gazette:
+Provided that Government may declare any person or any class or classes of persons, animals, vehicles or other things to be exempt from the payment of such tolls.

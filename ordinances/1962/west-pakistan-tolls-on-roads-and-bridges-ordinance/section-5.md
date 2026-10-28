@@ -1,0 +1,1 @@
+5. Table of tools to be affixed to or near tool gates, etc. __ A table of the tools authorised to be taken at any tool-gate or station set up under section 4, legibly written or printed, shall be affixed to some conspicuous place in or near such toll-gate or station.

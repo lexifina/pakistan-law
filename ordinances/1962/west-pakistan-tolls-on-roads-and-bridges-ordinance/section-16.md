@@ -1,0 +1,1 @@
+16. Police officers to assist toll-collectors.__ Every police officer shall be bound to assist a toll-collector, when required, in the discharge of his duties under this Ordinance, and for that purpose shall have the same powers as he possesses in the exercise of his ordinary police duties.

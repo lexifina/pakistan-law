@@ -1,0 +1,1 @@
+11. Liabilities of persons employed in the management of tolls.__ Every person employed in the management of tolls levied under this Ordinance shall be subject to the same responsibilities as would lie on him if employed in the collection of land-revenue.
