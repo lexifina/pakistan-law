@@ -1,0 +1,1 @@
+20. Indemnity.__ No suit, prosecution, or other legal proceeding shall lie against the BOI, the Chairman, the Secretary, the members, the employees and consultants of the BOI for anything done in good faith or intended to be done under this Ordinance or any rule or regulation made thereunder.

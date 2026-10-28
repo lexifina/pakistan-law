@@ -1,0 +1,1 @@
+10J. Removal of difficulties.__ Where any difficulty arises in giving effect to any provision of this Chapter, the Federal Government may by notification in the official Gazette, make an order for the removal of the difficulty.]

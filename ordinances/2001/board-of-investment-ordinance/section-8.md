@@ -1,0 +1,1 @@
+8. Validity of proceedings.__ No act, proceedings, decision or order of the Board or a Committee thereof shall be invalid by reason only of existence of any vacancy or defect in the constitutional of the Board or, as the case may be, a Committee of the Board.

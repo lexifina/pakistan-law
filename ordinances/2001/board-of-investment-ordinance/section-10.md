@@ -1,0 +1,1 @@
+10. Directive of the Federal Government.__ For furthering the functions of the BOI, the Federal Government may, as arid when it considers necessary, issue directives to the BOI on matters of policy, and such directives shall be binding on the BOI. If a question arises whether any matter is a matter of policy or not, the decision of the Federal Government shall be final.
