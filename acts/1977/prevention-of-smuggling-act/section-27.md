@@ -1,0 +1,1 @@
+27. Recovery of amount of penalty. For recovering the amount of penalty or any portion thereof under section 25, the Special Judge may direct that it may be recovered as an arrear of land revenue or may call upon the Magistrate having jurisdiction to assist him in effecting such recovery and the Magistrate shall render all necessary assistance in this regard.

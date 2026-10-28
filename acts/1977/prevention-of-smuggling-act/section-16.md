@@ -1,0 +1,1 @@
+16. Contents of bond, etc. In the bond to be executed under section 15, such person shall undertake to desist from indulging in smuggling for the period specified in the bond and the commission or abetment of, or attempt to commit, the offence of smuggling, shall -be a breach of the bond.

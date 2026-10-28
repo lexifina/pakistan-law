@@ -1,0 +1,1 @@
+41. Finding of other court, etc. No finding of any court, officer or authority under any law in relation to the property in respect of which any notice has been issued under this Chapter shall be conclusive for the purpose of any proceedings under this Chapter.

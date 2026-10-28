@@ -1,0 +1,1 @@
+24. Deposit of money in lieu of execution of bond. A person required to execute a bond, with or without sureties, under this Chapter, may be permitted by the Special Judge to deposit in such manner a sum of money or Government promissory notes or bank guarantee to such amount as the Special fudge may specify, in-lieu of executing a bond.

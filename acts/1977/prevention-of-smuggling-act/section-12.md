@@ -1,0 +1,1 @@
+12. Summons, etc., to embody substance of order. Every summons or warrant issued under sub-section (3) of section 10 shall, so far as possible, embody the substance of the order made under sub-section (1) of that section.
