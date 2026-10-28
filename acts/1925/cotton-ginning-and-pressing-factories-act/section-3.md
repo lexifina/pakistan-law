@@ -1,0 +1,13 @@
+3. Maintenance of registers.⸻(1) The owner of every cotton ginning factory shall cause to be maintained at the factory in such form, if any as may be prescribed, a ginning register containing a record of all cotton ginned in the factory and of the names of the persons for whom and the dates on which the cotton has been ginned and of the amount ginned for each person.
+(2) The owner of every cotton pressing factory shall cause to be maintained at the factory in such form, if any, as may be prescribed, a press register containing a daily record of the number of bales pressed in the factory, the serial number of each bale, and the name of the person for whom it has been pressed.
+(3) The owner or the person in charge of a cotton ginning or cotton pressing factory shall be bound to produce any ginning register or press register maintained under this section when required to do so by any person appointed by the [^8][Provincial Government] in this behalf, and the owner or person in charge of any cotton pressing factory shall be bound to furnish to the [^9][Pakistan Central Cotton Committee], if so required by it in writing, a copy, certified as correct by the owner or person in charge of the factory, of the entry in any press register maintained at the factory relating to any specified bale.
+(4) No register required to be maintained by this section shall be destroyed until after the expiration of three years from the date of the last entry therein.
+(5) If___
+(a) in any factory any register required by this section to be maintained is not maintained or is maintained in any form other than the form, if any, prescribed for the purpose, or
+(b) any entry in any such register is proved to be false in any material particular, or
+(c) any such register is destroyed before the expiration of the period referred to in sub-section (4),
+the owner of the factory shall be punished with fine which may extend to fifty rupees or, if he has previously been convicted of any offence ,under this sub-section, to five hundred rupees.
+(6) If the owner or the person in charge of any factory fails to produce any register, or to furnish a certified copy of any entry, when required to do so under sub-section (3), or furnishes a certified copy of an entry knowing or having reason to believe such copy to be false, he shall be punished with fine which may extend to fifty rupees or, if he has previously been convicted of any offence under this sub-section, to five hundred rupees.
+
+[^8]: Subs. by A. O., 1937.
+[^9]: Subs. by the Adaptation of Central Acts and Ordinances Order, 1949 (Order No. 4 of 1949), Art. 3 and Sch.

@@ -1,0 +1,1 @@
+10. Liability of officers of a company. Where the person guilty of an offence under this Act is a company, every director, manager, secretary and other officer thereof who is knowingly a party to the default shall also be guilty of the like offence and liable to the like punishment.

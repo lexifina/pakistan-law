@@ -1,0 +1,2 @@
+4. Marking of bales.⸻(1) The owner of every cotton pressing factory shall cause every bale pressed in the factory to be marked in such manner as may be prescribed before it is removed from the press-house, with a serial number and with the mark prescribed for the factory.
+(2) If any bale is removed from the press-house of any cotton pressing factory without having been marked as required by sub-section (1), the owner of the factory shall be punished with fine which may extend to fifty rupees.
