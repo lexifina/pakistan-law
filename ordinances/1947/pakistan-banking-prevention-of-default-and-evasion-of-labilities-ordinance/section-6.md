@@ -1,0 +1,8 @@
+6. Seizure of assets.___(1) If the [^5][Federal Government] after considering such explanation as the Bank concerned may have given, the information secured by any action taken under sub-sections (2) and (3) of Section 4 and such further enquiry as it may deem necessary, is satisfied that the Bank has wrongfully withheld payment of a cheque wholly or partially or the delivery of anything held in deposit or safe custody, the [^5][Federal Government] may order the Bank to make payment of the cheque to such extent as in the opinion of the [^5][Federal Government] payment has been wrongfully withheld, or make delivery of the thing held in deposit or safe custody as the case may be, by a specified date to the person named in the order.
+(2) If the Bank fails to comply with the order made under sub-section (1) the [^5][Federal Government] may as the case may be order___
+(a) the seizing of the thing held in safe custody and its transfer to the person named in the order,
+(b) the seizing of assets of the Bank sufficient to cover the amount of the Bank’s liability as determined under sub-section (1) and the transfer to the person named in the order under sub-section (1) of such part of these assets or so much of their value on realization as will discharge the Bank’s liability to him.
+(3) If after discharging the liability of the Bank referred to in sub-section (2) above there is a surplus it shall be returned to the Bank after deducting such incidental expenses as may have been incurred by the [^8][Federal Government].
+
+[^5]: Subs. by F.A.O., 1975, Art. 2 and Table.
+[^8]: Subs. by F.A.O., 1975, Art. 2 and Table.
