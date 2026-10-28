@@ -1,0 +1,2 @@
+27. Rules.___(1) The Authorities and the other bodies of the Institute may make Rules, to be published in the official Gazette, consistent with this Act, Statutes and the Regulations, to regulate any matter relating to the affairs of the Institute which has not been provided for by this Actor that is not required to be regulated by Statues or Regulations, including Rules to regulate the conduct of business and the time and place of meetings and related matters.
+(2) Rules shall become effective upon approval by the Board.
