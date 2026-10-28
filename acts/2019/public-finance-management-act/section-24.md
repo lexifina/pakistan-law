@@ -1,0 +1,1 @@
+24. Withholding of authorized appropriations.—The Finance Division may, with the prior approval of the National Assembly, suspend, withdraw, limit or place conditions on any budget appropriation or other authority issued by it if the Finance Division is satisfied that such action is required by reason of a financial exigency or is in the public interest.

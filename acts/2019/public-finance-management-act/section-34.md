@@ -1,0 +1,2 @@
+34. Mid-year reporting of budget developments.—(1) By twenty-eighth February each year, the Federal Government shall place mid-year review report before the National Assembly. The report shall provide budget and actual comparison of revenues, expenditure and financing.
+(2) After placing the mid-year review report in the National Assembly, the Finance Division shall publish the report on its official website.

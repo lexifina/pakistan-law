@@ -1,0 +1,1 @@
+44. Implementation and improvement.—The Federal Government shall constitute a committee to oversee implementation of this Act and its secondary legislation. The committee shall also enlist global best practices of the public finance management and shall recommend improvements in this Act and its secondary legislation from time to time.

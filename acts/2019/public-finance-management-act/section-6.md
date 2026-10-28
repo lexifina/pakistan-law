@@ -1,0 +1,1 @@
+6. Grant-in-aid.—The Federal Government may approve grant-in-aid for individual, public and private institutions, local bodies and other non-political institutions and associations as it may consider appropriate in the manner as may be prescribed.

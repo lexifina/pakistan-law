@@ -1,0 +1,1 @@
+8. Tax expenditure.—The Federal Government shall, in respect of every financial year cause to be laid before the National Assembly, Finance Bill consistent with Article 73 of the Constitution including a statement of estimated tax expenditure of the Federal Government.
