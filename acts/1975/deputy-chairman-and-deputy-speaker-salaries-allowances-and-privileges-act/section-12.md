@@ -1,0 +1,1 @@
+12. Travelling allowance for journeys abroad. The Deputy Chairman and the Deputy Speaker when travelling on official business outside Pakistan shall be entitled to such travelling allowance as may by prescribed by Government from time to time.
