@@ -1,0 +1,2 @@
+124. Access to insolvent’s books.—(1) No person shall, as against the official assignee, be entitled to withhold possession of the books of accounts belonging to the insolvent or to set up any lien thereon.
+(2) Any creditor of the insolvent may, subject to the control of the Court, and on payment of such fee, if any, as may be prescribed, inspect at all reasonable times, personally or by agent, any such books in the possession of the official assignee.

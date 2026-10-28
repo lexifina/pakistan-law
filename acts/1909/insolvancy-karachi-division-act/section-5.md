@@ -1,0 +1,1 @@
+5. Exercise of jurisdiction in chambers. Subject to the provisions of this Act and of rules, the Judge of a Court exercising jurisdiction in insolvency may exercise in chambers the whole or any part of his jurisdiction.

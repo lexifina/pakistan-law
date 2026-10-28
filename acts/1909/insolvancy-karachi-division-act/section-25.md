@@ -1,0 +1,6 @@
+25. Protection order.—(1) Any insolvent who shall have submitted his schedule as aforesaid may apply to the Court for protection, and the Court may, on such application, make an order for the protection of the insolvent from arrest or detention.
+(2) A protection order may apply either to all the debts mentioned in the schedule or to any of them as the Court may think proper, and may commence and take effect at and for such time as the Court may direct, and may be revoked or renewed as the Court may think fit.
+(3) A protection order shall protect the insolvent from being arrested or detained in prison for any debt to which such order shall apply, and any insolvent arrested or detained contrary to the terms of such order shall be entitled to his release :
+Provided that no such order shall operate to prejudice the right of any creditor in the event of such order being revoked or the adjudication annulled.
+(4) Any creditor shall be entitled to appear and oppose the grant of a protection order, but the insolvent shall be prima facie entitled to such order on production of a certificate signed by the official assignee that he has so far conformed to the provisions of this Act.
+(5) The Court may make a protection order before an insolvent has submitted his schedule if it thinks it necessary to do so in the interests of the creditors.

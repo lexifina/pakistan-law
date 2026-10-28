@@ -1,0 +1,4 @@
+7. Power of Court to decide all questions arising in insolvency. Subject to the provisions of this Act, the Court shall have full power to decide all questions of priorities, and all other questions whatsoever, whether of law or fact, which may arise in any case of insolvency coming within the cognizance of the Court, or which the Court may deem it expedient or necessary to decide for the purpose of doing complete justice or making a complete distribution of property in any such case :
+[^15][Provided that, unless all the parties otherwise agree, the power hereby given shall, for the purpose of deciding any matter arising under section 36, be exercised only in the manner and to the extent provided in that section.]
+
+[^15]: Proviso ins. by the Presidency-towns Insolvency (Amdt.) Act. 1927 (19 of 1927), s. 3.

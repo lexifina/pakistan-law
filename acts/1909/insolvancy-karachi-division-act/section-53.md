@@ -1,0 +1,4 @@
+## Effect of insolvency on antecedent transactions
+53. Restriction of rights of creditor under execution.—(1) Where execution of a decree has issued against the property of a debtor, no person shall be entitled to the benefit of the execution against the official assignee, except in respect of assets realized in the course of the execution by sale or otherwise before the date of the order of adjudication and before he had notice of the presentation of any insolvency petition by or against the debtor.
+(2) Nothing in this section shall affect the right of a secured creditor in respect of property against which a decree is executed.
+(3) A person who in good faith purchases the property of a debtor under a sale in execution shall in all cases acquire a good title to it against the official assignee.

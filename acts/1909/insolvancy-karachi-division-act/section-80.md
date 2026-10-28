@@ -1,0 +1,1 @@
+80. Duty to furnish list of creditors. The official assignee shall, whenever required by any creditor so to do and on payment by the creditor of the prescribed fee, furnish and send to the creditor by post a list of the creditors showing in the list the amount of the debt due to each of the creditors.

@@ -1,0 +1,1 @@
+86. Appeal to Court. If the insolvent or any of the creditors or any other person is aggrieved by any act or decision of the official assignee, he may appeal to the Court, and the Court may confirm, reverse or modify the act or decision complained of, and make such order as it thinks just.

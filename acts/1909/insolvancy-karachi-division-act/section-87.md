@@ -1,0 +1,5 @@
+87. Control of Court.—(1) If any official assignee does not faithfully perform his duties and duly observe all the requirements imposed on him by any enactment, rules or otherwise, with respect to the performance of his duties, or if any complaint is made to the Court by any creditor in regard thereto, the Court shall enquire into the matter and take such action thereon as may be deemed expedient.
+(2) The Court may at any time require any official assignee to answer any enquiry made by it in relation to any insolvency in which he is engaged, and may examine him or any other person on oath concerning the insolvency.
+[^47](3) The Court may also direct an investigation to be made of the books and vouchers of the official assignee.
+
+[^47]: In the application of the Act to Karachi this sub-section has been repealed: see the Presidency-towns Insolvency (Bom. Amdt.) . Act, 1933 (Bom. 20 of 1933), s. 11 and First Sch. as amended by the Karachi Insolvency Law Amdt. Act, 1935 (Born. 3 of 1935), s. 2.

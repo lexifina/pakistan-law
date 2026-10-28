@@ -1,0 +1,1 @@
+50. Rent due before adjudication. After an order of adjudication has been made no distress for rent due before such order shall be made upon the goods or effects of the insolvent, unless the order be annulled, but the landlord or party to whom the rent may be due shall be entitled to prove in respect of such rent.

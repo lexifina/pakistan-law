@@ -1,0 +1,1 @@
+92. Power to change carriage of petition. Where the petitioner does not proceed with due diligence on his petition, the Court may substitute as petitioner any other creditor to whom the debtor is indebted in the amount required by this Act in the case of a petitioning creditor.

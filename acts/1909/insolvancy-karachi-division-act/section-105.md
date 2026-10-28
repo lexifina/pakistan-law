@@ -1,0 +1,1 @@
+105. Criminal liability after discharge or composition. Where an insolvent has been guilty of any of the offences specified in section 102 or section 103, he shall not be exempt from being proceeded against therefor by reason that he has obtained his discharge or that a composition or scheme of arrangement has been accepted or approved.

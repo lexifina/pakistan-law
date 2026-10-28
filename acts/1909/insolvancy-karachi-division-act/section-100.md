@@ -1,0 +1,3 @@
+100. Warrants of Insolvency Courts.—(1) A warrant of arrest issued by the Court may be executed in the same manner and subject to the same conditions as a warrant of arrest issued under the Code of Criminal Procedure, 1898 (V of 1898), may be executed.
+(2) A warrant to seize any part of the property of an insolvent, issued by the Court under section 59, sub-section (1), shall be in the form prescribed, and sections 77 (2), 79, 82, 83, 84 and 102 of the said Code shall, so far as may be, apply to the execution of such warrant.
+(3) A search-warrant issued by the Court under section 59, sub-section, (2), may be executed in the same manner and subject to the same conditions as a search-warrant for property supposed to be stolen may be executed under the said Code.

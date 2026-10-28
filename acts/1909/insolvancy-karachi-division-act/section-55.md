@@ -1,0 +1,1 @@
+55. Avoidance of voluntary transfer. Any transfer of property, not being a transfer made before and in consideration of marriage, or made in favour of a purchaser or incumbrancer in good faith and for valuable consideration, shall, if the transferor is adjudged insolvent within two years after the date of the transfer, be void against the official assignee.

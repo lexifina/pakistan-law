@@ -1,0 +1,11 @@
+49. Priority of debts.—(1) In the distribution of the property of the insolvent there shall be paid in priority to all other debts___
+(a) all debts due to the [^32][Government] or to any local authority ;
+(b) all salary or wages of any clerk, servant or labourer in respect of services rendered to the insolvent during four months before the date of the presentation of the petition, not exceeding three hundred rupees for each such clerk, and one hundred rupees for each such servant or labourer ; and
+(c) rent due to a landlord from the insolvent: provided the amount payable under this clause shall not exceed one month’s rent.
+(2) The debts specified in sub-section (1) shall rank equally between themselves, and shall be paid in full, unless the property of the insolvent is insufficient to meet them, in which case they shall abate in equal proportions between themselves.
+(3) Subject to the retention of such sums as may be necessary for the expenses of administration or otherwise, the debts specified in sub-section (1) shall be discharged forthwith in so far as the property of the insolvent is sufficient to meet them.
+(4) In the case of partners, the partnership property shall be applicable in the first instance in payment of the partnership debts, and the separate property of each partner shall be applicable in the first instance in payment of his separate debts. Where there is a surplus of the separate property of the partners, it shall be dealt with as part of the partnership property; and where there is a surplus of the partnership property, it shall be dealt with as part of the respective separate property in proportion to the rights and interests of each partner in the partnership property.
+(5) Subject to the provisions of this Act, all debts proved in insolvency shall be paid ratably according to the amounts of such debts respectively and without any preference.
+(6) Where there is any surplus after payment of the foregoing debts, it shall be applied in payment of interest from the date on which the debtor is adjudged an insolvent at the rate of six per centum per annum on all debts proved in the insolvency.
+
+[^32]: Subs. by A.O., 1961, Art. 2, for “Crown” (with effect from the 23rd March 1956.).

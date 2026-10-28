@@ -1,0 +1,1 @@
+37. Power to issue commissions. The Court shall have the same powers to issue commissions and letters of request for the examination on commission or otherwise of any person liable to examination under section 36 as it has for the examination of witnesses under the Code of Civil Procedure, 1908 (V of 1908).

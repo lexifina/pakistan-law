@@ -1,0 +1,3 @@
+22. Concurrent proceedings in British Courts. Where it is proved to the satisfaction of the Court that insolvency proceedings are pending in any other [^25][Court in] 6[Pakistan] against the same debtor and that the property of the debtor can be more conveniently distributed by such other Court, the Court may annul the adjudication or may stay all proceedings thereon.
+
+[^25]: Subs. by A.O.,1961, Art, 2 and Sch., for “British Court whether within or without” (with effect from the 23rd March, 1956).6Subs. by the Central Laws (Statute Refrom) Ordinance, 1960 (21of 1960), s. 3 and 2nd Sch. (with effect from the 14th October, 1955), for “the Provinces and the Capital of the Federation” which had been subs. by A. O., 1949, for “British India”.
