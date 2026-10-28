@@ -1,0 +1,1 @@
+18. Indemnity. –No suit, prosecution or other legal proceedings shall lie against an employee for anything done in his official capacity which is in good faith done or intended to be done under this Act or the rules, instructions or directions made or issued, or adopted from time to time.

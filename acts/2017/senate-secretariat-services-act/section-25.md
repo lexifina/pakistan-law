@@ -1,0 +1,3 @@
+25. Repeal and saving. –(l) The Senate Secretariat (Recruitment) Rules, 1973 are hereby repealed.
+(2) Notwithstanding the repeal of Senate Secretariat(Recruitment) Rules, 1973, everything done, action taken, appointments made either through initial recruitment, induction, absorption, promotion, regularization or on contract basis, obligation, liability or penalty incurred, power conferred or exercised, orders issued under the said Rules and everything done in exercise of the powers conferred by or under the said Rules, shall continue and be deemed to have been respectively done, taken, incurred, conferred, exercised or issued under this Act.
+_______

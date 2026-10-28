@@ -1,0 +1,4 @@
+7. Confirmation. — (1) A person appointed on probation shall, on satisfactory completion of his probation, be eligible for confirmation in a post as may be prescribed.
+(2) An employee promoted to a post on regular basis shall be eligible for confirmation after rendering satisfactory service for the period prescribed for confirmation therein.
+(3) An employee who, during the period of his service, was eligible to be confirmed against any post retires from service before being confirmed shall not, merely by reason of such retirement, be refused confirmation against such post or any benefits accruing there from.
+(4) Confirmation of an employee against a post shall take effect from the date of occurrence of vacancy of that post or from the date of continuous officiation on such post, whichever is later.
