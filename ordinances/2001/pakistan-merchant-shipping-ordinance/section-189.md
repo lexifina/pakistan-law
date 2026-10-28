@@ -1,0 +1,2 @@
+189. Pakistani foreign going ships to carry duly certificated cooks.—(1) Every Pakistani foreign-going ship going to sea from any port or place in Pakistan shall be provided with and carry a duly certificated cook.
+(2) A cook shall not be deemed to be duly certificated within the meaning of this section unless he is the holder of a certificate of competency in cooking granted by or under the authority of, or recognised by, the Federal Government on such terms and conditions as may be prescribed in this behalf.

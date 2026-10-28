@@ -1,0 +1,2 @@
+272. Places appointed by Federal Government.—(1) A special trade passenger ship shall not depart or proceed on a voyage from or receive on board or discharge special trade passengers at, any port or place within Pakistan other than a port or place appointed in this behalf by the Federal Government.
+(2) After a ship has departed or proceeded on a voyage from a port or place so appointed, a person shall not be received on board as a special trade passenger except at some other port or place so appointed.

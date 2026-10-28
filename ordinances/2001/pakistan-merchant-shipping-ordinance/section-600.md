@@ -1,0 +1,1 @@
+600. Powers of person appointed or authorised to survey ships.––Any person appointed or authorised under this Ordinance to survey any ship may, in the execution of his duties, go on board the ship and inspect the same and every part thereof, and the machinery, equipment and cargo, and may require the unloading or removal of any cargo, ballast or equipment.

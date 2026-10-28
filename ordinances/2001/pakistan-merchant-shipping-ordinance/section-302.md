@@ -1,0 +1,3 @@
+302. Accommodation, etc; for pilgrims.—(1) The Federal Government may, by rules, determine the number of pilgrims to be carried on any pilgrim ship and the accommodation to be provided for each pilgrim on board such ship.
+(2) Every pilgrim ship shall have reserved for the use of the pilgrims on board gratuitously by day and by night so much of the upper-deck space as is not required for the airing space of the crew or for permanent structures and, subject to any rules made in this behalf, such space may be allotted among the different classes of pilgrims in such proportion as may be thought fit:
+Provided that the upper-deck space available for pilgrims shall in no case be less than 0.56 square metres (six square feet) for each pilgrim of each class.

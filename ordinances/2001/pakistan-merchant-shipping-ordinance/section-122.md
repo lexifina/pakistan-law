@@ -1,0 +1,3 @@
+122. Cancellation of seamen's service book.—(1) Notwithstanding anything contained elsewhere in this Ordinance, the Shipping Master may suspend, cancel, or confiscate the seamen's service book of any seaman who is shown, to the satisfaction of the Shipping Master, to have deserted his ship or is found guilty of smuggling, theft, misbehavior or is in breach of agreement or such other offence as may, in the opinion of the Shipping Master, make him unsuitable for employment on board a ship.
+(2) Any person aggrieved by an order under sub-section (1) may, within ninety days from the date of receipt of such order, prefer an appeal to the Federal Government.
+(3) An appeal under sub-section (2) shall be preferred and disposed of in such form and manner as may be prescribed.

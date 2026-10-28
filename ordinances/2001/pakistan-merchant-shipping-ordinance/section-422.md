@@ -1,0 +1,2 @@
+422. Power to make rules for maritime communication.—(1) The Federal Government may, by notification in the official Gazette, make rules to ensure that the maritime emergency and safety communication shall be carried out in a satisfactory manner.
+(2) rules made under sub-section (1) may regulate, inter-alia, the provision of necessary facilities and, the assignment of radio frequencies, and may provide for the training and certification of personnel in charge of the maritime communications in a coastal radio station.

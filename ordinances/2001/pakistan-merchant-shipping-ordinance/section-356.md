@@ -1,0 +1,1 @@
+356. Application of sections to certificates.––The provisions of sections 263 to266 shall apply to and in relation to every certificate issued under sections 342 to 347 and section (2) of section 353 in the same manner as they apply to and in relation to a certificate of survey.

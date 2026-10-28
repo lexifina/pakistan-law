@@ -1,0 +1,1 @@
+63. Penalty for acquiring ownership if unqualified.––If an unqualified person acquires as owner, otherwise than be such transmission as here in before provided, any interest either legal or beneficial in a ship using a Pakistani flag and assuming the Pakistani character, that interest shall be liable to forfeiture.

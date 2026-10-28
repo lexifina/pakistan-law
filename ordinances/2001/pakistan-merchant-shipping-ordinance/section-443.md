@@ -1,0 +1,5 @@
+443. Fishing vessel safety certificate and exemption certificate.—(1) Where in respect of a fishing vessel of twenty four meters in length and over, including vessels also processing their catch, the Federal Government is satisfied that the vessel has been surveyed in the prescribed manner, it may cause a fishing vessel safety certificate to be issued in respect of the vessel.
+(2) Where in respect of any such ship referred to in sub-section (1) an exemption is granted to vessel as per rules made under section 449 the Federal Government may cause a fishing vessel exemption certificate to be issued in addition to the certificate prescribed in sub-section (1).
+(3) The fishing vessel safety certificate and the fishing vessel exemption certificate shall be in the prescribed form.
+(4) A fishing vessel safety certificate shall be in force for five years from the date of its issue and shall not be extended for more than one year subject to the periodical and intermediate surveys as required by the rules made under section 449.
+(5) A fishing vessel exemption certificate shall not be valid for a period longer than the period of the fishing vessel safety certificate.

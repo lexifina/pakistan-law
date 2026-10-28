@@ -1,0 +1,3 @@
+109. Production of contracts to persons before voyage in ship.—(1) The master of a ship shall, before carrying an apprentice to sea from a port or place in Pakistan, cause the apprentice to appear before the Shipping Master before whom the crew are engaged, and shall produce to him the contract by which the apprentice is bound and every assignment thereof.
+(2) The name of the apprentice with the date of the contract and of the assignments thereof, if any, and the names of the ports at which the same have been registered shall be entered on the agreement with the crew.
+(3) If a master fails, without reasonable cause, to comply with any of the requirements of this section, he shall, for each offence, be liable to a fine which may extend to five thousand rupees.

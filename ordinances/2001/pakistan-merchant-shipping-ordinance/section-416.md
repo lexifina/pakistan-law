@@ -1,0 +1,2 @@
+416. Collision to be entered in official-log.—(1) In every case of collision in which it is practicable so to do, the master of every ship concerned shall, immediately after the occurrence, cause a statement thereof and of the circumstances under which the same occurred to be entered in the official log-book, if any, and the entry shall be signed by the master and also by one of the officers or one of the crew.
+(2) If a master fails to comply with this section, he shall be liable to a fine which may extend to five thousand rupees.

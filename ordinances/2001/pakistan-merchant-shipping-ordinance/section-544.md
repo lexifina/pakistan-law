@@ -1,0 +1,5 @@
+544. Aggregation of claims.—(1) the limits of liability determined in accordance with section 530 shall apply to the aggregate of all claims which arise on any distinct occasion—
+(a) against the person or persons mentioned in Explanation to sub-section (1) of section 535 and any person for whose act, neglect or default he or they are responsible; or
+(b) against the ship owner of a ship rendering salvage services from that ship and the salvors operating from such ship and any person for whose act, neglect or default he or they are responsible; or
+(c) against the salvor or salvors who are not operating from a ship or who are operating solely on a ship to, or in respect of which, the salvage services are rendered and any person for whose act, or default he or they are responsible.
+(2) The limits of liability determined in accordance with section 542 shall apply to the aggregate of all claims subject thereto which may arise on any distinct occasion against the person or persons mentioned in the Explanation to sub-section (I) of section 535.

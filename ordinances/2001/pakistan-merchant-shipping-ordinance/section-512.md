@@ -1,0 +1,1 @@
+512. Proceeds how applied.––The proceeds of such sale as referred to in section 511, shall, after defraying all expenses thereof including salvage charges, be held by the receiver for the same purposes arid subject to the same claims, rights and liabilities as set out hereinafter in this Ordinance.

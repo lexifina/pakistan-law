@@ -1,0 +1,1 @@
+436. Change of name.––A change of name of a fishing vessel registered under section 433 shall not be made except in accordance with the rules made for change of name under Part II, and when so effected, shall be entered in the fishing vessel’s register.

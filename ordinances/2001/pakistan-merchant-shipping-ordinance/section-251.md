@@ -1,0 +1,1 @@
+251. Power to detain ship not having certificate of survey.––If any ship for which a certificate of survey is required leaves or attempts to leave any port of survey without a certificate, any Officer of Customs or any pilot on board the ship may detain her until she obtains a certificate.

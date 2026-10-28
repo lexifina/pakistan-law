@@ -1,0 +1,1 @@
+488. Application of Chapter.––The provisions of this Chapter shall apply to all Pakistani ships, whether registered or deemed to have been registered under this Ordinance, or not so registered, and their owners, masters and crew.

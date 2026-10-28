@@ -1,0 +1,2 @@
+196. Bedding, towels, etc., to be provided.—(1) The owner of every Pakistani ship shall supply or cause to be supplied to every seaman for his personal use such clothing, bedding, towels, mess utensils and other articles of such quality and according to such scales as may be prescribed.
+(2) If any requirement of sub-section (1) is not complied with in the case of any ship the owner thereof, unless he proves that the non-compliance was not caused by his inattention, neglect or wilful default, shall be liable to a fine which may extend to five thousand rupees.

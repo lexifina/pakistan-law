@@ -1,0 +1,3 @@
+210. Entries and certificates of desertion abroad.—(1) In every case of desertion from a Pakistani ship whilst she is at any place outside Pakistan the master shall make in the official log book an entry of the desertion which shall be signed by him and also by a mate or one of the crew and shall produce the entry to the Pakistan consular officer who shall thereupon make and certify a copy of the entry.
+(2) The master shall forthwith transmit such copy to the Shipping Master at the port at which the seaman was shipped, and the Shipping Master shall if required, cause the same to be produced in any legal proceeding.
+(3) Such copy, if purporting to be so made and certified as aforesaid, shall, in any legal proceeding relating to such desertion, be admissible in evidence.

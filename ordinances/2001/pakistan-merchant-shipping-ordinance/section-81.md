@@ -1,0 +1,1 @@
+81. Duty to provide conference agreement.––The shipping operators in the coastal shipping who operate within the framework of a liner conference, shall provide the Federal Government with a copy of the liner conference agreement as soon as possible after it has been concluded or amended.

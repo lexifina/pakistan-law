@@ -1,0 +1,1 @@
+235. Persons not to be dressed partly in uniform.––A person entitled, to wear the standard uniform shall not, when on board a Pakistani ship in a port or on shore, be dressed partly in uniform and partly not in uniform.

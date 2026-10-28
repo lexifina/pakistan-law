@@ -1,0 +1,7 @@
+562. Inspection and control of ships with respect to prevention of pollution.—(1) A surveyor or any person appointed in this behalf by the Federal Government may, at any reasonable time, go on board a ship for the purpose of—
+(a) ensuring that the prohibitions, restrictions and obligations imposed by or under the convention are complied with;
+(b) satisfying himself about the adequacy of the measures taken to prevent the escape of oil or oily mixture or noxious liquid substances or any other harmful substances from the ship including appropriate operational practices specified in the convention;
+(c) ascertaining the circumstances relating to an alleged discharge of oil or oily mixture or of noxious liquid substances or any other harmful substances from the ship in contravention of the provisions of the convention;
+(d) investigating and apportioning responsibility whenever information is received regarding the existence of visible traces of oil or contamination by noxious liquid substances or any other harmful substances on or below the surface of water in the immediate vicinity of a ship or its wake; and
+(e) inspecting the oil record book, cargo record book or any other relevant record.
+(2) The surveyor or any such person may, if necessary, make, without unduly delaying the ship, a true copy of any entry in the oil or cargo record book of the ship, and may require the master of the ship to certify the copy to be a true copy and such copy shall be admissible as evidence of the facts stated therein.

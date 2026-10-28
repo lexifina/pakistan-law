@@ -1,0 +1,1 @@
+279. Customs Collector or officer of Customs not to grant port-clearance certificate.–– The Customs collector or any officer of Customs shall not grant a port clearance to a ship intended to carry special trade passengers unless the master thereof holds certificate B issued under section 278.

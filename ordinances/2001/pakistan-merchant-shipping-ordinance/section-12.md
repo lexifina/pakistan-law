@@ -1,0 +1,3 @@
+12. Restriction on acquisition of ship.—(1) No citizen of Pakistan, nor any company shall acquire any ship for registration under Pakistan flag unless qualified to do so under this Ordinance.
+(2) No Pakistani ship shall, except with prior permission in writing from the Federal Government be converted, modified or altered in such manner so as to change the character of the ship.
+(3) Whoever contravenes or attempts to contravene the provisions of sub-section (1) or sub-section (2) shall be liable to a fine which may extend to one hundred thousand rupees and any transaction made in contravention of any such provisions shall be void.

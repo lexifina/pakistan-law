@@ -1,0 +1,6 @@
+536. Claims subject to limitation.—(1) Subject to sections 537 and 538, thefollowing claims, whatever the basis of liability may be, shall be subject to limitation of liability, namely : —
+(a) claims in respect of loss of life or personal injury or loss of, or damage to, property, including damage to harbour works, basins and waterways and aids to navigation, occurring on board or in direct connection with the operation of the ship or with salvage operations and consequential loss resulting therefrom;
+(b) claims in respect of loss resulting from delay in the carriage by sea of cargo, passengers or their luggage ;
+(c) claims in respect of other loss resulting from infringement of rights other than contractual rights, occurring in direct connection with the operation of the ship or salvage operations ; and
+(d) claims of a person other than the person liable in respect of measures taken in order to avert or minimise loss for which the person liable may limit his liability in accordance with this Chapter, and further loss caused by such measures.
+(2) Claims set out in sub-section (1), except in clause (d) thereof, shall be subject to limitation of liability even if brought by way of recourse or for indemnity under a contract or otherwise, or by way of a direct action against the insurer, if any, of the person liable in respect of the claim.

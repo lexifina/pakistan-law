@@ -1,0 +1,1 @@
+451. Decision of question whether a vessel is a sailing vessel.––Any question as to whether or not a vessel is a sailing vessel for the purposes of this Chapter shall be referred to the Federal Government whose decision there-on shall be final.

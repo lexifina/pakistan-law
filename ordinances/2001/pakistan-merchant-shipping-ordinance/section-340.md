@@ -1,0 +1,1 @@
+340. Application of chapter to foreign ships.–– The provisions of this chapter shall apply to ships other than Pakistani ships while such ships are in any port or place in Pakistan in the same manner as they apply to Pakistani ships.

@@ -1,0 +1,1 @@
+487. Penalty for obstructing proceedings before Maritime Boards.––If any person wilfully and without due cause obstructs the conduct of any hearing or inquiry by any Maritime Board he shall, for each offence, be liable to a fine which may extend to ten thousand rupees.

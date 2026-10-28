@@ -1,0 +1,1 @@
+24. Penalty for use of improper certificate.––If the master or owner of a Pakistani ship uses or attempts to use for her navigation a certificate of registry not legally granted in respect of the ship, he shall be liable to a fine which may extend to one hundred thousand rupees and the ship shall be liable to forfeiture.

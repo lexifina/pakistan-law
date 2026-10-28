@@ -1,0 +1,2 @@
+31. Transfer of ships or shares.—(1) A registered ship or a share therein, when disposed of to any person shall be transferred by bill of sale.
+(2) The bill of sale shall contain such description of the ship as is contained in the surveyor’s certificate or some other description sufficient to identify the ship to the satisfaction of the registrar and shall be executed by the transferor in the presence of and the attested by at least two witnesses.

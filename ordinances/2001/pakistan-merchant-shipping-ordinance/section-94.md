@@ -1,0 +1,1 @@
+94. Examinations for certificates.––The Federal Government, or a person duly authorized by it in this behalf, shall appoint persons for the purpose of examining the qualifications of persons desirous of obtaining certificates of competency or endorsements under this Ordinance.

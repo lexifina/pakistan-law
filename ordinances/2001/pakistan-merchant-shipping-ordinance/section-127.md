@@ -1,0 +1,1 @@
+127. Engagement in Pakistan of seamen for foreign ships.–– If the master, owner or agent of a foreign ship engages seamen from any port or place in Pakistan, it shall not be necessary for such seaman to enter into an agreement under section 125 of this Ordinance.

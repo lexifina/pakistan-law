@@ -1,0 +1,1 @@
+85. Representative Organizations.––For the purposes of this Ordinance, the Federal Government may, by notification in Official Gazette, designate representative organizations of ship owners and shippers.

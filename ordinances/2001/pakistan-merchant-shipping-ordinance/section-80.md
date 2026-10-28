@@ -1,0 +1,1 @@
+80. Duty to notify tariffs and other transport conditions.––A shipping operator in the coastal shipping shall notify at request freight rates and other transport conditions to the representative shippers' organizations.

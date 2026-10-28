@@ -1,0 +1,9 @@
+368. Issue, duration and cancellation of exemption certificates, etc.—(1) Where the Federal Government exempts a ship under section 358 there shall be issued to the owner of the ship, on payment of the prescribed fee, if any,—
+(a) in the case of a ship referred to in sub-section (3) of section 358, an exemption certificate to be called an international load line exemption certificate; and
+(b) in the case of any other ship, an exemption certificate to be called a Pakistan load line exemption certificate.
+(2) An exemption certificate under sub-section (1) shall be issued by the Federal Government, or an officer authorised by it in this behalf, in such form and manner as may be prescribed.
+(3) An exemption certificate issued under sub-section (1) shall remain in force for such period as may be prescribed.
+(4) The owner of a ship in respect of which any such exemption certificate is issued shall, so long as the certificate remains in force cause the ship to be periodically inspected in such manner and at such intervals as may be prescribed.
+(5) The Federal Government shall cancel any such exemption certificate if the ship in respect of which it was issued is not caused to be inspected as required by sub-section (4) or if any of the conditions on which the exemption was granted under section 358 has been violated or if the exemption has ceased to be in force.
+(6) Where any such exemption certificate in respect of a ship has ceased to be in force or been cancelled, the exemption granted under section 358 shall be deemed to have been withdrawn and the owner or master shall deliver up the certificate to the Federal Government ; and the ship may be detained until the certificate is so delivered up.
+(7) The owner or master of a ship, if he fails without reasonable cause to deliver up the exemption certificate as required by sub-section (6), shall be liable to a fine it may extend to fifty thousand rupees.

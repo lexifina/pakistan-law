@@ -1,0 +1,1 @@
+567. Prohibition of dumping.––The dumping of wastes or other matter prescribed as such is prohibited and any person acting in contravention of this section shall be liable to imprisonment which shall not be less than two years and fine which may extend to one million US dollars.

@@ -1,0 +1,1 @@
+378. Inspection of ships belonging to non-convention countries.––The provisions of section 366 shall apply, in the same manner as they apply to Pakistani ships, to all other ships while they are within any port or place in Pakistan except ships to which the provisions of section 374 apply.

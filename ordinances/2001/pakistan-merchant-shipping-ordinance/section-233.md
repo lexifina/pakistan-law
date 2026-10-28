@@ -1,0 +1,1 @@
+233. Certificated officers may wear uniforms while employed.––A persons holding a certificate of competency issued under this Ordinance and a citizen of Pakistan holding a certificate of competency recognised under section 100, being temporarily un-employed, shall be entitled to wear the standard uniform appropriate to the rank in which he was last employed.

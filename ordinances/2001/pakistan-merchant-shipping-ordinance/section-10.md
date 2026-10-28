@@ -1,0 +1,2 @@
+10. Seamen’s Welfare Officers.—(1) The Federal Government may appoint Seamen’s Welfare Officers at such ports or places in Pakistan as it may consider necessary.
+(2) A Seamen’s Welfare Officer appointed under sub-section (1) shall, under the general supervision and control of the Federal Government or of such other authority as the Federal Government may, by general or special order, direct, perform at any port or place in Pakistan, such functions in relation to welfare of seaman as may be assigned to him by the Federal Government.

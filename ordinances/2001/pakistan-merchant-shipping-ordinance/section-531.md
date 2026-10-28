@@ -1,0 +1,2 @@
+531. Consultation.—(1) Except in cases of extreme urgency requiring immediate action, the Federal Government shall consult the flag State and the owner, or as the case may be, the charterer or operator of the ship prior to giving instructions or taking measures in respect of a foreign ship.
+(2) Prior to taking measures in respect of a ship present in the exclusive economic zone of another coastal State, the Federal Government shall consult the competent authorities of that State.

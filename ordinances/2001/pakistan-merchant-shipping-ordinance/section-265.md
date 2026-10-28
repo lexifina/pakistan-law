@@ -1,0 +1,2 @@
+265. Delivery of expired or cancelled certificate.—(1) Every certificate of survey granted, or deemed to have been granted, which has expired, or has been cancelled or suspended, shall be delivered up to such person as the Federal Government may direct.
+(2) If the owner, agent or master of a ship, without reasonable cause, neglects or refuses to deliver up a certificate as required by sub-section (1), he shall be liable to a fine which may extend to five thousand rupees.

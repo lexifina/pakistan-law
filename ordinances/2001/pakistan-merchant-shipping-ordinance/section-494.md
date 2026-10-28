@@ -1,0 +1,5 @@
+494. Re-hearing.—(1) The Federal Government may, either of its own motion or on receipt of an application from any person required by an order under section 486, 489 or section 493 in respect of any case in which an inquiry has been made under this Part, order the case to be re-heard, either generally or as to any part thereof, by any person or persons, or by any Court, specially appointed or empowered for the purpose, and shall, in respect of each case, so order—
+(a) if new and important evidence which could not be produced at the inquiry has been discovered; or
+(b) if, for any other reason there has, in its opinion, been a miscarriage of justice.
+(2) An application under sub-section (1) shall be made in such form, within such time and on payment of such fees, and a case shall be re-heard in such manner as may be prescribed.
+(3) The provisions of sub-section (3) of 471, sections 474, 478 and 479 shall, so as far as may be, apply to every case re-heard under this section as if the re-hearing were an inquiry referred to therein.

@@ -1,0 +1,1 @@
+485. Decisions of Maritime Boards to be by majority.––Where there is a difference of opinion among members of the Maritime Board, the decision of the majority of the members shall be the decision of the Board.

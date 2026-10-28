@@ -1,0 +1,2 @@
+241. Prohibition again taking out property from ship.—(1) No person shall, while a ship is at any port or place in Pakistan, take out of the ship any property of the seaman or apprentice except under the direction of the seaman or apprentice and with the permission of the master.
+(2) Whoever contravenes the provisions of sub-section (1) shall be liable to a fine which may extend to five thousand rupees.

@@ -1,0 +1,1 @@
+440. Transfer of registry.––The registry of a fishing vessel may be transferred from one port to another in Pakistan on the application of the owner of the vessel, in accordance with such rules as may be made in this behalf.

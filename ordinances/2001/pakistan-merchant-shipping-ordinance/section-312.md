@@ -1,0 +1,4 @@
+312. Bond where pilgrim ship proceeds on outward voyage.—(1) Port–clearance shall not be granted from any port in Pakistan to any pilgrim ship unless the master, owner or agent and two sureties resident in Pakistan have executed, in favour of the Federal Government, a joint and several bond for the sum of fifty thousand rupees covering all voyages which may be made by the ship in the current pilgrim season, conditioned that––
+(a) the master and medical officer, as the case may be, shall, comply with the provisions of this Chapter and the rules made thereunder; and
+(b) the master, owner or agent, as the case may be, shall pay any sum claimed by the Federal Government under section 318.
+(2) A bond may be given under this section covering any or all of the pilgrim ships owned by one owner, and in such case the amount of the bond shall be fifty thousand rupees for each ship covered.

@@ -1,0 +1,2 @@
+192. Weights and measures on board.—(1) The master of a ship shall keep on board proper weights and measures for determining the qualities of the several provisions and articles served out and shall allow the same to be used at the time of serving out the provisions and articles in the presence of witnesses whenever any dispute arises about the quantities.
+(2) If the master of a ship fails, without reasonable cause, to comply with sub-section (1), he shall, for each offence, be liable to a fine which may extend to five thousand rupees.

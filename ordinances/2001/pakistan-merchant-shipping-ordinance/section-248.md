@@ -1,0 +1,1 @@
+248. No ship to carry passengers without a certificate of survey.––No ship shall take on board, or carry between ports or places in Pakistan or to any port or place outside Pakistan, more than twelve passengers unless she has a certificate of survey in force and applicable to the voyage on which she is about to proceed or the service on which she is about to be employed.

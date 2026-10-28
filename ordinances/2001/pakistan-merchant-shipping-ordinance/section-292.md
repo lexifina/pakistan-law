@@ -1,0 +1,2 @@
+292. Number of passengers on board not to exceed that allowed by or under this Chapter.—(1) No special trade passenger ship on any voyage shall carry or attempt to carry a number of special trade passengers which is greater than the number allowed for the ship by or under this Chapter.
+(2) The owner, agent and master of a ship in respect of which the provisions of sub-section (1) are contravened shall each be liable to a fine which may extend to one hundred thousand rupees.

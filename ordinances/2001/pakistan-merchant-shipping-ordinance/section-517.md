@@ -1,0 +1,1 @@
+517. Right of Federal Government to unclaimed wreck.––The unclaimed wreck found anywhere in Pakistan, except where it has, by law, been granted to any other person, shall vest in the Federal Government.

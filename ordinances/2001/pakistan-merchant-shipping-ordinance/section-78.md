@@ -1,0 +1,2 @@
+78. Requirements for participation in coastal shipping.—(1) Pakistani shipping operators, wishing to participate in the coastal shipping, shall be adequately insured against all professional liabilities and be registered as such with the Federal Government.
+(2) A foreign shipping operator, wishing to participate in the coastal shipping, shall be adequately insured against all professional liabilities and have an agent in Pakistan.

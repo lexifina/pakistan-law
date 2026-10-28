@@ -1,0 +1,1 @@
+229. Reference in matters of doubt to Shipping Master.––If any Court is in doubt whether, for the purposes of section 227 or section 228, a seaman is or was at any particular time or during any particular period a serving seaman, it may refer the question to the Shipping Master, and the certificate of the Shipping Master shall be conclusive evidence on the question.

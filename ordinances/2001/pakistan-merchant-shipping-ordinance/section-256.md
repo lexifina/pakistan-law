@@ -1,0 +1,1 @@
+256. Division of duties when two or more surveyors employed.––When a survey is made by two or more surveyors, of the surveyor making the survey shall perform a prescribed portion of the duties assigned by this Chapter or the rules made thereunder to a surveyor making a survey.

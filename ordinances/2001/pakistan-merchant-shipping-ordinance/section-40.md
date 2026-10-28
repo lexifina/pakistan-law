@@ -1,0 +1,1 @@
+40. Priority of mortgage.––If there are more mortgages than one registered in respect of the same ship or share, the mortgagees shall, notwithstanding any express, implied, or constructive notice, have priority according to the date at which each mortgage is recorded in the register book and not according to the date of each mortgage itself.

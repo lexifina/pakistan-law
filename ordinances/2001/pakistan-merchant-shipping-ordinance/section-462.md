@@ -1,0 +1,4 @@
+462. Nuclear passenger ship safety certificates and nuclear cargo ship safety certificates.—(1) If in respect of any Pakistani nuclear passenger or cargo ship the Federal Government is satisfied that the ship has been surveyed in accordance with this Ordinance and has been inspected by a person appointed in this behalf by the Federal Government and has complied with such special requirement, if any, as that person has, after such inspections, specified, the Federal Government may issue—
+(a) in the case of a passenger ship, a nuclear passenger ship safety certificate; and
+(b) in the case of a cargo ship, a nuclear cargo ship safety certificate.
+(2) A certificate issued under sub-section (1) shall be in force for a period of twelve months from the date of issue or for such shorter period as may be specified in the certificate.
