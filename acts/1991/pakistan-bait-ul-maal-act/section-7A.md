@@ -1,0 +1,1 @@
+7A. Acting Chairperson (Ameen). At any time when the office of Chairperson (Ameen) is vacant the senior most member in age shall, for a period not exceeding sixty days temporarily perform the functions of the Chairperson (Ameen).]

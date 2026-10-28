@@ -1,0 +1,3 @@
+20. Submission of Annual Reports and Statements etc. Annual Report.___(1) As soon as possible, the Board shall submit to the Federal Government, after the end of every financial year but before the last day of September next following, a report on the conduct of its affairs during the year.
+(2) A copy of the report referred to in sub-section (1) together with a copy of the audit report referred to in section 18 shall be placed by the Federal Government before the National Assembly.
+(3) The Federal Government may call upon the Board to supply any information or statements pertaining to its responsibilities under this Act, and the Board shall comply with such requirements, without unnecessary delay.
