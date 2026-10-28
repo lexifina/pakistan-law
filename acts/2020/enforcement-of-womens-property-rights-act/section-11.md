@@ -1,0 +1,2 @@
+11. Bar of jurisdiction. —No court or other authority shall have jurisdiction-
+(a) to question the validity of any action taken, or intended to be taken, or order made, or anything or purporting to have been taken, made or done under this Act; or (b) to grant an injunction or stay or to make any interim order in relation to any proceeding before, or anything done or intended to be done or purporting to have been done by, or under the orders or at the instance of the Ombudsman.
