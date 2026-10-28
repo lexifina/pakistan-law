@@ -1,0 +1,1 @@
+6. Constitution and disbandment of units. The Federal Government, or any officer or authority empowered by it in this behalf, may constitute one or more units of the Mujahid Force to be recruited from persons residing in Pakistan and may disband or reconstitute any unit so constituted.

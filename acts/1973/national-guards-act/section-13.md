@@ -1,0 +1,2 @@
+13. Enrolment. — (1) Any male citizen of Pakistan who is of such age as may be prescribed may offer himself for enrolment in the Janbaz Force for service in the unit constituted for the division or district in which he resides and any such person who satisfies the conditions laid down in the regulations may be enrolled for such period and in such manner as may be prescribed.
+(2) Every person enrolled shall, without unnecessary delay, be appointed to a unit in which he has applied for service.
