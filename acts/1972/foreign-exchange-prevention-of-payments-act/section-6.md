@@ -1,0 +1,1 @@
+6. Penalty. Any person who contravenes or attempts to contravene or abets the contravention of any provision of this Act or of the rules made thereunder or disobeys any direction or order made under this Act or any rule thereunder shall be punishable with imprisonment for a term which may extend to three years and shall also be liable to fine.

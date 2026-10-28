@@ -1,0 +1,14 @@
+2. Power to direct State Bank to stop payment.__(1) Notwithstanding anything contained in the Foreign Exchange Repatriation Regulation, 1972,[^3]* * * the State Bank of Pakistan may, and if so required by the Federal Government by order in writing shall, direct—
+(a) an authorised dealer in foreign exchange through whom any person has repatriated any amount of foreign exchange to Pakistan in pursuance of the said Regulation; or
+(b) any other person with whom the whole or part of the rupee equivalent of the amount so repatriated and other amount payable in respect of such repatriation is or has been deposited,
+to deposit with the State Bank, within the time specified by it, the amount representing the aggregate of the rupee equivalent of the amount so repatriated and any other amount payable in respect of such repatriation or, as the case may be, the part thereof so deposited.
+(2) Any person or authority to whom any amount of money is payable by the person repatriating the amount of foreign exchange or who has against such person any claim the value of which can be expressed in terms of money, may, within such time and in such manner as the Federal Government may, by notification in the official Gazette specify, apply to the Federal Government for payment of the amount so payable or, as the case may be, of the amount representing the value of such claim.
+(3) Upon the receipt of an application under sub-section (2), an officer authorised by the Federal Government in this behalf may, after making such inquiries as he may consider necessary, make such order as he may deem fit:
+[^4]* * * * * * *
+Provided [^5]* that no order for the payment of money to any person or authority shall be so made unless the person repatriating the amount of foreign exchange has had an opportunity of showing cause against it.
+(4) The officer making an order under sub-section (3) shall forward a copy thereof to the State Bank who shall make to the person or authority specified in the order the payment required by the order, if any.
+(5) The deposit by an authorised dealer of foreign exchange or any other person referred to in sub-section (1) of any amount of money he is required to deposit with the State Bank under sub-section (1), and the payment by the State Bank of any amount of money in pursuance of an order under sub-section (3), shall be a full discharge of the authorised dealer or that other person or, as the case may be, of the State Bank from all liabilities in respect of the amount so deposited or paid.
+
+[^3]: The words "(M.L.R. 104), as continued in force by Article 280 of the Interim Constitution of the Islamic Republic of Pakistan" omitted by the Federal Adaptation of Laws Order, 1975 (P.O. 4 of 1975), Art. 2 and Sch.
+[^4]: Proviso omitted by the Foreign Exchange (Prevention of Payments) (Amdt.) Act 1996,(14 of 1996) s. 2.
+[^5]: The word "further" omitted ibid.,
