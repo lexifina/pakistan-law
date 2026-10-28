@@ -1,0 +1,2 @@
+8. Notice of constitution of Special Courts. Whenever any Court is constituted under this Act, notice thereof shall be given by a written proclamation, copies of which shall be affixed in the several Courts, and in the offices of the several Collectors and Magistrates of the district:
+Claims not cognizable in other Courts. and from the date of the issue of such proclamation no other Court shall be competent to entertain any claim or objection belonging to the class of claims or objections for the trial and determination of which such Court is constituted.
