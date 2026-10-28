@@ -1,0 +1,1 @@
+3. Super specialty.⸻The Government can engage highly skilled clinical medical professionals up to sixty five years of age having extra ordinary professional capabilities. Such highly skilled medical professionals shall be appointed on Management Pay Scales or any other special pay scale as may be prescribed by rules.
