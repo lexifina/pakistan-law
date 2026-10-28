@@ -1,0 +1,6 @@
+45. Application to existing operations.__(1) Notwithstanding anything contained in this Ordinance, all persons lawfully carrying on regulated activities immediately before the commencement of this Ordinance shall be deemed to be validly carrying on such regulated activities pursuant to this Ordinance:
+(a) in case of all persons, other than those undertaking the transmission, distribution or sale of natural gas, on such terms and conditions as were applicable to them on the date of commencement of this Ordinance; and
+(b) in case of all persons undertaking the transmission, distribution or sale of natural gas, on such terms and conditions as were applicable to them pursuant to this Ordinance and the relevant rules, on the condition that all such persons shall apply for licences in accordance with the relevant rules.
+(2) Upon application for issuance of licences being made to the Authority by__
+(a) persons, other than those undertaking the transmission, distribution or sale of natural gas, such persons shall be issued licences by the Authority, on the terms and conditions applicable to them on the date of commencement of this Ordinance; and
+(b) all persons undertaking the transmission, distribution or sale of natural gas shall be issued licences by the Authority on the terms and conditions applicable to them pursuant to this Ordinance and the relevant rules.

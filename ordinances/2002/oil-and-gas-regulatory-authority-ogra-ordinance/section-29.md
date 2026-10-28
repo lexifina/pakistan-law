@@ -1,0 +1,1 @@
+29. Cognizance of offences.__ No court shall take cognizance of an offence punishable under this Ordinance except on a complaint in writing made by the Authority or a person authorized by it in this behalf.

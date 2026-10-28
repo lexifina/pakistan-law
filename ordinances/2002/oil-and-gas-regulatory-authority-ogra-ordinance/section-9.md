@@ -1,0 +1,5 @@
+9. Authority hearing.__[^6][(1)] Unless otherwise expressly provided in this Ordinance or any rule or regulation, any decision that the Authority has the power to make, may be made on its own motion or initiative after the holding of a meeting of the Authority, and without giving of notice to the public, and without holding a hearing:
+Provided that if it appears to the Authority that its decision relating to a regulated activity may directly and adversely affect the rights of a person, the Authority shall, prior to reaching the decision, give the person an opportunity of being heard, including presentation of evidence relevant to the decision.
+[^6][(2) The Authority may decide, without giving notice to the public and without holding a public hearing, if the prescribed price is required to be revised only on account of revision in well-head gas prices and cost of imported gases.]
+
+[^6]: Numbered and added by Act No. VIII of 2022, s. 4.

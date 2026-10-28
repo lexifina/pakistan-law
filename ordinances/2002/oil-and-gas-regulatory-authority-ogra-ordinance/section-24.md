@@ -1,0 +1,5 @@
+24. Transfer and assignment of licences.__ (1) No licence shall be transferred or assigned without the consent in writing of the Authority. The Authority may without undue delay, consent to the transfer or assignment of a licence subject to such conditions, restrictions and stipulations, as provided in the rules, that the Authority may determine, or the Authority may, for such reasons as may be recorded, and by a decision in writing giving the reasons thereof, refuse to consent to the transfer or assignment of a licence.
+(2) An application for the transfer or assignment shall be submitted to the Authority on the prescribed form and in accordance with the regulations.
+*Sub-section (2) Section 23 of this Ordinance shall come into force w.e.f. 1.11.2003, vide S.R.O. No. 1026(I)/2003, dated 1.11.2003.
+(3) An application under sub-section (2) shall be accompanied by the prescribed fee, if any.
+(4) A transfer or assignment of a licence shall have no effect until the Authority has consented to the transfer or assignment.

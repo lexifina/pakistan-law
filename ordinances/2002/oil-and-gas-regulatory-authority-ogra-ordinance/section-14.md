@@ -1,0 +1,2 @@
+14. Recruitment of employees.__ (1) The Authority may, from time to time, employ officers, members of its staff, experts, consultants, advisers, and other employees on such terms and conditions as it may deem fit.
+(2) The Authority shall prescribe by regulations the procedure for appointment, promotion, termination and other terms and conditions of employment of persons employed under sub-section (1).

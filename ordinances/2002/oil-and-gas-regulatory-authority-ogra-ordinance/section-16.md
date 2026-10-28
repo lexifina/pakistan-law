@@ -1,0 +1,1 @@
+16. Chairman, etc., to be public servants.__ The Chairman, Members, employees, experts, consultants and advisers of the Authority shall, when acting or purporting to act in pursuance of any of the provisions of this Ordinance or the rules or regulations, be deemed to be public servants within the meaning of section 21 of the Pakistan Penal Code (Act XLV of 1860).

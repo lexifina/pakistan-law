@@ -1,0 +1,1 @@
+36. Existing agreements.__ If on the commencement of this Ordinance there exists an agreement in respect of, or dealing with, a regulated activity to which the Federal Government is a party, in the event of any inconsistency between the provisions of this Ordinance, the rules or the regulations, the provisions of the agreement shall prevail to the extent of the inconsistency.
