@@ -1,0 +1,15 @@
+173. Report of police-officer.__[^356][(1) Every investigation under this Chapter shall be completed without unnecessary delay, and, as soon as it is completed, the officer in charge of the police-station shall [^357][,through the Public Prosecutor,]__
+(a) forward to a Magistrate empowered to take cognizance of the offence on a police-report a report, in the form prescribed by the [^358][Provincial Government], setting forth the names of the parties, the nature of the information and the names of the persons who appear to be acquainted with the circumstances of the case, and stating whether the accused (if arrested) has been forwarded in custody, or has been released on his bond, and, if so, whether with or without sureties, and
+(b) communicate, in such manner as may be prescribed by the [^358][Provincial Government], the action taken by him to the person, if any, by whom the information relating to the commission of the offence was first given [^357][:]]
+[^357][Provided that, where investigation is not completed within a period of fourteen days from the date of recording of the first information report under section 154, the officer in charge of the police station shall, within three days of the expiration of such period, forward to the Magistrate through the Public Prosecutor, an interim report in the form prescribed by the Provincial Government stating therein the result of the investigation made until then and the Court shall commence the trial on the basis of such interim report, unless, for reasons to be recorded, the Court decides that the trial should not so commence.]
+(2) Where a superior officer of police has been appointed under section 158, the report shall, in any cases in which the [^358][Provincial Government] by general or special order so directs, be submitted through that officer, and he may, pending the orders of the Magistrate, direct the officer in charge of the police-station to make further investigation.
+(3) Whenever it appears from a report forwarded under this section that the accused has been released on his bond, the Magistrate shall make such order for the discharge of such bond or otherwise as he thinks fit.
+[^359][(4) A copy of any report forwarded under this section shall, on application, be furnished to the accused before the commencement of the inquiry or trial:
+Provided that the same shall be paid for unless the Magistrate for some special reason thinks fit to furnish it free of cost.]
+[^360][(5) Where the officer in charge of a police-station forwards a report under sub-section (1), he shall alongwith the report produce the witnesses in the case, except the public servants, and the Magistrate shall bind such witnesses for appearance before him or some other Court on the date fixed for trial.]
+
+[^356]: Subs. by the Code of Criminal Procedure (Amdt.) Act, 1923 (XVIII of 1923), s. 40.
+[^357]: Added & subs.by Act No. XXV of 1992, s. 2.
+[^358]: Subs. by A.O., 1937, for “L.G.”.
+[^359]: Ins. by the Code of Criminal Procedure (Amdt.) Act, 1923 (XVIII of 1923), s. 40.
+[^360]: Added by Act No. XXV of 1992, S. 2.

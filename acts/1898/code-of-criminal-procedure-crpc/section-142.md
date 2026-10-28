@@ -1,0 +1,3 @@
+142. Injunction pending inquiry.__ (1) If a Magistrate making an order under section 133 considers that immediate measures should be taken to prevent imminent danger or injury of a serious kind to the public, he may, whether a jury is to be, or has been, appointed or not, issue such an injunction to the person against whom the order was made, as is required to obviate or prevent such danger or injury pending the determination of the matter.
+(2) In default of such person forthwith obeying such injunction, the Magistrate may himself use, or cause to be used, such means as he thinks fit to obviate such danger or to prevent such injury.
+(3) No suit shall lie in respect of anything done in good faith by a Magistrate under this section.

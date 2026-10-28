@@ -1,0 +1,4 @@
+187. Procedure where warrant issued by subordinate Magistrate.__(1) If the person has been arrested under a warrant issued under section 186 [^375][,the Magistrate issuing the warrant shall send the arrested person to the Sessions Judge] to whom he is sub-ordinate, unless the Magistrate having jurisdiction to inquire into or try such offence issues his warrant for the arrest of such person, in which case the person arrested shall be delivered to the police-officer executing such warrant or shall be sent to the Magistrate by whom such warrant was issued.
+(2) If the offence which the person arrested is alleged or suspected to have committed is one which may be inquired into or tried by any Criminal Court in the same district other than that of the Magistrate acting under section 186, such Magistrate shall send person to such Court.
+
+[^375]: Subs. by the Law Reforms Ordinance, 1972 (XII of 1972), s.2 and Sch.

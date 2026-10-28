@@ -1,0 +1,2 @@
+467. Resumption of inquiry or trial.__ (1) Whenever an inquiry or a trial is postponed under section 464 or section 465, the Magistrate or Court, as the case may be, may at any time resume the inquiry or trial, and require the accused to appear or be brought before such Magistrate or Court.
+(2) When the accused has been released under section 466, and the sureties for his appearance produce him to the officer whom the Magistrate or Court appoints in this behalf, the certificate of such officer that the accused is capable of making his defence shall be receivable in evidence.

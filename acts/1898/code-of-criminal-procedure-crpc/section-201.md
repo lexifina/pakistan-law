@@ -1,0 +1,2 @@
+201. Procedure by Magistrate not competent to take cognizance of the case.__ (1) If the complaint has been made in writing to a Magistrate who is not competent to take cognizance of the case, he shall return the complaint for presentation to the proper Court with an endorsement to that effect.
+(2) If the complaint has not been made in writing, such Magistrate shall direct the complainant to the proper Court.

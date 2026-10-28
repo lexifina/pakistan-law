@@ -1,0 +1,3 @@
+502. Discharge of sureties.__ (1) All or any sureties for the attendance and appearance of a person released on bail may at any time apply to a Magistrate to discharge the bond, either wholly or so far as relates to the applicants.
+(2) On such application being made, the Magistrate shall issue his warrant of arrest directing that the person so released be brought before him.
+(3) On the appearance of such person pursuant to the warrant, or on his voluntary surrender, the Magistrate shall direct the bond to be discharged either wholly or so far as relates to the applicants, and shall call upon such person to find other sufficient sureties, and, if he falls to do so, may commit him to custody.

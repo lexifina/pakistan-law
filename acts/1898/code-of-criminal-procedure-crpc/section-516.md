@@ -1,0 +1,1 @@
+516. Power to direct levy of amount due on certain recognizances. The High Court or Court of Session may direct any Magistrate to levy the amount due on a bond to appear and attend at such High Court or Court of Session.

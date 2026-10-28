@@ -1,0 +1,1 @@
+265B. Procedure in cases triable by High Courts and Courts of Session.__ The following procedure shall be observed by the High Courts and the Courts of Session in the trial of cases triable by the said Courts.

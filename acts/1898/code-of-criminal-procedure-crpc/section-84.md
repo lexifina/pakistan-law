@@ -1,0 +1,6 @@
+84. Warrant directed to police-officer for execution outside jurisdiction.__ (1) When a warrant directed to a police-officer is to be executed beyond the local limits of the jurisdiction of the Court issuing the same, he shall ordinarily take it for endorsement either to a Magistrate or to a police-officer not below the rank of an officer in charge of a station, within the local limits of whose jurisdiction the warrant is to be executed.
+(2) Such Magistrate or police-officer shall endorse his name thereon and such endorsement shall be sufficient authority to the police-officer to whom the warrant is directed to execute the same within such limits, and the local police shall, if so required, assist such officer in executing such warrant.
+(3) Whenever there is reason to believe that the delay occasioned by obtaining the endorsement of the Magistrate or police-officer within the local limits of whose jurisdiction the warrant is to be executed, will prevent such execution, the police-officer to whom it is directed may execute the same without such endorsement in any place beyond the local limits of the jurisdiction of the Court which issued it.
+[^135][* * * * * * *]
+
+[^135]: Omitted by the Adaptation of Central Acts and Ordinances Order, 1949 (Order No. 4 of 1949), Art. 3 and Sch.

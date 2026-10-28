@@ -1,0 +1,3 @@
+171. Complainants and witnesses not to be required to accompany police-officer. No complainant or witness on his way to the Court of the Magistrate shall be required to accompany a police-officer,
+Complainents and witnesses not to be subjected to restraint. or shall be subjected to unnecessary restraint or inconvenience, or required to give any security for his appearance other than his own bond:
+Recusant complainant or witness may be forwarded in custody. Provided that, if any complainant or witness refuses to attend or to execute a bond as directed in section 170, the officer in charge of the police-station may forward him in custody to the Magistrate, who may detain him in custody until he executes such bond, or until the hearing of the case is completed.

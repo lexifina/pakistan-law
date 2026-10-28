@@ -1,0 +1,1 @@
+229. When new trial may be directed, or trial suspended. If the new or altered or added charge is such that proceeding immediately with the trial is likely, in the opinion of the Court, to prejudice the accused or the prosecutor as aforesaid, the Court may either direct a new trial or adjourn the trial for such period as may be necessary.

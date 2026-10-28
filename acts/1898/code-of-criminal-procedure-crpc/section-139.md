@@ -1,0 +1,2 @@
+139. Procedure where jury finds Magistrate's order to be reasonable.__ (1) If the jury or a majority of the jurors find that the order of the Magistrate is reasonable and proper as originally made, or subject to a modification which the Magistrate accepts, the Magistrate shall make the order absolute, subject to such modification (if any).
+(2) In other cases no further proceedings shall be taken under this Chapter.

@@ -1,0 +1,2 @@
+493. Public Prosecutor may plead in all Courts in cases under his charge Pleaders
+privately instructed to be under his direction. The Public Prosecutor may appear and plead without any written authority before any Court in which any case of which he has charge is under inquiry, trial or appeal, and if any private person instructs a pleader to prosecute in any Court any person in any such case, the Public Prosecutor shall conduct the prosecution, and the pleader so instructed shall act therein, under his directions.

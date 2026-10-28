@@ -1,0 +1,6 @@
+15. Benches of Magistrates.__ (1) The [^38][Provincial Government] may direct any two or more [^39][Judicial Magistrates] in any place [^40][* * *] to sit together as a Bench, and may by order invest such Bench with any of the powers conferred or conferrable by or under this Code on a Magistrate of the first, second or third class, and direct it to exercise such powers in such cases, or, such classes of cases only and within such local limits, as the [^38][Provincial Government] thinks fit.
+(2) Powers exerciseable by Bench in absence of special direction. Except as otherwise provided by any order under this section, every such Bench shall have the powers conferred by this Code on a Magistrate of the highest class to which any one of its members, who is present taking part in the proceedings as a member of the Bench, belongs, and as far as practicable shall, for the purposes of this Code, be deemed to be a Magistrate of such class.
+
+[^38]: Subs. by A.O., 1937, for “L.G.”.
+[^39]: Subs. by Law Reforms Ordinance, 1972 (XII of 1972), s.2 & Sch.
+[^40]: The words “outside the presidency town” omitted by the Adaptation of Central Acts and Ordinances Order, 1949 (Order No. 4 of 1949), Art. 3 and Sch.

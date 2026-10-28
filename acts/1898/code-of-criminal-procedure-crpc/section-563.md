@@ -1,0 +1,4 @@
+[^975]563. Provision in case of offender failing to observe conditions of his recognizance.__ (1) If the Court which convicted the offender, or a Court which could have dealt with the offender in respect of his original offence, is satisfied that the offender has failed to observe any of the conditions of his recognizance, it may issue a warrant for his apprehension.
+(2) An offender, when apprehended on any such warrant, shall be brought forthwith before the Court issuing the warrant, and such Court may either remand him in custody until the case is heard or admit him to bail with a sufficient surety conditioned on his appearing for sentences. Such Court may, after hearing the case, pass sentence
+
+[^975]: Ss.380, 562, 563 and 564 have been rep. by the Probation of Offenders Ordinance, 1960 (XLV of 1960), s.16, only in its application to__ (i) the Province of West Pakistan with effect from the 1st July, 1961; see Gaz. Of P., 1961 Ext., p.957, and

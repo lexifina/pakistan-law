@@ -1,0 +1,2 @@
+183. Offence committed on a journey. An offence committed whilst the offender is in the course of performing a journey or voyage may be inquired into or tried by a Court through or into the local limits of whose jurisdiction the offender, or the person against whom, or the thing in respect of which, the offence was committed, passed in the course of that journey or voyage.
+184. [Offences against Railway, Telegraph, Post Office and Arms Acts.] Rep. by the Federal Laws (Revision and Declaration) Act, 1951 (XXVI of 1951), s. 3 and Second Schedule.

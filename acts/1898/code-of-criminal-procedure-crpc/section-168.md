@@ -1,0 +1,1 @@
+168. Report of investigation by subordinate police-officer. When any subordinate police-officer has made any investigation under this Chapter, he shall report the result of such investigation to the officer in charge of the police-station.

@@ -1,0 +1,1 @@
+543. Interpreter to be bound to interpret truthfully. When the services of an interpreter are required by any Criminal Court for the interpretation of any evidence or statement, he shall be bound to state the true interpretation of such evidence or statement.

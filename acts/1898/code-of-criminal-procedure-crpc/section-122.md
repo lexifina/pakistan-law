@@ -1,0 +1,7 @@
+[^234][122. Power to reject sureties.__ (1) A Magistrate may refuse to accept any surety offered, or may reject any surety previously accepted by him or his predecessor under this Chapter on the ground that such surety is an unfit person for the purposes of the bond :
+Provided that, before so refusing to accept or rejecting any such surety, he shall either himself hold an inquiry on oath into the fitness of the surety, or cause such inquiry to be held and a report to be made thereon by a Magistrate subordinate to him.
+(2) Such Magistrate shall, before holding the inquiry, give reasonable notice to the surety and to the person by whom the surety was offered and shall, in making the inquiry, record the substance of the evidence adduced before him.
+(3) If the Magistrate is satisfied, after considering the evidence so adduced either before him or before a Magistrate deputed under sub-section (1), and the report of such Magistrate (if any) that the surety is an unfit person for the purposes of the bond, he shall make an order refusing to accept or rejecting, as the case may be, such surety and recording his reasons for so doing:
+Provided that, before making an order rejecting any surety who has previously been accepted, the Magistrate shall issue his summons or warrant, as he thinks fit, and cause the person for whom the surety is bound to appear or to be brought before him.]
+
+[^234]: Re-numbered and subs. by Act No. XVIII of 1923, ss. 19-20.

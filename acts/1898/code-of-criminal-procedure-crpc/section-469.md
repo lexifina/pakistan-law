@@ -1,0 +1,3 @@
+[^750][469. When accused appears to have been insane. When the accused appears to be of sound mind at the time of inquiry or trial, and the Magistrate or Court is satisfied from the evidence given before him or it that there is reason to believe that the accused committed an act which, if he had been of sound mind, would have been an offence, and that he was, at the time when the act was committed, by reason of unsoundness of mind, incapable of knowing the nature of the act or that it was wrong or contrary to law, the Magistrate or Court shall proceed with the case.]
+
+[^750]: Subs. by the Law Reforms Ordinance, 1972 (XII of 1972), s.2 and Sch.

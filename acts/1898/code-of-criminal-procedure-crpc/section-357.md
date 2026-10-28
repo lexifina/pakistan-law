@@ -1,0 +1,5 @@
+357. Language of record of evidence.__ (1) The [^588][Provincial Government] may direct that in any district or part of a district, or in proceedings before any Court of Session, or before any Magistrate or class of Magistrates the evidence of each witness shall, in the cases referred to in section 356, be taken down by the Sessions Judge or Magistrate with his own hand and in his mother-tongue, unless he is prevented by any sufficient reason from taking down the evidence of any witness, in which case he shall record the reason of his inability to do so and shall cause the evidence to be taken down in writing from his dictation in open Court.
+(2) The evidence so taken down shall be signed by the Sessions Judge or Magistrate, and shall form part of the record:
+Provided that the [^588][Provincial Government] may direct the Session Judge or Magistrate to take down the evidence in the English language or in the language of the Court, although such language is not his mother-tongue.
+
+[^588]: Subs. by A.O., 1937, for “L.G”.

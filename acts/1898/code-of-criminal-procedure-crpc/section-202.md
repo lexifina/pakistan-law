@@ -1,0 +1,8 @@
+[^451][202. Postponement of issue of process.__ (1) Any Court, on receipt of a complaint of an offence of which it is authorised to take cognizance, or which has been sent to it under section 190, sub-section (3), or transferred to it under section 191 or section 192, may, if it thinks fit, for reasons to be recorded, postpone the issue of process for compelling the attendance of the person complained against, and either inquire into the case itself or direct any inquiry or investigation to be made by [^452][any Justice of the Peace, or by] a police-officer, or by such other person as it thinks fit, for the purpose of ascertaining the truth or falsehood of the complaint:
+Provided that, save where the complaint has been made by a Court, no such direction shall be made unless the complainant has been examined on oath under the provisions of section 200.
+(2) A Court of Session may, instead of directing an investigation under the provisions of sub-section (1), direct the investigation to be made by any Magistrate subordinate to it for the purpose of ascertaining the truth or falsehood of the complaint.
+(3) If any inquiry or investigation under this section is made by a person not being a Magistrate, [^452][or Justice of the Peace] or a police-officer, such person shall exercise all the powers conferred by this Code on an officer-in-charge of a police-station, except that he shall not have power to arrest without warrant.
+(4) Any Court inquiring into a case under this section may, if it thinks fit, take evidence of witnesses on oath.]
+
+[^451]: Subs. by the Law Reforms Ordinance, 1972 (XII of 1972), s.2 and Sch.
+[^452]: Ins. ibid.

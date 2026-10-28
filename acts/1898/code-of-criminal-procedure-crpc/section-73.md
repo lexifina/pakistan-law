@@ -1,0 +1,1 @@
+73. Service of summons outside local limits. When a Court desires that a summons issued by it shall be served at any place outside the local limits of its jurisdiction, it shall ordinarily send such summons in duplicate to a Magistrate within the local limits of whose jurisdiction the person summoned resides or is, to be there served.

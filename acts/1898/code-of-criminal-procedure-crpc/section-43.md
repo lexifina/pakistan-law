@@ -1,0 +1,1 @@
+43. Aid to person other than police-officer, executing warrant. When a warrant is directed to a person other than a police-officer, any other person may aid in the execution of such warrant, if the person to whom the warrant is directed be near at hand and acting in the execution of the warrant.

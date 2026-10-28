@@ -1,0 +1,1 @@
+53. Power to seize offensive weapons. The officer or other person making any arrest under this Code may take from the person arrested any offensive weapons which he has about his person, and shall deliver all weapons so taken to the Court or officer before which or whom the officer or person making the arrest is required by this Code to produce the person arrested.

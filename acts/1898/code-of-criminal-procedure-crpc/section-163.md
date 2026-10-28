@@ -1,0 +1,2 @@
+163. No inducement to be offered.__ (1) No police-officer or other person in authority shall offer or make, or cause to be offered or made, any such inducement, threat or promise as is mentioned in the Evidence Act, 1872 (I of 1872), section 24.
+(2) But no police-officer or other person shall prevent, by any caution or otherwise, any person from making in the course of any investigation under this Chapter any statement which he may be disposed to make of his own free will.

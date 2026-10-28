@@ -1,0 +1,1 @@
+49. Power to break open doors and windows for purposes of liberation. Any police-officer or other person authorized to make an arrest may break open any outer or inner door or window of any house or place in order to liberate himself or any other person who, having lawfully entered for the purpose of making an arrest, is detained therein.

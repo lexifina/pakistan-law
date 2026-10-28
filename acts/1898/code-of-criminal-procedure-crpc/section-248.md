@@ -1,0 +1,1 @@
+248. Withdrawal of complaint. If a complainant, at any time before a final order is passed in any case under this Chapter, satisfies the Magistrate that there are sufficient grounds for permitting him to withdraw his complaint the Magistrate may permit him to withdraw the same, and shall thereupon acquit the accused.

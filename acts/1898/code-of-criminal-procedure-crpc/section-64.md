@@ -1,0 +1,1 @@
+64. Offence committed in Magistrate’s presence. When any offence is committed in the presence of a Magistrate within the local limits of his jurisdiction, he may himself arrest or order any person to arrest the offender, and may thereupon, subject to the provisions herein contained as to bail commit the offender to custody.

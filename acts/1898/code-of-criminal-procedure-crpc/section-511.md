@@ -1,0 +1,4 @@
+511. Previous conviction or acquittal how proved. In any inquiry, trial or other proceeding under this Code, a previous conviction or acquittal may be proved, in addition to any other mode provided by any law for the time being in force__
+(a) by an extract certified under the hand of the officer having the custody of the records of the Court in which such conviction or acquittal was had to be a copy of the sentence or order ; or
+(b) in case of a conviction, either by a certificate signed by the officer in charge of the jail in which the punishment or any part thereof was inflicted, or by production of the warrant of commitment under which the punishment was suffered ;
+together with, in each of such cases, evidence as to the identity of the accused person with the person so convicted or acquitted.

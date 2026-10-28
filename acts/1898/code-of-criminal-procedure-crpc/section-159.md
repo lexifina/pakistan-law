@@ -1,0 +1,1 @@
+159. Power to hold investigation of preliminary inquiry. Such Magistrate, on receiving such report, may direct an investigation or, if he thinks fit, at once proceed, or depute any Magistrate subordinate to him to proceed, to hold a preliminary inquiry into, or otherwise to dispose of, the case in manner provided in this Code.

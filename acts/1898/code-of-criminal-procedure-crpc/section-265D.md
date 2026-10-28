@@ -1,0 +1,1 @@
+265D. When charge is to be framed.__ If, after persuing the police report or, as the case may be, the complaint, and all other documents and statements filed by the prosecution, the Court is of opinion that there is ground for proceeding with the trial of the accused it shall frame in writing a charge against the accused.

@@ -1,0 +1,14 @@
+[^230][^231]117. Inquiry as to truth of information.__ (1) When an order under section 112 has been read or explained under section 113 to a person present in Court, or when any person appears or is brought before a Magistrate in compliance with, or in execution of, a summons or warrant, issued under section 114, the Magistrate shall proceed to inquire into the truth of the information upon which action has been taken, and to take such further evidence as may appear necessary.
+[^232][(2) Such inquiry shall be made, as nearly as may be practicable, in the manner prescribed in Chapter XX for conducting trials and recording evidence, except that no charge need be framed.]
+[^233][(3) Pending the completion of the inquiry under sub-section (1), the Magistrate, if he considers that immediate measures are necessary for the prevention of a breach of the peace or disturbance of the public tranquillity or the commission of any offence or for the public safety, may, for reasons to be recorded in writing, direct the person in respect of whom the order under section 112 has been made to execute a bond, with or without sureties, for keeping the peace or maintaining good behaviour until the conclusion of the inquiry, and may detain him in custody until such bond is executed or, in default of execution, until the inquiry is concluded :
+Provided that__
+(a) no person against whom proceedings are not being taken under section 108, section 109, or section 110, shall be directed to execute a bond for maintaining good behaviour, and
+(b) the conditions of such bond, whether as to the amount thereof or as to the provision of sureties or the number thereof or the pecuniary extent of their liability, shall not be more onerous than those specified in the order under section 112.]
+[^233][(4)] For the purposes of this section the fact that a person is an habitual offender [^233][or is so desperate and dangerous as to render his being at large without security hazardous to the community] may be proved by evidence of general repute or otherwise.
+[^234][(5)] Where two or more persons have been associated together in the matter under inquiry, they may be dealt with in the same or separate inquiries as the Magistrate shall think just.
+
+[^230]: Ss. 112 to 121 and 123 to 126 and s. 514 apply to all cases requiring security for good behaviour under s. 6 of the Punjab Frontier Crossing Regulation, 1873 (7 of 1873).
+[^231]: Ss. 112, 113, 115 and 117 do not apply to an enquiry under s. 22 of the Sindh Frontier Regulation, 1892 (3 of 1892), or under s. 42 of the Frontier Crimes Regulation, 1901 (3 of 1901).
+[^232]: Subs. by the Law Reforms Ordinance, 1972 (XII of 1972), s.2 and Sch.
+[^233]: Ins. and re-numbered by Act No. XVIII of 1923, s. 19.
+[^234]: Re-numbered and subs. by Act No. XVIII of 1923, ss. 19-20.

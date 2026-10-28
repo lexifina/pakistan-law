@@ -1,0 +1,1 @@
+265M. Time of holding sittings.__ For the exercise of its original criminal jurisdiction, every High Court shall hold sittings on such days and at such convenient intervals as the Chief Justice of such Court from time to time appoints.
