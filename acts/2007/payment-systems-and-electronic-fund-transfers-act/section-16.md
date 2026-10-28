@@ -1,0 +1,1 @@
+16. Third Party.__ If a person other than a Financial Institution is holding a Consumer’s Account the State Bank shall by instructions ensure that the disclosures, required to be made for Electronic Fund Transfers, and the protections, responsibilities and remedies created by this Act, are made applicable to such Persons and services.

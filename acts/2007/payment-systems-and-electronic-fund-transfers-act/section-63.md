@@ -1,0 +1,3 @@
+63. Trial of Offence.—(1) Notwithstanding anything to the contrary provided by any other law for the time being in force, offences provided for in Chapter IX of this Act shall be tried by the Court of Sessions, having territorial jurisdiction in the case, which shall observe the same procedure as provided for trial of offences by the Code of Criminal Procedure,1898 (Act V of 1898).
+(2) Cognizance shall be taken by the court upon a report of facts made in writing by a police officer or upon receiving a complaint of facts which constitute the offence.
+(3) In case of a complaint, the court may postpone the issue of process for attendance of the person complained against and refer the complaint to the officer-in-charge of a police station for investigation and report.

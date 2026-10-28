@@ -1,0 +1,1 @@
+65. Offences to be non-cognizable etc. Notwithstanding anything contained in the Code of Criminal Procedure, 1898 (Act V of 1898), all offences under this Act are bailable, non-cognizable and compoundable with the permission of the court.

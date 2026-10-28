@@ -1,0 +1,1 @@
+15. Security.__ Financial Institutions and other institutions providing Electronic Funds Transfer facilities shall ensure that secure means are used for transfer, compliant with current international standards and as may be prescribed by the State Bank from time to time.

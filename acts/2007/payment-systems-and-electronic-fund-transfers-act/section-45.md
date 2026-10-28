@@ -1,0 +1,1 @@
+45. Intent.__ In case of failure described in clauses (i) and (ii) of section 43 was not intentional and it resulted from a bona fide error, notwithstanding the maintenance of procedures reasonably adopted to avoid any such error, the Financial Institution, Authorized Party, operator or the participant shall be liable for actual damages proved.

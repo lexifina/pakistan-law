@@ -1,0 +1,2 @@
+71. Complaint Resolution.— (1) A consumer, not satisfied with the outcome of a complaint made to a Financial Institution in relation to any Electronic Fund Transfer or disclosure made by a Financial Institution to a third party, without prejudice to any right to seek any other remedy under the law, may make a complaint to the State Bank.
+(2) The State Bank after hearing the parties may pass such order as it deems fit under the circumstances of the case.

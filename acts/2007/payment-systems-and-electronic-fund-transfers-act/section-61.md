@@ -1,0 +1,1 @@
+61. Application of Fine. __A court imposing any fine under this Act may direct that the whole or any part thereof shall be applied towards compensation to the aggrieved person for any loss caused by the person committing an offence under this Act.

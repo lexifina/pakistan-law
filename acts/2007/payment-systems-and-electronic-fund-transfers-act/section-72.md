@@ -1,0 +1,2 @@
+72. Suspension of Operation.— (1) The Federal Government in consultation with the State Bank may by a general order, for the time being suspend operation of any provision of this Act, and from the date of such order, such provision shall cease to apply.
+(2) When the order made under sub-section (1) is withdrawn by the Federal Government such suspension shall cease to operate with effect from the date specified by the Federal Government in this behalf.

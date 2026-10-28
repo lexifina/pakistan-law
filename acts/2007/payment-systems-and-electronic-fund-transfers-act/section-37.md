@@ -1,0 +1,2 @@
+37. Correcting Error.__ If the Financial Institution or Authorized Party determines that an error did occur, it shall promptly, and in no event later than one Business Day after such determination, correct the error, including the crediting of a Consumer’s Account with mark up where applicable:
+Provided that such investigation shall be concluded not later than ten Business Days after receipt of notice of the error.

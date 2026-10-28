@@ -1,0 +1,1 @@
+51. Bonafide Error. __ Except as provided by section 50, a person may not be held liable in any action brought under this chapter for any violation of this Act if the person shows by preponderance of evidence that the violation was not intentional and resulted from a bonafide error notwithstanding the maintenance of procedures reasonably adopted to avoid any such error.

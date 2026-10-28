@@ -1,0 +1,4 @@
+8. Disqualification of Staff.__ (1) No person shall be appointed to serve in any capacity by an operator of a Designated Payment System if –
+(i) such person has been adjudged a bankrupt, or has suspended payments, or has compounded a debt with his creditors, whether in or outside Pakistan, within ten years prior to the date of the appointment; or
+(ii) such person has been convicted of an offence under this Act or committed any other offence involving moral turpitude or such an offence has been compounded against him.
+(2) Any person being the chairman, director, chief executive, by whatever name called, or official liquidator, or an officer of a designated payment system mismanages the affairs of the payment system or misuses his position for gaining direct or indirect benefit for himself or any of his family members or any other person, shall be disqualified to serve in any capacity in a designated payment system.

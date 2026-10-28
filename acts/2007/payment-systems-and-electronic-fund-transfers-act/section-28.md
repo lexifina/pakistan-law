@@ -1,0 +1,1 @@
+28. Service Providers Other Than Financial Institutions.__ The State Bank shall determine, which provisions of this Act, subject to any modifications, adjustments or exceptions as provided for in section 26, shall apply to a person other than a Financial Institution, holding a Consumer’s Account.

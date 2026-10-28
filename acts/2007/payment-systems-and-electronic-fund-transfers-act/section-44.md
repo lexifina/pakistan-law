@@ -1,0 +1,3 @@
+44. Force Majeure.__ A Financial Institution, an Authorized Party, Operator or a Participant shall not be liable under clauses (i) and (ii) of section 43 if it shows by a preponderance of evidence that its action or failure to act resulted from—
+(i) force majeure or other circumstance beyond its control, that it exercised reasonable care to prevent such an occurrence, and that it exercised such diligence as the circumstances required;
+(ii) a technical malfunction which was known to the Consumer at the time he attempted to initiate an. Electronic Fund Transfer or, in case of Preauthorized transfer, at the time such transfer should have occurred.
