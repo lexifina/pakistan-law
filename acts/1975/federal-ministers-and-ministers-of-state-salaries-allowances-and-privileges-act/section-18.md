@@ -1,0 +1,3 @@
+18. Personal staff.—Each Minister, except while on leave, shall be entitled to have one private secretary, one personal assistant, [^13][one Urdu stenographer or stenotypist, one quasid and one naib quasid] with such status and conditions as are or may be laid down by the Government from time to time.
+
+[^13]: Subs. by Ordinance No. XXXV of 1980, s. 5. *Leave Salary of a Federal Minister and a Minister of State has been enhanced from Rs. 99,808/- p.m. to Rs. 200,000/- p.m. and Rs. 92,324/- p.m. to Rs. 180,000/- p.m respectively with effect from 01.10.2016 vide cabinet Division O.M No. 2-4/2011-M in –I dated 21st December, 2016.

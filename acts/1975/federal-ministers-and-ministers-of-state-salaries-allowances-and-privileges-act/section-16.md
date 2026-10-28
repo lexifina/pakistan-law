@@ -1,0 +1,1 @@
+16. Medical facilities.—A Minister and his family shall be entitled to medical facilities admissible under the Special Medical Attendance Rules, except that they shall be entitled to receive medical treatment at the residence.

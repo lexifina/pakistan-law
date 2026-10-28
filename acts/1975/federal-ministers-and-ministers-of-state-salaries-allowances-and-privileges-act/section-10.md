@@ -1,0 +1,3 @@
+[^7][10. Payment in case of own house.—Where a Federal Minister or a Minister of State chooses to reside in his own house, the Federal Minister may be paid a monthly sum of fifty-five thousand rupees and the Minister of State fifty thousand rupees, in lieu of the furnished accommodation and to cover all expenses on its maintenance: Provided that no furniture or furnishing shall be provided therein at the cost of Government: Provided further that, if the Minister holds his office in the house, the room used as his office shall be furnished at Government expenses: Provided also that a Federal Minister and Minister of State shall be entitled to utility allowance specified in sub-section (4) of section 8.]
+
+[^7]: Subs. by the Finance Act, 2005 (Act No. VII of 2005), s. 10.
