@@ -1,0 +1,1 @@
+37. Exemption from tax. The income of a modaraba shall be exempt from tax under the Income Tax Ordinance, 1979 (XXXI of 1979) if not less than ninety per cent of its profits in a year is distributed to the holders of th Modaraba Certificates.

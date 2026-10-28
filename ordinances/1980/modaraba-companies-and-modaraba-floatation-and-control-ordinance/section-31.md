@@ -1,0 +1,2 @@
+31. Punishment.__ (1) Whoever contravenes the provisions of section 4, 10, 13, 14, 16 or 17 shall be punishable with imprisonment of either description for a term which may extend to three years and with fine which may extend to five hundred thousand rupees.
+(2) Where the contravention referred to in sub-section (1) has caused loss to the modaraba or any other person, a further fine to the extent of the loss shall be imposed.

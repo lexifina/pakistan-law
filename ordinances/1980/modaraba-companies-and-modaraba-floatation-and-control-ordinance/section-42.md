@@ -1,0 +1,1 @@
+42. Act to override other laws. The provisions of this Ordinance shall have effect notwithstanding anything contained in the Companies Act, 1913 (VII of 1913) or any other law for the time being in force.

@@ -1,0 +1,2 @@
+24. Constitution of Tribunal.__ The Federal Government may, by notification, in the official Gazette, constitute one or more Tribunals for the purpose of this Ordinance and, where it constitutes more than one Tribunal, shall specify in the notification the area within which, or the class of cases in respect of which, each such Tribunal shall exercise jurisdiction under this Ordinance.
+(2) A Tribunal shall consist of a person who is, or has been, or is qualified to be a Judge of a High Court.

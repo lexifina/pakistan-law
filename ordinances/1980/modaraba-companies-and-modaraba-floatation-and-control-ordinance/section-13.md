@@ -1,0 +1,8 @@
+13. Conditions applicable to modaraba.__ (1) No allotment of Modaraba Certificates shall be made unless a prospectus approved by the Registrar has been issued and the minimum amount stated in the prospectus to be the amount which must be raised in order to provide for the business operation and expenses has been subscribed.
+(2) All moneys received from the applicants for Modaraba Certificates for a modaraba shall be deposited and kept in a separate account in a scheduled bank as defined in the State Bank of Pakistan Act, 1956 (XXXIII of 1956) until they are refunded in accordance with the provisions of sub-section (3) or until it is certified by the Registrar that Modaraba Certificates have been allotted in an amount not less than the minimum amount referred to in subsection (1).
+(3) If the subscription referred to in sub-section (1) has not been received by the date specified in the prospectus, all moneys received from the applicants shall be refunded to them within fifteen days of the said date and the modaraba company and the directors thereof shall be jointly and severally liable to repay the money which is not so refunded.
+(4) The modaraba company shall issue Modaraba Certificates within thirty days from the date of allotment.
+(5) The modaraba company shall maintain a register of holders of Modaraba Certificates in such form and in such manner as may be prescribed.
+(6) The modaraba company shall maintain separate bank account, funds, assets and liabilities of each modaraba.
+(7) No modaraba shall be liable for the liabilities, or be entitled to benefit from the assets, of any other modaraba or of the modaraba company.
+(8) A Modaraba Certificate shall be transferable in the manner provided for the prospectus of the modaraba.

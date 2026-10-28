@@ -1,0 +1,1 @@
+40. Indemnity. No suit, prosecution or other legal proceeding shall lie against the Federal Government or the Registrar or any other officer for anything which is in good faith done or intended to be done under this Ordinance, or any rules.

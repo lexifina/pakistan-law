@@ -1,0 +1,9 @@
+21. Enquiries.__ (1) The Registrar may, on his own motion or on an application made by the holders of Modaraba Certificates the value of which is not less than ten percent of the total subscribed amount of the modaraba, by an order in writing cause an enquiry to be made by a person appointed by him in this behalf into the affairs of a modaraba company or the modaraba or any business transaction thereof.
+(2) Where an enquiry under sub-section (1) has been ordered, every director, manager or other officer of the modaraba company to which the enquiry relates and every other person who has had any dealing with such modaraba company or director or officer shall furnish such information or document in the custody or power or within his knowledge relating to or having a bearing on the subject matter of the enquiry as the person conducting the enquiry may by notice in writing require.
+(3) The person conducting an enquiry under sub-section (1) may for the purpose of such enquiry enter into any premises belonging to or in occupation of the modaraba company or of the person to whom the enquiry relates and may call for, inspect and seize books of accounts and documents in possession of any such modaraba company, director, manager, or any other officer or employee thereof.
+(4) The person holding an enquiry under sub-section (1) shall, for the purpose of such enquiry, have the same powers as a vested in a court under the Code of Civil Procedure, 1908 (Act V of 1908), when trying a suit in respect of the following matters, namely: __
+(a) enforcing the attendance of a person and examining him on oath for affirmation;
+(b) compelling the discovery and production of documents; and
+(c) issuing commissions for the examination of witnesses.
+(5) On receipt of the report of the person conducting the enquiry, the Registrar shall take such
+action as he may consider necessary on the basis of the report.
