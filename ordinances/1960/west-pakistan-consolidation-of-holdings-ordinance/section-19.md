@@ -1,0 +1,2 @@
+19. Revenue Officer to prevent encroachment upon way or path shown in new records. A Revenue Officer may, either of his own motion or on an application in this behalf, eject any person making any encroachment upon any way or path shown in the record-of-rights prepared under section 15, and by an order published in such manner as may be prescribed, forbid repetition of the encroachment:
+Provided that the proceedings of the Revenue Officer shall be subject to any decree or order which may be passed by any Court of competent jurisdiction.

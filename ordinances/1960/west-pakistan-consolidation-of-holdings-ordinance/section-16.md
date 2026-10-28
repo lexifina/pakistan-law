@@ -1,0 +1,1 @@
+16. Rights of land-owners and tenants after consolidation same as before. A land-owner or a tenant shall have the same rights in the holding or land allotted to him in pursuance of a scheme of consolidation as he had in his original holding or tenancy, as the case may be.
