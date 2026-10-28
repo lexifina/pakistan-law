@@ -1,0 +1,8 @@
+# THE FISHERIES ACT, 1897
+THE FISHERIES ACT, 1897
+[^1]ACT No. IV OF 1897 [4th February, 1897]
+An Act to provide for certain matters relating to Fisheries in [^2][Pakistan].
+WHEREAS it is expedient to provide for certain matters relating to fisheries in 2[Pakistan] ; It is hereby enacted as follows:—
+
+[^1]: For Statement of Objects and Reasons, see Gazette of India, 1893, Pt. V, p. 101 ; for Report of the Select Committee, see ibid., 1897, Pt. V, ,p. 15 ; and for Proceedings in Council, see ibid., 1893, Pt. VI, p. 207, ibid., 1896, p. 250, and ibid., 1897, p. 21. This Act has been declared to be in force in Baluchistan by the British Baluchistan Laws Regulation, 1913 (2 of 1913), s. 3 and Sch. I. It has also been extended to the Leased Areas of Baluchistan, see the Leased Areas (Laws) Order, 1950 (G.G.O. 3 of 1950); and applied in the Federated Areas of Baluchistan, see Gazette ofIndia, 1937, Pt. I, p.1499. It has been applied to Phulera in the Excluded Area of Upper Tanawal to the extent the Act is applicable in the N.W.F.P., subject to certain modifications ; and also extended to the Excluded Area of Upper Tanawal other than Phu!era with effect from such date and 'subject to such modifications as may be notified, see N.W.F.P. (Upper Tallawal) (Excluded Area) Laws Regulation, 1950. It has been amended in its application to the Federal Capital by Ord. 32 of 1959, s.2. This Act has been amended to the extent of Islamabad Capital Territory, see Ord. No. 27 of 1981, s. 5 and 4th Sch.
+[^2]: Subs. by the Central Laws (Statute Reform) Ordinance, 1960 (21 of 1960), s. 3 and 2nd Sch. (with effect from the 14th October, 1955), for “the Provinces and the Capital of the Federation” which had been subs. by AO., 1949, Arts. 3(2) and 4, for “British India”.
