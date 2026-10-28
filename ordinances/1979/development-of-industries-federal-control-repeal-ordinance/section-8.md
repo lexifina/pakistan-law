@@ -1,0 +1,1 @@
+8. Indemnity. No suit, prosecution or other legal proceeding shall lie against the Federal Government, the Board, a corporation, a managed company or any other person for anything in good faith done or intended to be done under this Ordinance.
