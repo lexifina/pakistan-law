@@ -1,0 +1,1 @@
+4. Deposit of amount due under mortgage. The mortgagor shall in his application declare what sum is to the best of his knowledge due under the mortgage and deposit such sum with the Collector at the time of making the application.

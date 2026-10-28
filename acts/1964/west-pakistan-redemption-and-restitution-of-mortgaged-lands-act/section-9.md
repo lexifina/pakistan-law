@@ -1,0 +1,1 @@
+9. Cessation of interest. When the petitioner has deposited with the Collector the sum declared by the Collector to be due on the mortgage, and such sum is accepted by the mortgagee, or is found by the Collector to be the sum actually due interest on the mortgage shall cease from the date of the deposit.

@@ -1,0 +1,6 @@
+6. Directions that the Collector shall make when ordering ejectment. (1) Where the Collector makes an order for the redemption of a mortgage, and the whole of the mortgage amount found due has been deposited with him, the order shall direct that such amount be paid to the mortgagee and the excess amount, if any, deposited by the mortgagor be refunded to him.
+(2) Where the whole of the mortgage amount found due has not been deposited, the order for the redemption of the mortgage shall direct__
+(a) that a sum which together with the sum already deposited will equal the mortgage amount found due be deposited with the Collector by the mortgagor within thirty days or within such further period as may be specified by the Collector in this behalf;
+(b) that on deposit of such amount together with costs, if any, the mortgage shall be extinguished and the mortgagee shall deliver possession of the mortgaged land to the mortgagor, whose title thereto shall be deemed to have accrued from the date of such deposit; and
+(c) that the mortgage amount found due by the Collector and deposited by the mortgagor, together with costs, if any, be paid to the mortgagee.
+(3) If the mortgage amount and the costs (if any) are not deposited within the period specified in sub-section (1), the petition shall be dismissed with costs.

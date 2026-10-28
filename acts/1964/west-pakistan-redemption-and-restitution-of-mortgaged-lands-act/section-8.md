@@ -1,0 +1,1 @@
+8. No second petition. The dismissal of a petition under this Chapter shall bar any further petition under this Chapter by the same petitioner or his representative in interest in respect of the same mortgage.
