@@ -1,0 +1,2 @@
+10. Chief Executive Officer.— (1) The Board shall select and recommend to the Federal Government for appointment an Executive Director of any of the institutes or centers as the Chief Executive Officer.
+(2) The Chief Executive Officer shall attend the meetings of the Board of Governors and shall perform such functions as prescribed including the consolidated administration and functioning of the National Institutes of Health.

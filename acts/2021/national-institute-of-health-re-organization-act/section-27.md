@@ -1,0 +1,1 @@
+27. Discoveries and inventions to vest in the NIH.— All intellectual property and legal rights relating to discoveries and inventions and any improvement in materials, methods, processes, apparatus or equipment made by any officers or employee of the NIH in the course of their employment shall vest in the NIH.

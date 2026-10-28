@@ -1,0 +1,1 @@
+26. Directives from the Federal Government.— The Federal Government may from time to time issue to the NIH such policies, directives and instructions as it may consider necessary for carrying out the purposes of this Act and NIH and the Board shall be bound to act thereon.
