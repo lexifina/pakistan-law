@@ -1,0 +1,1 @@
+28. Power to make regulations.—The division concerned may make regulations, not inconsistent with the provision of this Act and the rules made thereunder, to provide for all internal matters for which provision is necessary or expedient for carrying out the purposes of this Act.

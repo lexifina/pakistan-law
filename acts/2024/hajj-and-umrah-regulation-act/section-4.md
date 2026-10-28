@@ -1,0 +1,1 @@
+4. Government Hajj scheme.—Notwithstanding anything contained in this Act, the division concerned shall have authority to organize, execute and manage Hajj affairs as an independent operator Under Government Hajj scheme.

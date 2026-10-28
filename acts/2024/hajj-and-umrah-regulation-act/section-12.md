@@ -1,0 +1,1 @@
+12. Criteria for registration.—The division concerned may, subject to any rules or policy made in this behalf from time to time, register and grant licence to such UGO as it thinks fit for undertaking Umrah operation on deposit of such security and on such terms and conditions as may be prescribed.

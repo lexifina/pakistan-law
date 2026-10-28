@@ -1,0 +1,3 @@
+3. Hajj policy and plan.—(1) All affairs of the Hajj shall be regulated through Hajj policy and plan which includes, inter-alia, allocation and distribution of Hajj quota, Hajj expenses, Hajj packaging, selection of welfare staff, training and monitoring, etcetera.
+(2) The Hajj policy and plan under sub-section (1) shall be prepared by a policy committee headed by the secretary of the division concerned and shall consist of nine members to be appointed by the Federal Government for a term of three years, in the prescribed manner.
+(3) The Hajj policy and plan under sub-section—(1) shall be approved by the Federal Government and notified in the official Gazette by the division concerned.

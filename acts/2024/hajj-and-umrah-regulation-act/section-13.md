@@ -1,0 +1,1 @@
+13. Liability of Hajj or Umrah.—The Hajj or Umrah organizer shall be liable for any act, commission, omission, negligence or default in the provision of services which leads to hardship to any pilgrim by the HGO or UGO in violation of agreement during performance of the Hajj or Umrah, as the case may be.
