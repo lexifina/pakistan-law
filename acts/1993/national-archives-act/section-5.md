@@ -1,0 +1,2 @@
+5. Transfer of public records to National Archives.—Any non-current public records which are more than five years old including records of defunct agencies, shall be transferred to the National Archives for management and preservation :
+Provided that the Secretary of the Administrative Division in consultation with the Director General may withhold the transfer of any such records to the National Archives for such period or periods as may be prescribed.
