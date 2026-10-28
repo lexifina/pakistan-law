@@ -1,0 +1,1 @@
+40. Delegation of powers. The 1[Federal Government] may, by notification in the official Gazette, direct that all or any of the powers exercisable by it under this Act, other than those under Section 39, or the rules shall, in relation to such matters as may be specified in the notification, be exercisable also by a Provincial Government.

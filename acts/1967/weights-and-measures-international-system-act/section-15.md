@@ -1,0 +1,1 @@
+15. Verification and stamping by Inspectors.__ An Inspector shall, at such place 4 [and at such time as the Controller may direct, verify a working standard or working instrument brought or referred] to him for the purpose and shall, if he finds it correct and in conformity with this Act and the rules, stamp it with a stamp of verification in the prescribed manner.
