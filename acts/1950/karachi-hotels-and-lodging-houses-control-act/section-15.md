@@ -1,0 +1,1 @@
+15. Penalty for failure to register hotel or lodging-house. Any owner of a hotel or a lodging-house who fails to register his hotel or lodging-house in compliance with section 4 shall be punishable with imprisonment of either description which may extend to one month, or with fine, or with both.

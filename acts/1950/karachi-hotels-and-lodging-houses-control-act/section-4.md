@@ -1,0 +1,1 @@
+4. Registration of hotels and lodging-houses. Within a period of two months from the commencement of this Act, or from the opening of any hotel or lodging-house, whichever is later, the owner of every hotel and lodging-house shall apply to the Controller for registration of his hotel or lodging-house, and for determination of fair rates in relation thereto.
