@@ -1,0 +1,1 @@
+11. Waiver of defect in the constitution of Academic Board.___No act or proceeding of any Authority or other body of the College shall be invalid merely on the ground of the existence of any vacancy in, or any defect in the constitution of the Academic Board.
