@@ -1,0 +1,1 @@
+3. Order of appointment, etc.— A newspaper establishment employing a newspaper employee shall, at the time of his appointment, transfer or promotion, furnish to him an order in writing showing the terms and conditions of his service.

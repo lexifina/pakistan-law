@@ -1,0 +1,3 @@
+16. Powers of Board to fix interim rates of wages.―(1) Notwithstanding anything contained in this Act, where the Board is of the opinion that it is necessary so to do, it may, by notification in the official Gazette, fix interim rates of wages in respect of newspaper employees.
+(2) Any interim rate of wages so fixed shall be binding on all employers in relation to newspaper establishments, and every newspaper employee shall be entitled to be paid wages at a rate which shall, in no case, be less than the interim rate of wages fixed under sub- section (1).
+(3) Any interim rate of wages fixed under subsection (1) shall remain in force until the decision of the Board comes into operation under sub-section (2) of section 11.

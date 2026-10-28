@@ -1,0 +1,1 @@
+15. Decision of the Board to be binding on all employers. The decision of the Board shall be binding on all employers in relation to newspaper establishments, and every newspaper employee shall be entitled to be paid wages at a rate which shall, in no case, be less than the rate of wages fixed by the Board.
