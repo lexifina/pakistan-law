@@ -1,0 +1,1 @@
+1. Marriage of Hindu widows legalized. No marriage contracted between Hindus shall be invalid, and the issue of no such marriage shall be illegitimate, by reason of the woman having been previously married or betrothed to another person who was dead at the time of such marriage, any custom and any interpretation of Hindu law to the contrary notwithstanding.
