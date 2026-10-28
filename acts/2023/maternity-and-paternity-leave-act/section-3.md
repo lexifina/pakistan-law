@@ -1,0 +1,2 @@
+3. Right to maternity leave.—(1) Maternity leave shall in the prescribed manner be granted on full pay outside the leave account to a female employee on her option to the extent of one hundred and eighty days on first birth, one hundred and twenty days on second birth and ninety days on third birth from the date of commencement thereof.
+(2) Such maternity leave may not be granted for more than three time in the entire service of the female employee except when such leave is granted within her leave account due and admissible to her or as an extra ordinary leave without pay.
