@@ -1,0 +1,1 @@
+11. Jurisdiction of Civil courts barred. No Civil court shall question the legality of any action taken or of any decision given by the Custodian in connection with the transfer of any transferable deposit or with the disposal of any deposit received from India as belonging to a refugee.

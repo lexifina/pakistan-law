@@ -1,0 +1,2 @@
+7. Power of Court or Custodian to convert deposits into money before transmission to
+India. Where the transfer to India of any article which is or forms part of a transferable deposit is prohibited under any law for the time being in force, it shall be lawful for the Civil or Revenue court, or the Court of Wards or the Manager or the Custodian, as the case may be, to convert the article into money in such manner as may be prescribed, and upon such conversion the provisions of this Act shall apply to the proceeds thereof as they apply to transferable deposit.
