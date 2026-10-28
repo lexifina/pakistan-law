@@ -1,0 +1,3 @@
+## MISCELLANEOUS
+44. Recovery of sums due to Government.—(1) All sums due from a registered society or from an officer or member or past member of a registered society as such to the Government, including any costs awarded to the Government under section 37, may be recovered in the same manner as arrears of land-revenue.
+(2) Sums due from a registered society to Government and recoverable under sub-section (1) may be recovered, firstly, from the property of the society; secondly, in the case of a society of which the liability of the members is limited, from the members subject to the limit of their liability; and, thirdly in the case of other societies, from the members.

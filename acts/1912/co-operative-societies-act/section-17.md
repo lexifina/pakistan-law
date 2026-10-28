@@ -1,0 +1,3 @@
+17. Audit.—(1) The Registrar shall audit or causes to be audited by some person authorised by him by general or special order in writing in this behalf the accounts of every registered society once at least in every year.
+(2) The audit under sub-section (1) shall include an examination of overdue debts, if any, and a valuation of the assets and liabilities of the society.
+(3) The Registrar, the Collector or any person authorised by general or special order in writing in this behalf by the Registrar shall at all times have access to all the books, accounts, papers and securities of a society, and every officer of the society shall furnish such information in regard to the transactions and working of the society as the person making such inspection may require.

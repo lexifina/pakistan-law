@@ -1,0 +1,3 @@
+13. Votes of members.—(1) Where the liability of the members of a registered society is not limited by shares, each member shall, notwithstanding the amount of his interest in the capital, have one vote only as a member in the affairs of the society.
+(2) Where the liability of the members of a registered society is limited by shares, each member shall have as many votes as may be prescribed by the bye-laws.
+(3) A registered society which has invested any part of its funds in the shares of any other registered society may appoint as its proxy, for the purpose of voting in the affairs of such other registered society, any one of its members.
