@@ -1,0 +1,2 @@
+13. Penalties.— (1) Whoever obstructs or resists or hinders any person in the discharge of his duties under this Ordinance shall be punishable with rigorous imprisonment for a term which may extend to three years, or with fine, or with both.
+(2) No court shall take cognizance of an offence punishable under sub-section (1) except upon a complaint in writing made by, or under the authority of, the Federal Government.

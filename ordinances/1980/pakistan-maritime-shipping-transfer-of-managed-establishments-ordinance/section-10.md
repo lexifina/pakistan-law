@@ -1,0 +1,1 @@
+10. Contracts and agreement to continue. All contracts and agreements made by an establishment in respect of which an order is issued under sub-section (1) of section 6 which may be subsisting immediately before the issue of such order shall continue to be of full force and effect against or in favour of the establishment and may be enforced or acted upon accordingly.

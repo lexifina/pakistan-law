@@ -1,0 +1,1 @@
+11. Removal of difficulties. If any difficulty arises in giving effect to any of the provisions of this Ordinance, the Federal Government may make Such order, not inconsistent with the provisions of this ordinance, as may appear to it to be necessary for the purpose of removing the difficulty.
