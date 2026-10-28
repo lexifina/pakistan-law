@@ -1,0 +1,1 @@
+13. Attempts to commit offences and abetment of offences. Any enrolled person who attempts to commit or abets the commission of an offence under this Ordinance shall be punishable with the punishment provided for such offence.

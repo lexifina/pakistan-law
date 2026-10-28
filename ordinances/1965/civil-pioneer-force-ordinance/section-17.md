@@ -1,0 +1,1 @@
+17. Reduction in rank for inefficiency or lack of zeal. Subject to any rules made in this behalf, the Controller may reduce to a lower grade or a lower class or to the ranks any non-gazetted officer in his unit on the grounds of ineffciency or lack of zeal.

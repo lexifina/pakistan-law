@@ -1,0 +1,2 @@
+10. Discharge and dismissal. __ (1) Every person subject to this Ordinance shall be entitled to receive his discharge from the Force on the expiration of the period for which he was enrolled or on his attaining the age of fifty; but any such person may, before he becomes so entitled, be discharged by such authority and subject to such conditions as may be prescribed.
+(2) The prescribed authority may, subject to such conditions as may be prescribed, dismiss any person from the Force.
