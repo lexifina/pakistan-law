@@ -1,0 +1,1 @@
+10. Prohibition of improper use of Authority marks.—No person shall use, in relation to any article, product or process or in the title of any patent or in any trade marks or design the Authority marks except under a license or certificate issued under this Act.

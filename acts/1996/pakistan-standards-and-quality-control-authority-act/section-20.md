@@ -1,0 +1,2 @@
+20. Penalty for improper use of Authority marks, etc.—(1) Any person who contravenes the provisions of sections 10, 11 or 12, shall be punishable with imprisonment of either description for a term which may extend to one year, or with fine which shall not be less than thirty thousand rupees, or with both.
+(2) A court convicting a person under this section may direct that any property in respect of which the contravention was made shall be forfeited to the Federal Government.

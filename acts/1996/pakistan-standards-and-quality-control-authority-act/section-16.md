@@ -1,0 +1,1 @@
+16. Power to obtain information, etc.—Every licensee shall supply the Authority with such information and with such samples of any material or substance used in relation to any article or process as the Authority may require.

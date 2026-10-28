@@ -1,0 +1,1 @@
+31. Delegation of powers to the Director-General etc.—The Authority may, by general or special order and subject to such conditions as it may think fit to impose, delegate to the Director- General or a member, or an officer of the Authority, all or any of its powers or functions under this Act.

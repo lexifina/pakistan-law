@@ -1,0 +1,1 @@
+38. Removal of difficulties.—The Federal Government may, for the purpose of removing any difficulty in relation to the absorption and transfer and other matters specified in section 37, make such order as it considers expedient and any such order shall be deemed to be, and given effect to, as a part of the provisions of this Act.

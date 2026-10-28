@@ -1,0 +1,2 @@
+19. Certain matters to be kept confidential.—Any information coming into notice of the Authority or any of its officer in relation to any article or process subject to this Act shall be treated as confidential and shall not be communicated or revealed to any person :
+Provided that nothing in this section shall apply to the disclosure of any information for the purpose of prosecution under this Act.
