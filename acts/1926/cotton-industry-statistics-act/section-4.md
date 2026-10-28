@@ -1,0 +1,5 @@
+4. Power to inspect mills and take copies of records.—(1) Any officer authorised by the [^2][Provincial Government] by order in writing in this behalf shall have free access at all reasonable times during working hours to any mill and may at any time, with or without notice to the owner, examine and take copies of, or extracts from, the records of the mill for the purpose of testing the accuracy of any return made under section 3, or of informing himself as to any particulars regarding which information is required for the purposes of this Act or any rules made thereunder:
+Provided that no officer not especially empowered by the [^2][Provincial Government] in this behalf shall be entitled to inspect any record containing the description or formulae of any trade process.
+(2) All copies and extracts and all information acquired by any officer in the inspection of any mill under this section shall be treated as strictly confidential.
+
+[^2]: Subs. by the Government of India (Adaptation of Indian Laws) Order, 1937.
