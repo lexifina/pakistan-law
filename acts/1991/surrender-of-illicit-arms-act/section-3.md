@@ -1,0 +1,1 @@
+3. Act not to derogate from other laws. The provisions of this Act shall be in addition to, and not in derogation of, any other law for the time being in force, and nothing contained herein shall exempt any person from any proceedings which may be instituted against him under such law.

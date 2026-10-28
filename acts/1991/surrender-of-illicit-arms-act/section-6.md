@@ -1,0 +1,2 @@
+6. Publicity for surrender of illicit arms.― (1) The Federal Government and the Provincial Government shall give wide publicity to the provisions of this Act on the media, including television, radio, national and regional press, in Urdu, English and regional languages or by any other mode as may be prescribed.
+(2) There shall be publicly displayed a count-down of every expired day of the period allowed for surrender of illicit arms under this Act and the number of days left for such surrender.

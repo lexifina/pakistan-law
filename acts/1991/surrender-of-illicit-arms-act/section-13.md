@@ -1,0 +1,1 @@
+13. Exemption. Nothing contained in this Act shall apply to a person who is exempt by virtue of the provisions of the Pakistan Arms Ordinance, 1965 (W.P. Ordinance No. XX of 1965), and the rules framed thereunder from holding a licence for possessing any arms and ammunition, including those of prohibited bore, by virtue of his office or otherwise.

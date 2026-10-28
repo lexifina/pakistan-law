@@ -1,0 +1,1 @@
+10. Reward for successful recovery. Any person providing information for successful recovery of illicit arms may, in the prescribed manner, be appropriately rewarded by the Federal Government or, as the case may be, by the Provincial Government to whom such information is provided, keeping in view the number of illicit arms recovered on the basis of such information.
