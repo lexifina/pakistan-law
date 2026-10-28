@@ -1,0 +1,2 @@
+45. Validation of action, etc.__ Anything done, actions taken, orders passed, instruments made, notifications issued, agreements made, proceedings initiated, processes or communication issued, powers conferred, assumed or exercised, by the Institute or its officers on or after the 8th November, 2006 and before the commencement of this Act, shall be deemed to have been validly done, made, issued, taken, initiated, conferred, assumed, and exercised and the provisions of this Act shall have, and shall be deemed always to have had effect accordingly.
+Uploaded on 15.2.2024
