@@ -1,0 +1,2 @@
+7. Certificate regarding immunity.___ (1) The Government may issue in the prescribed man-ner a certificate certifying any fact relevant to the question whether a person is or is not entitled under this Act or the rules made thereunder to immunity from suit or legal process or to inviolability of residence, official premises or official archives.
+(2) A certificate issued under sub-section (1) shall be conclusive evidence in any legal proceedings of the facts certified in the certificate.
