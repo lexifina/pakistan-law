@@ -1,0 +1,1 @@
+13. Certificate of marriage. When the marriage has been solemnized, the Registrar shall enter a certificate there of in a book to be kept by him for that purpose and to be called the “Marriage Certificate Book under Act III of 1872,” in the form given in the third schedule to this Act, and such certificate shall be signed by the parties to the marriage and the three witnesses.

@@ -1,0 +1,1 @@
+8. Objector may file suit. The person objecting to the intended marriage may file a suit in any Civil Court having local jurisdiction (other than a Court of Small Causes) for a declaratory decree, declaring that such marriage would contravene some one or more of the conditions prescribed in clauses (1), (2), (3) or (4) of section 2.

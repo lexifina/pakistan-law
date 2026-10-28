@@ -1,0 +1,1 @@
+7. Procedure on receipt of objection. On receipt of such notice of objection the Registrar shall not proceed to solemnize the marriage until the lapse of fourteen days from the receipt of such objection, if there be a Court of competent jurisdiction open at the time, or, if there be no such Court open at the time, until the lapse of fourteen days from the opening of such Court.

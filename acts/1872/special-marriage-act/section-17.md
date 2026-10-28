@@ -1,0 +1,1 @@
+17. Divorce Act to apply. The Divorce Act shall apply to all marriages contracted under this Act (IV of 1869), and any such marriage may be declared null or dissolved in the manner therein provided, and for the causes therein mentioned, or on the ground that it contravenes some one or more of the conditions prescribed in clauses (1), (2), (3) or (4) of section 2 of this Act.
