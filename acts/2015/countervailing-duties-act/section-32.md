@@ -1,0 +1,30 @@
+## PART XIII
+## APPEAL TO THE APPELLATE TRIBUNAL
+32. Appeal to the Appellate Tribunal.— (1) Without prejudice to the provisions of Anti- Dumping Law for the time being inforce, the Appellate Tribunal shall also exercise jurisdiction under sub-section (2) under this Act.
+(2) Any interested party may prefer an appeal to the Appellate Tribunal against,—
+(a) the initiation of an investigation or a preliminary determination, where it is alleged that it does not satisfy the requirements of section 11 and section 13 respectively;
+(b) an affirmative or negative final determination by the Commission ;
+(c) any final determination pursuant to a review;
+(d) an order of the Commission for termination of investigation under section 15; or
+(e) a determination of the Commission under section 22.
+(3) An appeal under clause (a) of sub-section (2) shall be filed within thirty days of the publication of notice of initiation or notice preliminary determination, as the case may be.
+(4) The Appellate Tribunal shall handle such an appeal as a priority and shall issue its decision on the appeal within thirty days of the filing of an appeal with the Appellate Tribunal.
+(5) The filing of an appeal under clause (a) of sub-section (2) shall have no effect on the Commission’s conduct of investigation.
+(6) An appeal under clauses (b) to (e) of sub-section (2) shall be filed within forty-five days from the date of publication in newspapers of a public notice or as the case may be, date of the decision of the Commission of any affirmative or negative final decision or determination or termination of investigation by the Commission, and shall be in such form and contain such information as may be prescribed.
+(7) Such an appeal shall be disposed of and the decision of the Appellate Tribunal pronounced, as expeditiously as possible, but no later than forty-five days from the date of receipt of an appeal compliant with the requirements contained in this Act, except in extraordinary circumstances and on grounds to be recorded. The Appellate Tribunal shall hear the appeal from day-to-day.
+(8) In examining an appeal under sub-section (2), the Appellate Tribunal may make such further inquiry as it may consider necessary, and after giving the Commission and an appellant an opportunity of being heard, pass such order as it thinks fit, confirming, altering or annulling a determination of the Commission appealed against:
+Provided that in case the Appellate Tribunal decision requires action by the Commission, it shall remand the case to the Commission for decision.
+(9) After examining the appeal, the Appellate Tribunal shall assess the facts related to the impugned determination of the Commission. The Appellate Tribunal shall determine whether the establishment of the facts of the Commission was proper and whether the Commission’s evaluation of those facts was unbiased and objective. The Appellate Tribunal shall base its determination on the official record maintained by the Commission or any other documents relied upon by the Commission in reaching the impugned determination.
+(10) Where the Appellate Tribunal determines that the Commission’s establishment of the facts was proper and its evaluation was unbiased and objective, it shall confirm the impugned determination of the Commission provided that the Appellate Tribunal is satisfied that in reaching its determination, the Commission complied with the relevant provisions of this Act.
+(11) The decision of the Appellate Tribunal shall be in writing, detailing the issues raised in the appeal and the arguments adopted by the appellant and the Commission. The Appellate Tribunal shall also provide reasons for reaching its decision with reference to the provisions of this Act and the facts of the case.
+(12) The Appellate Tribunal shall provide copies of its decision to all the appellants and respondents including the Commission no later than five days from the date of rendering its decision.
+(13) The Appellate Tribunal may, if it deems necessary, require an appellant to provide security in such form as may be prescribed, at the time of filing of an appeal.
+(14) The decision of the Appellate Tribunal shall be appealable in the High Court. The High Court shall decide the appeal within ninety days:
+Provided that the High Court shall not make an interim order against the conduct of investigation by the Commission unless the Commission has been given notice of the application and has had an opportunity of being heard and the High Court, for reasons to be recorded in writing, is satisfied that the interim order would not have the effect of prejudicing or interfering with the carrying out of a public work or of otherwise being harmful to the public interest [or State property] or of impeding the assessment or collection of public revenues:
+Provided further that the Appellate Tribunal may, if it thinks fit, accept an application from any party to an appeal in which the Appellate Tribunal has rendered its decision, for a clarification of any of the issues raised by the Appellate Tribunal in its decision:
+Provided also that such application shall specify the precise issue in respect of which a clarification is sought and give reasons as to why a clarification is necessary.
+(15) The Appellate Tribunal shall only accept an application under the first proviso of sub-section (14) if it is satisfied that a material issue discussed in its decision requires further clarification or elaboration. The party likely to be adversely affected by such clarification shall also be issued a notice by the Appellate Tribunal:
+Provided that no such application shall be accepted by the Appellate Tribunal later than thirty days of its decision.
+(16) The Appellate Tribunal shall perform its functions under this Act in accordance with such procedures as may be prescribed.
+(17) A determination of the Commission shall be given full force and effect during the pendency of any appeal of such determination.
+(18) A person duly authorized by any interested party is entitled to appear, plead and act on behalf of that interested party before the Appellate Tribunal.

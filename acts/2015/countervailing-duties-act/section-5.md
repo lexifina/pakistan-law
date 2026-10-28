@@ -1,0 +1,20 @@
+5. Countervailable subsidies.— (1) A subsidy shall be subject to countervailing measures under this Act only if the Commission determines that such subsidy is specific in accordance with the principles set out in sub-sections (2), (3), (4) and (5).
+(2) In order to determine whether a subsidy is specific to an enterprise, industry or a group of enterprises or industries, hereinafter referred to as “certain enterprises”, within the jurisdiction of a granting authority, the Commission shall apply the following principles, namely: —
+(a) where the granting authority, or the legislation pursuant to which the granting authority operates, explicitly limits access to a subsidy to certain enterprises, such subsidy shall be specific;
+(b) where the granting authority, or the legislation pursuant to which the granting authority operates, establishes objectives criteria or conditions governing the eligibility for, and the amount of, a subsidy, specificity shall not exist, provided that the eligibility is automatic and that such criteria and conditions are strictly adhered to;
+Explanation.—For the purposes of clause (b), objective criteria or conditions mean criteria or conditions which are neutral, which do not favour certain enterprises over other, and which are economic in nature and horizontal in application, such as, number of employees or size of enterprise. Such criteria or conditions must be clearly set out by law, regulation, or other official document, so as to be capable of verification; and
+(c) if, notwithstanding any appearance of non-specificity resulting from the application of the principles laid down in clauses (a) and (b), there are reasons to believe that the subsidy may in fact be specific, the following other factors may be considered by the Commission, namely: —
+(i) use of a subsidy programme by a limited number of certain enterprises;
+(ii) predominant use by certain enterprises;
+(iii) granting of disproportionately large amounts of subsidy to certain enterprises; and
+(iv) manner in which discretion has been exercised by the granting authority in the decision to grant a subsidy;
+Explanation.—For the purposes of clause (c), information on the frequency with which applications for a subsidy are refused or approved and the reasons for such decisions shall, in particular, be considered.
+(3) In applying the provisions of clause (c) of sub-section (2), the Commission shall take into account the extent of diversification of economic activities within the jurisdiction of a granting authority and the length of time during which subsidy programme has been in operation.
+(4) A subsidy which is limited to certain enterprises located within a designated geographical region within the jurisdiction of a granting authority shall be specific.
+(5) The setting or changing of generally applicable tax rates by all levels of the government entitled to do so shall not be deemed to be a specific subsidy.
+(6) Notwithstanding anything contained in sub-sections (2), (3), (4) and (5), the following subsidies shall be deemed to be specific, namely:—
+(a) subsidies contingent, in law or in fact, whether solely or as one of several other conditions, upon export performance, including those illustrated in the First Schedule:
+Provided that subsidies shall be considered by the Commission to be contingent in fact upon export performance when the facts demonstrate that granting of a subsidy, without having been made legally contingent upon export performance, is in fact tied to actual or anticipated exportation or export earnings:
+Provided further that the mere fact that a subsidy is accorded to enterprises which export shall not for that reason alone be considered by the Commission to be an export subsidy for the purposes of this clause; and
+(b) subsidies contingent, whether solely or as one of several other conditions, upon the use of domestic over imported goods.
+(7) Any determination of specificity by the Commission under this section shall be substantiated on the basis of positive evidence.
