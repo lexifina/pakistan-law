@@ -1,0 +1,2 @@
+89. Maintenance of property.— (1) The Commission may require a licensed person to maintain in Pakistan property of such value as appears to the Commission to be desirable with a view to ensuring that the licensed person will be able to meet his liabilities in respect of his regulated activity.
+(2) The Commission may direct that, for the purposes of any requirement under this section, property of any specified class or description shall or shall not be taken into account.

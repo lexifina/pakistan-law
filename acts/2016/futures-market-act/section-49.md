@@ -1,0 +1,1 @@
+49. Representatives. No person shall act as a representative in carrying on business in any regulated activity or hold himself out as doing so, unless he is holder of a representative's licence granted by the Commission for that regulated activity and is duly accredited to a principal.

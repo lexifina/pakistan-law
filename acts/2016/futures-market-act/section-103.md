@@ -1,0 +1,1 @@
+103. Futures contracts not gaming or wagering contracts.— Notwithstanding anything contained to the contrary in any other enactment, rule or law in Pakistan, a futures contract traded on the futures market of a futures exchange shall be lawful for all purposes and shall not constitute a gaming or wagering contract.

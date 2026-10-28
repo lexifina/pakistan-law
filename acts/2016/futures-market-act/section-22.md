@@ -1,0 +1,3 @@
+22. Licensing requirement.— (1) No person shall establish or operate or assist in establishing or operating or hold himself out as operating a clearing facility except under and in accordance with a clearing house licence granted by the Commission under section 24.
+(2) The Commission shall determine the number and places for the establishment of clearing houses:
+Provided that a futures exchange which is operating a clearing facility in respect of future contracts based on commodities or financial instruments, before the commencement of this Act, shall be allowed to continue operating such facility and be deemed as a clearing house for the purpose of this Act for such period as may be notified by the Commission.

@@ -1,0 +1,8 @@
+15. Fixing of position and trading limits in futures contracts.— (1) For the purpose of diminishing, eliminating or preventing excessive speculation in any commodity, securities or financial instruments under a futures contract, the Commission may, by notification in the official Gazette from time to time, fix such limits as it considers necessary on the amount of trading which may be done or positions which may be held by any person or a class of persons, generally or specifically, under a futures contract traded on the futures market subject to the regulations of a futures exchange.
+(2) Such limits upon positions and trading shall apply to positions held by, and trading done, by two or more persons acting pursuant to an express or implied agreement or understanding, as if the positions were held by, or the trading done by, a single person.
+(3) No person shall, directly or indirectly—
+(a) buy or sell or agree to buy or sell, under a futures contract traded on the futures market of or subject to the regulations of a futures exchange, any number of such contracts in excess of the trading limits fixed for one business day, or any other stated period set by the Commission; or
+(b) hold or control a gross buy or sell position under a futures contract traded on the futures market of or subject to the regulations of a futures exchange in excess of any position limit fixed by the Commission.
+(4) Nothing in this section shall preclude the Commission from—
+(a) fixing different trading or position limits for different futures contracts, different delivery periods, or for different days remaining until the last day of trading in a futures contract; or
+(b) exempting transactions under this section.

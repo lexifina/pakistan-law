@@ -1,0 +1,7 @@
+92. Winding up orders.— (1) If, in the case of a licensed person which is a company, it appears to the Commission that it is desirable for the protection of customers that the company should be wound up under the Companies Ordinance, 1984 (XLVII of 1984), the Commission may present a petition for it to be wound up under that Ordinance on the ground that it is just and equitable that it should be wound up, and that Ordinance shall apply to such petition as it applies in relation to a petition presented under that Ordinance.
+(2) Notwithstanding anything contained in the Companies Ordinance, 1984 (XLVII of 1984),—
+(a) a licensed person shall not file a petition for winding up unless it satisfies the Commission in the manner prescribed that it has settled all outstanding investors claims as per default regulations and has obtained prior approval of the Commission and the Commission may, in the interest of the public or interest of investors, impose such conditions as it deems appropriate;
+(b) the Court may refuse to entertain petition under sub-section (1) for winding up of a company, if the Court is satisfied that—
+(i) requirements of clause (a) have not been fulfilled;
+(ii) petitioner intends to avoid or prejudice investigation of offences under this Act; or
+(iii) any other ground exists that the Court deems it fit in the facts and circumstances of the case for passing such order.

@@ -1,0 +1,2 @@
+119. Delegation of the Commission's functions or powers.— (1) The Commission may, subject to such conditions and limitations as it deems fit to impose, delegate any of its functions or powers under this Act to one or more Commissioners or any officer of the Commission.
+(2) A delegation under this section shall not prevent the concurrent performance, or exercise, by the Commission of the function or power so delegated.
