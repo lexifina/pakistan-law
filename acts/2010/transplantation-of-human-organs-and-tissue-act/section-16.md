@@ -1,0 +1,2 @@
+16. Protection of actions taken in good faith.___ (1) No suit, prosecution or other legal proceedings shall lie against any person for anything which is done in good faith or intended to be done in pursuance of the provisions of this Act or rules made there under.
+(2) No suit or other legal proceedings shall lie against the Federal Government for any damage caused or likely to be caused for anything which is done with due care in good faith or intended to be done in pursuance of the provisions of this Act.
