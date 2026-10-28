@@ -1,0 +1,4 @@
+12. Executor or administrator may pay to Official Trustee legacy, share, etc., of infant
+or lunatic.—(1) If any infant or lunatic is entitled to any gift, legacy or share of the assets of a deceased person, it shall be lawful for the person by whom such gift is made, or executor or adminis-trator by whom such legacy or share is payable or transferable or any trustee of such gift, legacy or share, to transfer the same by an instrument in writing to the Official Trustee by that name or any other sufficient description with his consent.
+Provided that the consent of the Official Trustee shall be recited in the said instrument and that such instrument shall be duly executed by the Official Trustee.
+(2) Any money or property transferred to the Official Trustee under this section shall vest in him and shall be subject to the same provisions as are contained in this Act as to other property vested in such Official Trustee.

@@ -1,0 +1,3 @@
+8. Official Trustee may with consent be appointed trustee of settlement by grantor.—(1) Any person intending to create a trust other than a trust which the Official Trustee is prohibited from accepting under the provisions of this Act may by the instrument creating the trust and with the consent of the Official Trustee, appoint him by that name or any other sufficient description to be the trustee of the property subject to such trust:
+Provided that the consent of the Official Trustee shall be recited in the said instrument and that such instrument shall be duly executed by the Official Trustee.
+(2) Upon such appointment the property subject to the trust shall vest in such Official Trustee, and shall be held by him upon the trusts declared in such instrument.

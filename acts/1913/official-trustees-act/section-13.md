@@ -1,0 +1,2 @@
+13. Official Trustee not to be required to give bond or security.—(1) No Official Trustee shall be required by any Court to enter into any bond or security on his appointment in any capacity under this Act.
+(2) No Official Trustee or Deputy Official Trustee shall be required to verify otherwise than by his signature any petition presented by him under the provisions of this Act, and if the facts stated in any such petition are not within the Official Trustee's personal knowledge, the petition may be verified and subscribed by any person competent to make the verification.
