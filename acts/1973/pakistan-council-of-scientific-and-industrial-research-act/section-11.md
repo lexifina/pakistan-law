@@ -1,0 +1,1 @@
+11. Budget. The Council shall, by such date and in such form as may be prescribed, submit to the Federal Government for approval its budget for each financial year showing the estimated receipts and expenditure and the sums which are likely to be required from the Federal Government during that financial year.

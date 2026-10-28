@@ -1,0 +1,3 @@
+3. Establishment of the Council.—(1) As soon as may be after the commencement of this Act, the Federal Government shall establish, in accordance with the provisions of this Act, a Council to be called the Pakistan Council of Scientific and Industrial Research.
+(2) The Council shall be a body corporate by the name of the Pakistan Council of Scientific and Industrial Research having perpetual succession and a common seal, with power, subject to the provisions of this Act, to hold and dispose of property, and shall by the said name sue and be sued.
+(3) the headquarters of the Council shall be at Islamabad.

@@ -1,0 +1,1 @@
+19. Power to make regulations. The Council may, with the previous sanction of the Federal Government, make such regulations, not inconsistent with this Act or the rules made thereunder, as may, in its opinion, be necessary or expedient for the achievement of its aims and objects or for the performance of its functions.

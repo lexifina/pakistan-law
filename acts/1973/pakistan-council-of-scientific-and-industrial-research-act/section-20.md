@@ -1,0 +1,1 @@
+20. Continuance of certain rules. All rules, regulations and bye-laws made by the registered Council and in force immediately before the commencement of this Act shall, mutatis mutandis, and so far as they are not inconsistent with any of the provisions of this Act, continue in force until repealed or altered by rules or regulations made under this Act.
