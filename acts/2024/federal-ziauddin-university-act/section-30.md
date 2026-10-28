@@ -1,0 +1,1 @@
+30. Appointment of Standing Committees etc.—The Governing Body, the Academic Council and other Authorities with the consent of the chancellor may appoint such standing, special or advisory committee, as may be considered advantageous in the performance of their function.

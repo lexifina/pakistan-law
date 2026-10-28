@@ -1,0 +1,1 @@
+36. First Statutes.—Notwithstanding anything contained in this Act, the statutes set out in the Schedule shall be deemed to be the Statutes framed under this Act and shall remain in force until they are amended or replaced by new statutes framed under this Act.

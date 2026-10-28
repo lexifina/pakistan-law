@@ -1,0 +1,1 @@
+37. Removal of Difficulties.—If any difficulty arises to the first constitution or reconstitution of any authority upon the coming into force of this Act, the Chancellor may give appropriate directions to remove such difficulty.
