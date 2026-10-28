@@ -1,0 +1,1 @@
+6. Offences. Whoever contravenes the provisions of section 3, section 4 or section 5 shall be guilty of an offence punishable with simple imprisonment for a term which may extend to one month or with fine which shall be not less than one hundred thousand rupees and not more than five hundred thousand rupees or with both.
