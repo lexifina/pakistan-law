@@ -1,0 +1,6 @@
+8. Wife’s liability for postnuptial debts. If a married woman (whether married before or after the first day of January, 1866) possesses separate property, and if any person enters into a contract with her with reference to such property, or on the faith that her obligation arising out of such contract will be satisfied out of her separate property, such person shall be entitled to sue her, and, to the extent of her separate property, to recover against her whatever he might have recovered in such suit had she been unmarried at the date of the contract and continued unmarried at the execution of the decree:
+[^22][Provided that nothing herein contained shall__
+(a) entitle such person to recover anything by attachment and sale or otherwise out of any property which has been transferred to a woman or for her benefit on condition that she shall have no power during her marriage to transfer or charge the same or her beneficial interest therein, or
+(b) affect the liability of a husband for debts contracted by his wife’s agency expressed or implied.]
+
+[^22]: Subs. by the Transfer of Property (Amdt.) Supplementary Act, 1929 (21 of 1929), s. 2, for the original proviso as amended by the Debtors Act, 1888 (6 of 1888), s. 9.
