@@ -1,0 +1,10 @@
+24. Disclosure of interest.—(1) The following shall apply to all employees serving in any capacity whatsoever in the Commission.
+(2) A person shall be deemed to have an interest in a matter if he has any interest, pecuniary or otherwise, in such matter which could reasonably be regarded as giving rise to a conflict between his duty to honestly perform his functions, so that his ability to consider and decide any question impartially or to give any advice without bias, may reasonably be regarded as impaired.
+(3) A person having any interest in any matter to be discussed or decided by the Commission, shall prior to discharge of any function or business of the Commission, disclose in writing to the Secretary to the Commission, the fact of his interest and the nature thereof.
+(4) Every person shall give written notice to the Secretary to the Commission of all direct or indirect pecuniary or other material or personal interests that he has or acquires in a body corporate involved in a matter at the Commission.
+(5) A disclosure of interest under sub-section (2) shall be made a part of the record of the Commission in that particular matter.
+(6) Where there is such disclosure of interest,—
+(a) such person shall not, save as provided in sub-sections (7) and (8) take part nor be present in any investigation, research, deliberation or decision of the Commission as the case may be; and
+(b) such person shall be disregarded for the purpose of constitution of a quorum or performance of a task, as the case may be.
+(7) Any person who fails to disclose his interest as required by this section shall, on proof of such act, be liable to removal from the Commission.
+(8) It shall be a valid defense for a person charged with the allegation of failure to disclose such interest under sub-section (7), if such person proves that he was not aware of the facts constituting such allegation and that he exercised due care and diligence in discovering the facts which he ought reasonably to have known in the circumstances.

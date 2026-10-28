@@ -1,0 +1,4 @@
+18. Terms and Conditions of services of the Commission and its Employees.—(1) “The benefits of the Commission and of an employee appointed on full-time basis in the Commission shall be as prescribed.”
+(2) From the date of appointment, the pension, gratuity, GP fund and other retirement benefits of an employee appointed on full time basis in the Commission shall be the same as Federal Government employees of the equivalent status, grade and scale.
+(3) Employees appointed on full-time basis shall be provided time-scale promotions. For this purpose, the Commission shall make necessary regulations with approval of the Federal Government.
+(4) All other matters relating to rules, orders, terms and conditions of services of the employees of the Commission shall be dealt with in accordance with the National Tariff Commission Employees' (Service) Rules 1995, as revised from time to time.

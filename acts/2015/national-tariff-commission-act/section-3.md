@@ -1,0 +1,1 @@
+3. Continuation of National Tariff Commission.—The National Tariff Commission established by the Repealed Act shall be deemed to have been established under this Act, notwithstanding the repeal of the “Repealed Act”, the Commission shall be deemed to have been validly constituted, subject to section 5, under this Act and shall continue to perform its functions accordingly.
