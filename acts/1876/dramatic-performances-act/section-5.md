@@ -1,0 +1,1 @@
+5. Power to notify order. Any such order may be notified by proclamation, and a written or printed notice thereof may be stuck up at any place or places adapted for giving information of the order to the persons intending to take part in or to witness the performance so prohibited.
