@@ -1,0 +1,8 @@
+4. Conditional discharges, etc.__ (1) Where a court by which a person, not proved to have been previously convicted, is convicted of an offence punishable with imprisonment for not more than two years is of opinion, having regard to :__
+(a) the age, character, antecedents or physical or mental condition of the offender, and
+(b) the nature of the offence or any extenuating circumstances attending the commission of the offence,
+that it is inexpedient to inflict punishment and that a probation order is not appropriate, the court may, after recording its reasons in writing, make an order discharging him after due admonition, or, if the court thinks fit, it may likewise make an order discharging him subject to the condition that he enters into a bond, with or without sureties, for committing no offence and being of good behaviour during such period not exceeding one year from the date of the order as may be specified therein.
+(2) An order discharging a person subject to such condition as aforesaid is hereafter in this Ordinance referred to as “an order for conditional discharge”, and the period specified in any such order as “the period of conditional discharge”.
+(3) Before making an order for conditional discharge, the court shall explain to the offender in ordinary language that if he commits any offence or does not remain of good behaviour during the period of conditional discharge he will be liable to be sentenced for the original offence.
+(4) Where a person conditionally discharged under this section is sentenced for the offence in respect of which the order for conditional discharge was made, that order shall cease to have effect.
+________________________________________________________________________

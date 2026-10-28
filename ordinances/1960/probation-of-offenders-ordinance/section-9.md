@@ -1,0 +1,1 @@
+9. Provisions of the Code to apply to sureties and bond.__ The provisions of sections 122, 406A, 514, 514A, 514B and 515 of the Code shall, so far as may be, apply in the case of sureties and bonds taken under this Ordinance.
