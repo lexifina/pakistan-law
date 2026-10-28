@@ -1,0 +1,1 @@
+5. Power of the Federal Government to issue directives.__The Federal Government may, as and when it considers necessary, issue directives to the Institute on matters of policy, and such directives shall be binding on the Institute, and if a question arises whether any matter is a policy matter or not, the decision of the Federal Government shall be final.

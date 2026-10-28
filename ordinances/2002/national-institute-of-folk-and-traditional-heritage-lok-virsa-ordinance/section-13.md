@@ -1,0 +1,1 @@
+13. Appointment of Officers etc.―The Institute may, from time to time, appoint such Officers, servants, experts and consultants as it may consider necessary for the efficient performance of its functions on such terms and conditions as may be prescribed, by rules.

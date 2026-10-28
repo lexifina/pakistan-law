@@ -1,0 +1,1 @@
+9. Executive Committee.__ The Board shall be assisted by an Executive Committee, consisting of not less than three members, to be constituted from amongst members of the Board and perform such functions, as may be prescribed by the regulations.

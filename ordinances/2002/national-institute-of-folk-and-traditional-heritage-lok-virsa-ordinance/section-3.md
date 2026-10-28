@@ -1,0 +1,3 @@
+3. Establishment of the Institute.― (1) The National Institute of Folk and Traditional Heritage (Lok Virsa) as reconstituted in accordance with the provisions of this Ordinance shall be a body corporate having perpetual succession and a common seal with powers, subject to the provisions of this Ordinance, to acquire, hold and dispose of property, both moveable and immovable, and shall by the said name sue and be sued.
+(2) The head office of the Institute shall be at Islamabad.
+(3) The Institute may, with the approval of the Federal Government, from time to time establish regional offices, local offices and research establishments at such places as it may deem fit.
