@@ -1,0 +1,1 @@
+19. Directives from the Federal Government.—The Federal Government may, from time to time, issue to the Council such directives and orders in writing, as it may consider necessary for carrying out the purpose of this Act and the Council shall be bound to follow and carry out such directives and orders.

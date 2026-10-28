@@ -1,0 +1,1 @@
+21. Continuance of certain rules, etc.—All rules, regulations and byelaws related to the Council and in force immediately before the commencement of this Act shall, mutatis mutandis and so far as they are not inconsistent with any of the provisions of this Act, apply and continue in force until repealed or amended or altered.
