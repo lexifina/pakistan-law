@@ -1,0 +1,1 @@
+13. Director General, officers and employees deemed to be public servants.—The Director General, officers and employees of ZARRA shall be deemed to be public servants within the meaning of section 21 of the Pakistan Penal Code 1860 (Act XLV of 1860) and shall be subject to all the relevant provisions of sections 161 to 169 of the said Act XLV of 1860.
