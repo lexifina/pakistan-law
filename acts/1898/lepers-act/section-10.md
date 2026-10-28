@@ -1,0 +1,5 @@
+10. Conviction after previous conviction.—(1) Whenever any leper who has been convicted of an offence punishable under the last foregoing section is again convicted of any offence punishable under that section, the Magistrate may, in addition to, or in lieu of, any punishment to which such leper may be liable, require him to enter into a bond, with one or more sureties, binding him to depart forthwith from the local area specified under section 3 in which he is, and not to enter that or any other local area so specified until an Inspector of Lepers shall have given him a certificate in Form A set forth in the schedule.
+(2) If any such leper fails to furnish any security required under sub-section (1), the Magistrate may send him in charge of a police-officer, with an order in Form D set forth in the schedule, to a leper asylum, where such leper shall be detained until discharged by order of the Board or the District Magistrate.
+(3) The powers conferred by this section shall only be exercised by a [^18]* * * Magistrate of the first class.
+
+[^18]: The words “Presidency Magistrate or “omitted by A.O., 1949, Sch

@@ -1,0 +1,1 @@
+14. Order of discharge by Board. Any two members of the Board, one of whom shall be the Medical Officer, may at any time, by an order in writing in Form E set forth in the schedule and signed by them, direct the discharge from the leper asylum of any leper detained therein under the provisions of this Act.

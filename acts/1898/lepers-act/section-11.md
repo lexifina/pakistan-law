@@ -1,0 +1,2 @@
+11. Penalty on person employing lepers in prohibited trade. Any person who, within any area specified under section 3, knowingly employs a leper in any trade or calling prohibited by order under section 9 shall be punishable with fine which may extend to fifty rupees:
+Provided that the alleged leper shall be produced before the Magistrate and the Magistrate shall cause him to be examined by an Inspector of Lepers, and shall not proceed with the case unless such Inspector furnishes a certificate in Form B set forth in the schedule in respect of such alleged leper.
