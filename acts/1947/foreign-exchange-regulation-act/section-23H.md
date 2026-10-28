@@ -1,0 +1,5 @@
+23H. Confiscation of currency, security, etc. Any Adjudicating Officer adjudging any contravention under section 23B may, if he thinks fit, and in addition to any penalty which he may impose for such contravention, direct that any currency, security, or any other money or property in respect of which the contravention has taken place shall be confiscated to the Federal Government and further direct that the foreign exchange, if any, of the person committing the contravention or any part thereof shall be brought into Pakistan or shall be retained outside Pakistan in accordance with the directions made by the State Bank in this behalf.
+Explanation.__For the purposes of this section, property in respect of which contravention has taken place shall include__
+(a) deposits in a bank, where the said property is converted into such deposits;
+(b) Pakistan currency, where the said property is converted into that currency; and
+(c) an other property which has resulted out of conversion of that property.

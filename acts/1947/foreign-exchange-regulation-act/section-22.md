@@ -1,0 +1,1 @@
+22. False statements. No person shall, when complying with any order or direction under section 19 or when making any application or declaration to any authority or person for any purpose under this Act, give any information or make any statement which he knows or has reasonable cause to believe to be false, or not true, in any material particular.
