@@ -1,0 +1,1 @@
+12. Punishment for failure to present licence for scrutiny. Whoever fails to present his licence for possessing or keeping any arms, ammunition or explosives as required under section 11 shall be punished with imprisonment which may extend to ten years but shall not be less than three years and confiscation of such arms, ammunition or explosives.
