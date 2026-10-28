@@ -1,0 +1,1 @@
+4. Manager. Every welfare home shall be under the immediate charge of a manager appointed by Government and such manager shall be assisted by such medical and educational staff as Government may appoint.

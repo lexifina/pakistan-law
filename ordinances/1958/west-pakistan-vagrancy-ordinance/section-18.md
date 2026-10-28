@@ -1,0 +1,1 @@
+18. Effect of other laws and enactments. The provisions of this Ordinance, and any order made or action taken under this Ordinance, shall have effect notwithstanding anything inconsistent therewith contained in any enactment other than this Ordinance, for the time being in force, and any instrument having its effect by virtue of any such enactment other than this Ordinance.

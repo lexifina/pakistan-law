@@ -1,0 +1,1 @@
+11. Presumption. If a person has no ostensible source of subsistence and wanders about or remains in a public place in such condition or manner as raises a reasonable suspicion that he is there to solicit or receive alms, it shall be presumed, unless the contrary is proved that such person is a vagrant.

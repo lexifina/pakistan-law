@@ -1,0 +1,1 @@
+15. Transfer of vagrants from welfare homes. The Controller or any other officer specially empowered by Government in this behalf may by an order in writing direct the transfer of a vagrant from one welfare home to another or to any other place appointed by Government in this behalf.
