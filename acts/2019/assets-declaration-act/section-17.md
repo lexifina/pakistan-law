@@ -1,0 +1,1 @@
+17. Removal of difficulty.—If any difficulty arises in giving effect to the provisions of this Act, the Federal Government may, by notification in the official Gazette, remove such difficulty as is not inconsistent with the provisions of this Act.
