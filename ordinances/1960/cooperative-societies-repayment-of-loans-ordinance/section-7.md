@@ -1,0 +1,1 @@
+7. Penalty.―Whoever contravenes any of the provisions of this Ordinance or the rules made thereunder shall be punishable with imprisonment for a term which may extend to two years, or with fine, or with both.
