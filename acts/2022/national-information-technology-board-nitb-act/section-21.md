@@ -1,0 +1,1 @@
+21. Removal of Difficulties.— If any difficulty arises in giving effect to any provision of this Act, the Federal Government may make such order, not inconsistent with the provisions of this Act, as may appear to be necessary for the purpose of removing the difficulty.

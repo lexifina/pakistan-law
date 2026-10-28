@@ -1,0 +1,1 @@
+28. Officers of the Board to be public servants.— The officers and members of the staff, advisers, consultants, experts of the Board shall be deemed to be public servants within the meaning of section 21 of the Pakistan Penal Code (Act XLV of 1860).

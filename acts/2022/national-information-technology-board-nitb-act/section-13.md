@@ -1,0 +1,3 @@
+13. Appointment of officers and other staff of the Board.— (1) Subject to regulations, the Board may appoint such officers, experts, advisers, consultants and members of staff as it may consider necessary for the efficient performance of its functions on such terms and conditions as may be prescribed.
+(2) The Board may, by notification in the official Gazette, delegate any of its powers relating to appointment of officers and other staff to the Executive Committee or CEO.
+(3) The officers, members of the staff, advisers, consultants, experts and other persons appointed by the Board shall not be civil servants within the meaning of the Civil Servants Act, 1973 (LXXI of 1973).

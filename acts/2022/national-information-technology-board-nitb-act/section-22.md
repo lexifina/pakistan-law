@@ -1,0 +1,1 @@
+22. Authorities to aid the Board.— All executive authorities in the Federation and in the Provinces shall render such assistance to the Board as may be necessary for the execution of its programs and projects being carried out under this Act.

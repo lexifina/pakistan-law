@@ -1,0 +1,1 @@
+25. Indemnity.— No suit or other legal proceedings shall lie against the officers and other staff of the Board in respect of anything which is done in good faith in performance of their official obligations under this Act.
