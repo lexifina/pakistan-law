@@ -1,0 +1,1 @@
+6. Sanction for prosecution under this Act.—No Court shall take cognizance of any offence punishable under section 5 except upon complaint made by order of, or under authority from, the District Magistrate.
