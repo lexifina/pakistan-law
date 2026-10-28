@@ -1,0 +1,1 @@
+16. Continuance of certain rules, etc:___All rules, regulations, by-laws, orders and instructions of the former Institute in force immediately before the commencement of this Act shall, mutatis mutandis and so far as they are not inconsistent with any of the provisions of this Act, continue to be in force until repealed or altered by rules or regulations made under this Act.

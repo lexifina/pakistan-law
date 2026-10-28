@@ -1,0 +1,4 @@
+10. Audit and accounts:___ (1) The accounts of the Institute shall be maintained in such form and manner as the Federal Government may, in consultation with the Controller-General of Accounts, determine.
+(2) The Institute may open its accounts with any scheduled bank authorized by the Federal Government.
+(3) The surplus funds, if any, shall be invested in the Government approved schemes, securities or bonds.
+(4) The accounts of the Institute comprising funds derived from sources specified in clauses (a) to (e), (g) and (h) of section 9 shall be audited by the Auditor General of Pakistan, while the accounts of the funds derived from source specified in Clause (f) of section 9 shall be audited annually by such chartered accountants as may be approved by the Board of Governors and the Auditor-General of Pakistan.
