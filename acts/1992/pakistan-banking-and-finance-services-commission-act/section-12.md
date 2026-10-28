@@ -1,0 +1,1 @@
+12. Power to amend Schedule.—The Federal Government may, keeping in view the purposes of this Act, by notification in the official Gazette, amend the Schedule so as to add any entry thereto or omit or modify any entry therein.
