@@ -1,0 +1,1 @@
+8. Dependent children. When in respect of any vagrant a certificate has been issued under sub-section (1) of section 7 and there is any child, being a child within the meaning of this Act, dependent on him, the Special Magistrate may direct that such child may also be sent to the Poor House.

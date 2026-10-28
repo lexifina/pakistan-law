@@ -1,0 +1,1 @@
+17. Appeal. Notwithstanding anything in any other law for the time being in force an appeal shall lie to the District Magistrate from any conviction or order of detention under this Act, and the order of the District Magistrate in appeal shall be final.

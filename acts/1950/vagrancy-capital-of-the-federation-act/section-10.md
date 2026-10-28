@@ -1,0 +1,1 @@
+10. Conduct and discipline. A vagrant detained in the Poor House under this Act shall be subject to such rules of conduct and discipline including the imposition of manual and such other work as may be in keeping with his general state of health and as may be prescribed.

@@ -1,0 +1,1 @@
+15. Procedure at end of imprisonment for escape. Every person imprisoned under the provisions of section 13 shall at the end of his term of imprisonment be sent back, under police custody, to the custody or detention from which he escaped, and there kept for the purpose for which he was entrusted to that custody or detention before his escape.

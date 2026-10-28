@@ -1,0 +1,1 @@
+13. Punishment for escape from custody. Any vagrant who escapes from any custody or detention to which he has been committed under this Act or any rules made thereunder may be arrested without warrant and shall for any such offence be liable to be punished on conviction before a Magistrate with rigorous imprisonment for a term which may extend to one year.
