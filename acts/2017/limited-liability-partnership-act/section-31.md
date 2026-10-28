@@ -1,0 +1,2 @@
+31. Procedure for winding up.—(1) The Federal Government shall make rules in relation to winding up and dissolution of limited liability partnerships or through notification in the official Gazette direct that any provisions of the Ordinance specified in such notification shall apply to any winding up and dissolution proceedings of limited liability partnerships with such exception, modification and adaptation as may be specified in the notification.
+(2) In all other respects, the provisions of this Act shall apply to the procedure for winding up.

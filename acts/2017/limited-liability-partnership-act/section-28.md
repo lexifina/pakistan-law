@@ -1,0 +1,3 @@
+## PARTNERSHIPS
+28. Compromise, arrangement or reconstruction of limited liability partnerships.—(1) The Federal Government shall make rules in relation to compromise, arrangement or reconstruction of limited liability partnership or through notification in the official Gazette direct that any provisions of the Ordinance specified in such notification shall apply to any scheme of compromise, arrangement or reconstruction of limited liability partnerships with such exception, modification and adaptation as may be specified in the notification.
+(2) In all other respects, the provisions of this Act shall apply to compromise, arrangement or reconstruction under sub-section (1).

@@ -1,0 +1,1 @@
+45. Punishment for default in compliance with provisions of section 44.___ If default is made in complying with the provisions of section 44, every person who is in default shall be punishable with imprisonment for a term which may extend to one year and with fine which shall not be less than one million rupees.

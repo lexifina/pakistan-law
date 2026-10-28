@@ -1,0 +1,1 @@
+39. General penalties.___ Any person guilty of an offence under this Act for which no punishment is expressly provided shall be liable to a fine which may extend to one million rupees and with a further fine which may extend to ten thousand rupees for every day during which the default continues, after the first day.
