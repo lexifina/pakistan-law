@@ -1,0 +1,3 @@
+20B. Enquiry by the Investigation Committee.—(1) If on considering the facts or complaint laid before it under section 20A, the Investigation Committee is of opinion that such facts or complaint require investigation, it shall, after giving a notice to the member of the Institute or student whose conduct is in question, hold an inquiry.
+(2) A member of the Institute or a student whose conduct is in question shall be given an opportunity of being heard and, such member or student so desires, the Investigation Committee shall permit such member or student to be represented before it by a counsel or by a member of the Institute.
+(3) After the conclusion of inquiry, the Investigation Committee shall report the result of the inquiry to the Council.

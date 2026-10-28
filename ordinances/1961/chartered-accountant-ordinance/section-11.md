@@ -1,0 +1,4 @@
+[^16][11. Nomination in default of election.—(1) If the members of the Institute referred to in clause (a) of sub-section (2) of section 9 fail to elect the required number of members which they are empowered under that section to elect from a zone of a constituency, the members declared elected from that zone shall nominate the number of members not elected who shall be deemed to be members of the Council as if they had been duly elected.
+(2)Where the members of the Institute referred to in clause (a) of sub-section (2) of section 9 do not at all elect any member, the Council shall nominate the required number of members from the respective regional constituencies and such members shall be deemed to be the members of the Council as if they had been duly elected.]
+
+[^16]: Subs. by the Chartered Accountants (Amdt.) Ordinance 1983 (15 of 1983) s. 9, for section 11.

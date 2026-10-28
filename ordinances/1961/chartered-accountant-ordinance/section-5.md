@@ -1,0 +1,5 @@
+5. Associates and Fellows.—(1) The members of the Institute shall be of two classes designated respectively as associates and fellows.
+(2) Every person shall, on his name being entered in the Register, become an associate member of the Institute and be entitled to use the letters A.C.A after his name to indicate that he is an associate member of the Institute of Chartered Accountants.
+[^10][(3) An associate member who has been in practice for at least five years or an associate member of the Institute for a period of not less than ten years shall, on payment of the prescribed fee, have his name transferred to the Register of Fellows of the Institute and on having his name transferred to the Register of Fellows, he shall be entitled to use the letters F.C.A after his name to indicate that he is a fellow member of the Institute. Explanation.—For the purpose of this sub-section, two years as a non-practicing associate shall be counted as one year of practice of such associate.]
+
+[^10]: Subs. by the Chartered Accountants (Amdt.) Ordinance, 1983 (15 of 1983), s. 5, for sub-section (3).

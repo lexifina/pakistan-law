@@ -1,0 +1,2 @@
+20I. Publication of findings and decisions.— Where a member of the Institute or a student is found guilty, the Council shall cause the findings and decisions given against such member or student, as the case may be, to be published in the official Gazette and in such journal or journals as the Council may deem fit:
+Provided that, where the Council deems necessary, it may omit the name of such member or student from publication.
