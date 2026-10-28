@@ -1,0 +1,7 @@
+2. Definitions.___(1) In this Ordinance, unless there is anything repugnant in the subject or context,___
+(a) “Management Company” means the National Investment Trust Limited, and includes any other company for the time being managing the affairs of the Trust;
+(b) “rules” means rules made under this Ordinance;
+(c) “Trust” means the National Investment (Unit) Trust constituted under the Trust Deed or, if that Trust is reconstituted, the reconstituted trust;
+(d) “Trustee” means the National Bank of Pakistan, as trustee under the Trust Deed and includes its successors, or if the Trust is reconstituted, the trustees of the reconstituted trust;
+(e) “Trust Deed” means the deed of trust dated the 12th November, 1962, constituting the National Investment (Unit) Trust, made between the National Investment Trust Limited, a limited liability company registered under the Companies Act, 1913 (VII of 1913), with its registered office at Karachi as Management Company of the one part, and the National Bank of Pakistan, a bank constituted under the National Bank of Pakistan Ordinance, 1949 (XIX of 1949), having its head office at Karachi as Trustee of the other part, and includes any supplemental deeds made in accordance with the aforesaid deed.
+(2) All other expressions defined or used in the Trust Deed but not defined in this Ordinance shall have the same sense as is given to them in the Trust Deed.
