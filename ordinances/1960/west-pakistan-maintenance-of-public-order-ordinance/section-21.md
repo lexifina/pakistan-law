@@ -1,0 +1,2 @@
+21. Procedure for trial of offences. (1) In any area, the Government may by notification direct that all the offences under this Ordinance, shall, notwithstanding anything in the Code, be tried in accordance with the procedure prescribed for the trial of summons cases by Chapter XX of the Code, subject in the case of summary trials to the provisions of sections 263 to 265 of the Code.
+(2) The provisions of sub-section (1) shall apply to the trial of offences mentioned therein committed before the notification aforesaid.

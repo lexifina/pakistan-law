@@ -1,0 +1,3 @@
+8. Power to secure reports of public meetings. (1) The District Magistrate may, by order in writing depute one or more Police Officers not below the rank of head constable, or other persons to attend any public meeting for the purpose of causing a report to be made of the proceedings.
+(2) Any such order shall operate as a direction to the persons responsible for the convening or the conduct of the meeting to admit free of charge the persons so deputed.
+Explanation—For the purpose of this section a public meeting is any meeting which is open to the public or to any class or portion of the public, and a meeting may be a public meeting notwithstanding that it is held in a private place and notwithstanding that admission thereto is restricted by ticket or otherwise.

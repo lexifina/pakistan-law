@@ -1,0 +1,4 @@
+10. Power to issue search warrants. The power to issue search warrants conferred by section 98 of the Code shall be deemed to include the power to issue warrants for—
+(a) the search of any place in which any magistrate mentioned in that section has reason to believe that any offence under this Ordinance or any act prejudicial to public safety or the maintenance of public order has been, is being or is about to be committed, or that preparation for the commission of any such offence or act is being made ;
+(b) the seizure in or on any place searched under clause (a) of anything which the officer executing the warrant has reason to believe is being used or is intended to be used for any purpose mentioned in that clause ;
+and the provisions of the Code shall, so far as may be, apply to searches, made under the authority of any warrant issued and to the disposal of any property seized under this section.

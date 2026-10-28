@@ -1,0 +1,1 @@
+24. Effect of orders, etc., inconsistent with other enactments. Any order made, and any other action taken, under this Ordinance shall have effect notwithstanding anything inconsistent therewith contained in any enactment other than this Ordinance or in any instrument having effect by virtue of any enactment other than this Ordinance.

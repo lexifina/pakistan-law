@@ -1,0 +1,1 @@
+23. Jurisdiction barred. Except as provided in this Ordinance no proceeding or order taken or made under this Ordinance shall be called in question in any court and no civil or criminal proceeding shall be instituted against any person for anything in good faith done or intended to be done under this Ordinance.
