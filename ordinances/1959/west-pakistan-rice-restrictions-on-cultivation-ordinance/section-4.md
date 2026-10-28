@@ -1,0 +1,1 @@
+4. Penalty. Whoever contravenes the provisions of this Ordinance or the rules made or directions issued thereunder shall, on a complaint made in writing by any Revenue Officer, be punished with fine which may extend to ten times the land revenue assessment chargeable for the crop or simple imprisonment not exceeding six months or both.
