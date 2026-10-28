@@ -1,0 +1,3 @@
+8. Additions to licence:___ (1) Any person holding a licence issued under this Ordinance who is not for the time being disqualified for holding or obtaining a licence may apply in Form "D", as set forth in the First Schedule, to the licensing authority for the addition of any class of vehicles to the licence specified in sub-section (2) of section 7.
+(2) The provisions of section 6 shall apply to an application under this section as if the application were for the grant of a licence under that section to drive the class of vehicle which the applicant desires to be added to his licence.
+(3) No fee, other than a fee for the test of competence to drive, shall be charged for an addition to a licence under this section.

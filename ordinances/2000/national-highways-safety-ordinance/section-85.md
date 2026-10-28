@@ -1,0 +1,2 @@
+85. In the case of an accident:___ (1) caused by a public transport vehicle resulting in grievous injury or loss of life, it shall be presumed that there has been negligence of the obligation to observe safety procedures on the part of the public transport driver unless the contrary is proved.
+(2) In the event of such an accident the public transport vehicle shall be impounded by a police officer in uniform and not given on supardari, except in exceptional cases by the National Highways and Pakistan Motorway Police.

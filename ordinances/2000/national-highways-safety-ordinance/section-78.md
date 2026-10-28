@@ -1,0 +1,1 @@
+78. Offences relating to prohibited appliances:___Whoever carries in a road vehicle on a national highway any appliance the carrying of which is prohibited by rules made under section 64, shall be punished with fine which shall not be less than five hundred rupees and may extend to one thousand rupees and such appliances shall be forfeited to the Government.

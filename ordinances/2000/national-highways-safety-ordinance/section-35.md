@@ -1,0 +1,5 @@
+35. Registration of vehicles being the property of the Government:___ (1) Authority designated by the Government may register any road vehicle which is the property, or for the time being under the exclusive control of the Government and any vehicle so registered shall not so long as it remains the property or under the exclusive control of the Government require to be registered otherwise than under this Ordinance.
+(2) A transport vehicle registered under this Ordinance shall carry a certificate of fitness issued by the prescribed authority.
+(3) An authority registering a vehicle under sub-section (1) shall assign to it a registration mark and shall issue a certificate in respect of the vehicle that the vehicle has been registered under this section.
+(4) If a vehicle registered under this section ceases to be the property or under the exclusive control of the Government, the provisions of section 19 shall thereupon apply.
+(5) The authority registering a vehicle under sub-section (1) shall furnish to the Government all information regarding the nature, overall dimensions and axle weight of the vehicle as the Government may require.

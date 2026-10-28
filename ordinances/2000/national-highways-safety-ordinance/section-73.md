@@ -1,0 +1,1 @@
+73. Using vehicle with shaded glasses:___Whoever drives or causes or allows to be driven on a national highway, a road vehicle with shaded glass shall be punishable with imprisonment for a term which may extend to one month or with fine which shall not be less than five hundred rupees and may extend to two thousand rupees, or with both.

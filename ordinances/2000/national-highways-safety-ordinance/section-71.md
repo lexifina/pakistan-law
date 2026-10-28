@@ -1,0 +1,1 @@
+71. Punishment for abetment of certain offences:___Whoever abets the commission of an offence under sections 60, 65, 66, 67, 68, 69 and 70 shall be punishable with the punishment provided for the offence.

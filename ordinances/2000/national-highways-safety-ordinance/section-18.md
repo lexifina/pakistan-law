@@ -1,0 +1,4 @@
+18. Road vehicles not to be driven without registration.—(1) No person shall drive any road vehicle and no owner of a road vehicle shall cause or permit the vehicle to be driven on any national highway for the purpose of carrying passengers or goods unless the vehicle is registered in accordance with this Chapter and the vehicle carries a registration mark displayed in the prescribed manner.
+Explanation.—A road vehicle shall not be deemed to be registered in accordance with this Chapter if the certificate or registration has been suspended or cancelled.
+(2) Nothing in this section shall apply to a road vehicle while being driven within the limits of jurisdiction of a registering authority to, or from, the officially designated place of registration for the purpose of being registered under sections 19, 21, 35, or 36 or to a road vehicle exempted from the provisions of this Chapter while in the possession of a dealer in road vehicles.
+REGISTRATION WHERE TO BE MADE

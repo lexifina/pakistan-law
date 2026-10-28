@@ -1,0 +1,1 @@
+52. Vehicle with left hand control:___No person shall drive, or cause to be driven on a national highway any road vehicle with left hand steering control unless it is fitted with a plate indicating "Left Hand Drive" at the rear of the vehicle.

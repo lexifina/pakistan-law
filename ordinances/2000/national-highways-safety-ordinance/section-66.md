@@ -1,0 +1,2 @@
+66. Driving at excessive speed:___ (1) Whoever drives a road vehicle on a national highway in contravention of the speed limits specified in the Fifth Schedule shall be punished with imprisonment, or with fine, or with both, as specified in the Tenth and the Twelfth Schedules, as the case may be.
+(2) No person shall be convicted of an offence punishable under sub-section (1) unless the estimate of the speed is obtained by the use of some mechanical or electronic device.
