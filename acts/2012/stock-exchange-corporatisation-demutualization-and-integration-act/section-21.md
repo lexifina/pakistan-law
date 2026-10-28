@@ -1,0 +1,2 @@
+21. Winding up of a stock exchange. A stock exchange shall not commence any proceedings for winding up, whether voluntary or otherwise, without the prior written approval of the Commission:
+Provided that notwithstanding anything contained in any other law for the time being in force, the Commission shall have the power to take all necessary steps to rehabilitate a stock exchange that is facing financial or operational problems, in a manner as may be prescribed.

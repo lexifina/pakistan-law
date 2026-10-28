@@ -1,0 +1,1 @@
+26. Savings.— Save as otherwise provided in this Act, nothing in this Act shall curtail or deem to affect or curtail the powers of the Commission under the Securities and Exchange Commission of Pakistan Act, 1997 (XII of 1997), the Companies Ordinance, the Securities Ordinance or any other law for the time being in force.

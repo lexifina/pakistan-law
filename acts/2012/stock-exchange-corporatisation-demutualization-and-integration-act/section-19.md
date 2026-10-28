@@ -1,0 +1,11 @@
+## CHAPTER-V
+## OFFENCES AND PENALTIES
+19. Powers of the Commission.—(1) Where the Commission is satisfied that a stock exchange, a director of a stock exchange, committee member, shareholder, TRE certificate holder or any other person, has prima facie committed an offence under this Act or has contravened any provision of this Act or the regulations hereunder, the Commission may provide a reasonable opportunity of hearing to the stock exchange, the director, a shareholder TRE certificate holder or committee member as the case may be.
+(2) If after giving a reasonable opportunity of hearing to the stock exchange, its directors, shareholders, TRE certificate holders or committee member as the case may be, the Commission is satisfied that any of the aforementioned persons has knowingly and wilfully committed an offence under this Act, it may,—
+(a) direct the stock exchange to pay to the Commission by way of penalty a sum not exceeding twenty million rupees or suspend or cancel the registration of the stock exchange;
+(b) direct each director responsible for such failure to pay to the Commission from his own sources by way of penalty a sum not exceeding one million rupees or suspend or remove such director from the Board of the stock exchange;
+(c) direct each shareholder guilty of an offence under this Act to pay to the Commission from his own sources by way of penalty a sum not exceeding one million rupees;
+(d) direct each TRE certificate holder guilty of an offence under this Act to pay to the Commission from his own sources by way of penalty a sum not exceeding one million rupees; and
+(e) direct each committee member guilty of an offence under this Act to pay to the Commission from his own sources by way of penalty a sum not exceeding one million rupees.
+(3) Any sum directed by the Commission to be paid under sub-section (2) shall be recoverable by the Commission as arrears of land revenue.
+(4) Notwithstanding anything to the contrary contained herein, the Commission may, if it is satisfied that a TRE certificate holder, whether or not he is a shareholder of the stock exchange, has wilfully and knowingly failed to comply with the provisions of this Act, suspend or cancel the TRE certificate.

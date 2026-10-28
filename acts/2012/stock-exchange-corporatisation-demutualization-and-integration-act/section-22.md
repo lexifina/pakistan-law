@@ -1,0 +1,1 @@
+22. Prohibition on sale etc of assets of the stock exchange. No stock exchange shall sell immovable assets owned by the stock exchange at the date of corporatisation without the prior approval of the Commission and shall ensure that all assets are utilized in furtherance of the business of the stock exchange.
