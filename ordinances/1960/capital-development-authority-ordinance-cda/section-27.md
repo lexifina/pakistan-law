@@ -1,0 +1,6 @@
+27. Notice to persons interested.⎯ (1) The Deputy Commissioner shall then cause public notice to be given at convenient places on or near the land to be taken, stating that the [^16][Federal Government] intends to take possession of the land, and that claims to compensation for all interests in such land may be made to him.
+(2) Such notice shall state the particulars of the land so needed, and shall require all persons interested in the land to appear personally or by agent before the Deputy Commissioner at a time and place therein mentioned (such time not being earlier than ten days after the date of publication of the notice), and to state the nature of their respective interests in the land [^17][***] and particulars of their claims to compensation for such interests, and their objections, if any, to the measurements made under section 23, and the Deputy Commissioner may require any such statement to be made in writing and signed by the party or his agent.
+(3) The Deputy Commissioner shall also serve notice to the same effect on the occupier, if any, of such land and on all such persons known or believed to be interested therein, or to be entitled to act for persons so interested.
+
+[^16]: Subs. by Federal Adaptation of Laws Order, 1975, Art. II and Table.
+[^17]: Omitted, re-numbered, added, subs., and ins by Act No. I of 2026, ss. 2, 3, 4 and 5.

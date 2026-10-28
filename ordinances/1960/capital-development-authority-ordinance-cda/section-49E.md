@@ -1,0 +1,1 @@
+49E. Jurisdiction of courts barred.⎯ Save as otherwise provided by this Ordinance no court or other authority shall have jurisdiction to question the legality of anything done or any action taken under this Ordinance by or at the instance of the Authority.]

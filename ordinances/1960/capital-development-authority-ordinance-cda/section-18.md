@@ -1,0 +1,3 @@
+[^15][18. Utilisation of building material. Notwithstanding anything contained in any other law for the time being in force or in any contract or agreement, no person shall, without the prior concurrence of the Authority, allocate, exploit or in any manner utilise, except for the purpose of his own personal use, such natural resources used as building material as the Authority may, by notification in the official Gazette, specify in this behalf.]
+
+[^15]: Subs. and omitted by Act No XXII of 1966, ss. 5 and 6. ___________________________________________________________________________________________________________________

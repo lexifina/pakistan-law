@@ -1,0 +1,1 @@
+40. Indemnity.⎯ No suit, prosecution or other legal proceedings shall lie against the Authority, the Chairman, any member, officer, servant, expert or consultant of the Authority in respect of anything done or intended to be done, in good faith under this Ordinance.

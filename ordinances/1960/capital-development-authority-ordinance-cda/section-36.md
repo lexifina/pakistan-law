@@ -1,0 +1,9 @@
+[^24][36. Appeal and review.⎯(1) The Authority or any person aggrieved by an award or final order of the Deputy Commissioner may, within fifteen days of such award or order, appeal to the Commissioner.
+(2) The Commissioner may, after giving the Authority and the persons affected by the award or order appealed against an opportunity of submitting any objection to the appeal and of being heard, pass such orders thereon as he may think fit.
+(3) The Deputy Commissioner or the Commissioner, either of his own motion or on an application made in this behalf, at any time within five years from the date of an award or order made or passed by himself or by any of his predecessors in office, including an award or order made or passed before the commencement of the Capital Development Authority (Amendment) Act, 1966, may, after giving the parties concerned a notice and an opportunity of being heard, review the award or order and pass such order thereon as he may deem fit:
+Provided that an order under this sub-section shall not, except in so far as it corrects an arithmetical, clerical or patent error or mistake in the award or order under review, enhance the amount of compensation [^25][, rehabilitation and resettlement] awarded.
+(4) Any [^25][compensation awarded] to any person which is found, for any reason including fraud or misrepresentation, not to be due or in excess of the amount he is entitled to under the award or order, as reviewed under sub-section (3), shall be recoverable by the Authority and the Deputy Commissioner shall call upon such person to refund it.
+(5) Subject to the provision of sub-section (3), the order of the Commissioner passed on any appeal shall be final and shall not be called in question in any court.]
+
+[^24]: Subs. and ins. by Act No. XXII of 1966, ss. 10 and 11.
+[^25]: Ins. and Subs. by Act No. I of 2026, s. 11.

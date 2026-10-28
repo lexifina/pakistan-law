@@ -1,0 +1,1 @@
+49B. Summary ejectment of unauthorised occupants.⎯ The Deputy Commissioner or any person authorized by him or the Authority in this behalf may, after giving fifteen days notice, summarily eject any person in unauthorised occupation of any land or property vested in the Authority and may, for such ejectment, use such force including police force as may be necessary.
