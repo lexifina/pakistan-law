@@ -1,0 +1,2 @@
+11. Removal and delivery of the fugitive offender. If, upon receipt of the report and statement under clause (b) of section 10, the Federal Government is of opinion that the fugitive offender ought to be surrendered, it may issue a warrant for the custody and removal of the fugitive offender and for his delivery at a place and to a person to be named in the warrant:
+Provided that the fugitive offender shall not be so delivered until after the expiration of fifteen days from the date he has been taken in custody under such warrant.
