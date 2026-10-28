@@ -1,0 +1,3 @@
+7. Assembly to disperse on command of the District Magistrate or an Authorized
+member.__ (1) An officer-in-charge of a police station, on the instruction of the District Magistrate, may command any assembly likely to disturb the public peace to disperse. It shall then be the duty of the members of such an assembly to comply and disperse accordingly.
+(2) If, upon being so commanded, any such assembly does not disperse, or if, without being so commanded, it conducts itself in such a manner as to show a determination not to disperse at the scheduled time, any officer-in-charge of a police station may proceed to disperse such unlawful assembly by force and, if necessary, arrest and detain the members of such unlawful assembly.
