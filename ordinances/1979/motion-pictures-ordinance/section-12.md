@@ -1,0 +1,1 @@
+12. Vacancies, etc., not to invalidate proceedings.―No act or proceeding of the Board shall be deemed to be invalid by reason only of the existence of a vacancy in, or defect in the constitution of, the Board.

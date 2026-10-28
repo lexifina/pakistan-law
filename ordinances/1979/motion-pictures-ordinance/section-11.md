@@ -1,0 +1,1 @@
+11. Powers to direct exhibition of films for examination.―For the purpose of exercising any of the powers conferred on it by this Ordinance, the Federal Government or the Board may require any film to be exhibited before it or before any person specified by it in this behalf.

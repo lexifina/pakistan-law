@@ -1,0 +1,2 @@
+17. Bar to legal proceedings.―(1) No suit or other legal proceeding shall lie against the Federal Government, a Provincial Government, a Board, or any officer or member thereof, as the case may be, in respect of anything which is in good faith done or intended to be done under this Ordinance.
+(2) No court shall grant an injunction or make any interim order in respect of any order passed under section 8 or section 9.
