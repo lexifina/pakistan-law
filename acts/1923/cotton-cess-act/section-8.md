@@ -1,0 +1,4 @@
+[^20][8. Collection of cess on exported cotton. —(1) In respect of cotton exported by air, land or sea, cess shall be assessed and levied by the Collector of Customs at the customs-airport or customs-port of export, and, subject to the provisions of this Act and of any rules made thereunder, shall, for all or any of the purposes of the Customs Act, 1969, (IV of 1969) be deemed to be a duty of customs.
+(2) The Central Board of Revenue constituted under the Central Board of Revenue Act, 1924, (IV of 1924) may make rules providing, on such conditions as may be specified in the rules, for the refund of the cess levied where cotton is exported by land and subsequently imported into Pakistan].
+
+[^20]: Subs. by the Federal Laws (Revision and Declaration) Ordinance, 1981 (27 of 1981), s. 3 and Sch. II, for section 8, which was previously amended by various enactments.
