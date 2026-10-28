@@ -1,0 +1,13 @@
+14. Powers of the Federal Tax Ombudsman:___ (1) The Federal Tax Ombudsman shall, for the purposes of this Ordinance, have the same powers as are vested in a civil court under the Code of Civil Procedure, 1908 (Act V of 1908) in respect of the following matters, namely:—
+(a) summoning and enforcing the attendance of any person and examining him on oath;
+(b) compelling the production of documents;
+(c) receiving evidence on affidavits; and
+(d) issuing commission for the examination of witnesses.
+(2) The Federal Tax Ombudsman shall have the power to require any person to furnish information on such points or matters as, in the opinion of the Federal Tax Ombudsman, may be useful for, or relevant to, the subject matter of any investigation.
+(3) The powers referred to in sub-section (1) may be exercised by the Federal Tax Ombudsman or any person authorised in writing by the Federal Tax Ombudsman in this behalf while carrying out an investigation under the provisions of this Ordinance.
+(4) Where the Federal Tax Ombudsman finds the complaint referred to in sub-section (1) of section 9 to be false, frivolous or vexatious, he may award reasonable compensation to the Revenue Division or Tax Employee against whom the complaint was made. The amount of such compensation shall be recoverable from the complainant as an arrear of land revenue:
+Provided that the award of compensation under this subsection shall not debar the aggrieved person from seeking civil and criminal remedy.
+(5) If the Revenue Division or Tax Employee fails to comply with the order of the Federal Tax Ombudsman, he may, in addition to taking other actions under this Ordinance, refer the matter to the appropriate authority for taking disciplinary action against the person who disregarded the order of the Federal Tax Ombudsman.
+(6) If the Federal Tax Ombudsman has reason to believe that any Tax Employee has acted in a manner warranting criminal or disciplinary proceedings against him, he may refer the matter to the appropriate authority for necessary action to be taken within the time specified by the Federal Tax Ombudsman.
+(7) The Staff Members and nominees of the Office may be commissioned by the Federal Tax Ombudsman to administer oaths for the purposes of this Ordinance and to attest various affidavits, affirmations or declarations which shall be admitted in evidence in all proceedings under this Ordinance without proof of the signature or seal or official character of such person.
+(8) The Federal Tax Ombudsman shall have the power to review any finding communicated or recommendation made or any order passed by him.

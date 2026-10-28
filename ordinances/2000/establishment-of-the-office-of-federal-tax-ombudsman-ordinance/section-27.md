@@ -1,0 +1,1 @@
+27. Federal Tax Ombudsman and Staff Members to be public servants:___ The Federal Tax Ombudsman and Staff Members shall be deemed to be public servants within the meaning of section 21 of the Pakistan Penal Code. (Act XLV of 1860)

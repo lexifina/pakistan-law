@@ -1,0 +1,1 @@
+30. Immunity:___ No suit, prosecution or other legal proceeding shall lie against the Federal Tax Ombudsman, Staff Members, Inspection Team, members of a Standing or Advisory Committee, nominees of the Office, or any person authorised by the Federal Tax Ombudsman for anything which is in good faith done or intended to be done under this Ordinance.

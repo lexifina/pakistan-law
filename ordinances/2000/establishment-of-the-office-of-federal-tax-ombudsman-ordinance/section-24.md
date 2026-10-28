@@ -1,0 +1,2 @@
+24. Conduct of business:___ (1) The Federal Tax Ombudsman shall be the chief executive of the Office.
+(2) The Federal Tax Ombudsman shall be the Principal Accounting Officer of the Office in respect of the expenditure incurred against budget grant or grants controlled by the Federal Tax Ombudsman and shall, for this purpose, exercise all the financial and administrative powers delegated to a ministry or division.

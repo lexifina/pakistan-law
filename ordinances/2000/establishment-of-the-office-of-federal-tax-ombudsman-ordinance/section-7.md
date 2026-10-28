@@ -1,0 +1,1 @@
+7. Acting Federal Tax Ombudsman:___ At any time when the office of Federal Tax Ombudsman is vacant, or the Federal Tax Ombudsman is absent or is unable to perform his functions due to any cause, the President shall appoint an acting Federal Tax Ombudsman.

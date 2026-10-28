@@ -1,0 +1,3 @@
+23. Assistance and advice to Federal Tax Ombudsman:___ (1) The Federal Tax Ombudsman may seek the assistance of any person, officer or authority for the performance of his functions under this Ordinance.
+(2) All Staff Members and any other person or authority whose assistance has been sought by the Federal Tax Ombudsman in the, performance of his functions shall render such assistance to the extent it is within their power or capacity.
+(3) No statement made by a person or authority in the course of giving evidence before the Federal Tax Ombudsman or any Staff Member shall subject him to, or be used against him in any civil or criminal proceedings except for prosecution of such person for giving false evidence.

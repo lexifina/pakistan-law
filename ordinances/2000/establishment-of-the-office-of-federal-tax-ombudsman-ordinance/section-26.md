@@ -1,0 +1,3 @@
+26. Reward and remuneration:___(1) The Federal Tax Ombudsman may, in his discretion, fix the honorarium or remuneration of advisers, consultants, and experts engaged by him from time to time for services rendered.
+(2) The Federal Tax Ombudsman may, in his discretion, fix a reward or remuneration to be paid to any person for exceptional services rendered or valuable assistance given to the Federal Tax Ombudsman in carrying out his functions:
+Provided that the Federal Tax Ombudsman shall withhold the identity of the person, if so requested by the person concerned, and take steps to provide due protection under the law to such person against harassment, victimisation, retribution, reprisals or retaliation.

@@ -1,0 +1,3 @@
+17. Inspection Team:___ (1) The Federal Tax Ombudsman may constitute an Inspection Team for the performance of any of the functions of the Federal Tax Ombudsman.
+(2) The Inspection Team shall consist of one or more Staff Members and shall be assisted by such other person or persons, is the Federal Tax Ombudsman may consider necessary.
+(3) The Inspection Team shall exercise such of the powers of the Federal Tax Ombudsman as he may specify by order in writing and every report of the Inspection Team shall first be submitted to the Federal Tax Ombudsman with its recommendations for appropriate action.
