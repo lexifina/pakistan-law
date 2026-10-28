@@ -1,0 +1,1 @@
+16. Delegation of powers by the Inspector-General. The Inspector-General may, with the prior approval in writing of the Federal Government, delegate all or any of his powers under the rules for the efficient functioning of the Pakistan Railways Police to any officer or member.

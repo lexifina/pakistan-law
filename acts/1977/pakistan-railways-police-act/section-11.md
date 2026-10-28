@@ -1,0 +1,7 @@
+__________
+## CHAPTER V
+11. Liabilities of officers and members.—(1) It shall be the duty of every officer and member promptly to obey and to execute all orders and instructions issued to him by the competent authority.
+(2) Every officer and member shall be liable to serve wherever he is required to serve by the competent authority.
+(3) Every officer or member who is guilty of any violation of duty or wilful breach or neglect of any provision of this Act or of any rule or regulation or lawful order made by a competent authority, or who withdraws from his duties without permission, or who, being absent On leave, fails, without reasonable cause, to report himself for duty on the expiration of such leave, or on being recalled to duty earlier, or who engages without authority in any employment other than his duty under this Act, or Who is guilty of cowardice, or who offers any unwarrantable personal violence to any person in his custody, shall be liable to be proceeded against departmentally, or, on conviction before a Magistrate, to imprisonment for a term which may extend to six months, or with fine which may extend to one thousand rupees, or with both.
+(4) No court shall take cognizance of an offence punishable under sub-section (3) except upon a complaint in writing made by a person authorised in this behalf by the Federal Government.
+(5) Any person convicted, under sub-section (3) may, within thirty days from the date of his conviction, file an appeal to the Court of Session having jurisdiction, whose decision thereon shall be final.
