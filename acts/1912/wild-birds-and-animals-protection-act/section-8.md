@@ -1,0 +1,1 @@
+8. Savings. Nothing in this Act shall be deemed to apply to the capture or killing of a wild animal by any person in defence of himself or any other person, or to the capture or killing of any wild bird or animal in bona fide defence of property.
