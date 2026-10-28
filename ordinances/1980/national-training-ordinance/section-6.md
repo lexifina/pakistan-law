@@ -1,0 +1,4 @@
+6. Meetings and procedure.— 1[(1) The meetings of the National Board and a Provincial Board shall be held, as and when required but at least once in six months, at such time and place as Chairman of the respective Board may determine;
+(2) Meetings of the National Board and the Provincial Boards shall be conducted in accordance with such procedure as may be prescribed.
+1[(3) The powers and functions of the Chairman of the National Board shall, during the absence of the Chairman, be performed by the Vice­Chairman of the National Board and during the absence of both the Chairman and the Vice Chairman, by such member of the National Training Board as the Chairman may, by order in writing direct .
+1[(4) In case of a Provincial Board, the powers and functions of the Chairman shall, during the absence of the Chairman, be performed be such member of the Provincial Board as its Chairman may, by order in writing direct.]

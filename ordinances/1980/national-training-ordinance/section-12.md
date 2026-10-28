@@ -1,0 +1,1 @@
+12. Delegation of Powers. The National Board, with the approval of the Federal Government, and a Provincial Board, with the approval of the Provincial Government concerned, may delegate all or any of its powers to its Chairman, any of its committees or any officer of the Federal Government or a Provincial Government, as the case may be.

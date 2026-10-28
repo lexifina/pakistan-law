@@ -1,0 +1,1 @@
+15. Power to exempt. The Federal Government or a Provincial Government may, by Notification in the official Gazette, exempt either conditionally or unconditionally any establishment or class of establishments or any institution imparting vocational training from all or any of the provisions of this Ordinance.
