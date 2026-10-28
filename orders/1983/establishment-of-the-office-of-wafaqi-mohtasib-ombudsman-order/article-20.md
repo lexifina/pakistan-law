@@ -1,0 +1,1 @@
+20. Appointment of advisers, etc.—The Mohtasib may appoint advisors, consultants, fellows, bailiffs, interns, commissioners and experts, or ministerial staff with or without remuneration, to assist him in the discharge of his duties under this Order.

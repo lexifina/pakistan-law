@@ -1,0 +1,3 @@
+23. Assistance and advice to Mohtasib.—The Mohtasib may seek the assistance of any person or authority for the performance of his functions under this Order.
+(2) All officers of an Agency and any person whose assistance has been sought by the Mohtasib in the performance of his functions shall render such assistance to the extent it is within their power or capacity.
+(3) No statement made by a person or authority in the course of giving evidence before the Mohtasib or his staff shall subject him to, or be used against him in, any civil or criminal proceedings except for prosecution of such person for giving false evidence.

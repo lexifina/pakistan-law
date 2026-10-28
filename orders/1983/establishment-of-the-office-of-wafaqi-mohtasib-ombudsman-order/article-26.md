@@ -1,0 +1,3 @@
+26. Remuneration of advisers, consultants, etc.—(l) The Mohtasib may, in his discretion, fix an honorarium or enumeration of advisers, consultants, experts and interns engaged by him from time to time for the services rendered.
+(2) The Mohtasib may, in his discretion, fix a reward or remuneration to any person for exceptional services rendered, or valuable assistance given to the Mohtasib in carrying out his functions:
+Provided that the Mohtasib shall withhold the identity of that person, if so requested by the person concerned, and take steps to provide due protection under the law to such person against harassment, victimization, retribution, reprisals or retaliation.

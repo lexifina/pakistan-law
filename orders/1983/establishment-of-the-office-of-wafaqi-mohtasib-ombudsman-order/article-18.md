@@ -1,0 +1,1 @@
+18. Standing Committees, etc.—The Mohtasib may, whenever he thinks fit, establish standing or advisory committees at specified places with specific jurisdiction for performing such functions of the Mohtasib as are assigned to them from time to time and every report of such committee shall first be submitted to the Mohtasib with its recommendations for appropriate action.

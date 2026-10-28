@@ -1,0 +1,1 @@
+27. Mohtasib and staff to be public servants.—The Mohtasib, the employees, officers and all other staff of the office shall be deemed to be public servants within the meaning of Section 21 of the Pakistan Penal Code (Act XLV of 1860).
