@@ -1,0 +1,4 @@
+3. Application of the Act.—(1) This Act shall regulate the procedure for rendering and soliciting mutual legal assistance in criminal matters by Pakistan.
+(2) Subject to the provisions of this Act, the mutual legal assistance may be provided by Pakistan to a country on the principle of reciprocity reduced in writing.
+(3) Where the Federal Government considers it expedient to provide mutual legal assistance in a criminal matter to a country which has not entered into a reciprocal agreement with Pakistan, it may, by notification in the official Gazette, direct that the provisions of this Act shall, subject to such modifications and conditions as may be specified therein, have effect to that country.
+(4) This Act shall not be applicable to any offence of a political nature unless directly linked to a criminal matter.

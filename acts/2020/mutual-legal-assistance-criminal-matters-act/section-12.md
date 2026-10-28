@@ -1,0 +1,9 @@
+12. Detention of a person in Pakistan in response to request by Pakistan.—(1) The central authority may, by written notice, authorize temporary detention in Pakistan of a person in detention in a country who is transferred from that country to Pakistan pursuant to a request under clause (f) of section 7, for such period as may be agreed with that country for the purposes of request and return the person in custody to that country.
+(2) A person in respect of whom a notice is issued under sub-section (1) shall, so long as the notice is in force,—
+(a) be permitted to enter Pakistan and remain in Pakistan for the purpose of the request and to leave Pakistan when no longer required for that purpose; and
+(b) while in custody in Pakistan for the purpose of request, be deemed to be in lawful custody.
+(3) The central authority may at any time vary notice under sub- section (1), where the country makes a request for release of the person from custody, either immediately or on the specified date, and direct that the person be released from custody accordingly.
+(4) The provisions of this section shall apply, mutatis mutandis, in the case of any detained person in transit through Pakistan from one foreign country to another pursuant to a request for assistance of the kind referred to in this section.
+(5) Any person in Pakistan under this section who is in Pakistan in response to a request by the central authority under this Act to give evidence in any proceedings or to give assistance in relation to an investigation, prosecution or the related proceedings, may not be—
+(a) detained, prosecuted or punished for any other criminal offence that occurred prior to his arrival in Pakistan; and
+(b) subjected to judicial process in any other matter before the person’s departure from the country pursuant to the request.

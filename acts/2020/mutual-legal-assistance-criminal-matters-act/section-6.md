@@ -1,0 +1,1 @@
+6. Form and manner of requests.—The central authority may initiate or receive request for mutual legal assistance, to or from foreign countries, as the case may be, in accordance with the form, manner and conditions as may be prescribed.
