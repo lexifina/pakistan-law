@@ -1,0 +1,1 @@
+29. Amendment and repeal of Statutes and Regulations.—The procedure for adding to, amending or repelling the statutes and the regulations shall be the same as that prescribed respectively for framing or making of the statutes and regulations.
