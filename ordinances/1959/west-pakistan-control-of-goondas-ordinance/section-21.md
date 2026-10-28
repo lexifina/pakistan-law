@@ -1,0 +1,6 @@
+21. Punishment. (1) Whoever contravenes any order made under clause (d) or clause (e) of sub-section (1) of section 14, shall be punished with imprisonment of either description which may extend to two years, or with fine, or with both.
+(2) Whoever contravenes any order made or disobeys any direction given under this Ordinance shall be punished with imprisonment of either description which may extend to one year or with fine or with both.
+(3) Whoever contravenes any order made or disobeys any direction given under this Ordinance may be punished with whipping in addition to any other punishment to which he may be liable under this section.
+[^6][21-A. Enhanced punishment in some cases. Notwithstanding anything contained in the Pakistan Penal Code, the Whipping Act, 1909, or any other law for the time being in force, when a goonda is convicted under an enactment mentioned in the First Schedule to this Ordinance, for an offence punishable under any of the sections of that enactment mentioned against it in the second column of the said Schedule, the maximum punishment that may be awarded to him on such conviction shall be that appearing in the corresponding entry in the third column thereof.]
+
+[^6]: Added by West Pakistan Ordinance No. XI of 1968, s. 7-8.
