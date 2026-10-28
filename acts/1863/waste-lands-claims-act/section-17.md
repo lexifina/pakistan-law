@@ -1,0 +1,1 @@
+17. Records of cases where to be deposited. The record of cases disposed of by Courts constituted under this Act shall be deposited amongst the records of the principal Civil Court of original jurisdiction in the district in which the property in dispute is situate.
