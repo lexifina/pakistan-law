@@ -1,0 +1,2 @@
+24. Family Courts to inform Union Councils of cases not registered under the Muslim
+Family Laws Ordinance, 1961.― If in any proceedings before a Family Court it is brought to the notice of the Court that a marriage solemnized under the Muslim Law after the coming into force of the Muslim Family Laws Ordinance, 1961, has not been registered in accordance with the provisions of the said Ordinance and the rules framed thereunder, the Court shall communicate such fact in writing to the Union Council for the area where the marriage was solemnized.
