@@ -1,0 +1,3 @@
+3. Repeal and rescission.___(1) The Act shall stand repealed on the occurrence of the effective date and the Order shall stand rescinded concurrently therewith.
+(2) For the purposes of this Ordinance, the effective date shall be the date of transfer of all the shares in PSO as are owned by the Federal Government to one or more private sector investors pursuant to a “privatisation” effected under and pursuant to the Privatisation Commission Ordinance, 2000 (XLII of 2000) and any rules made
+Explanation.___For the purposes of this section the expression “transfer” means the registration of the transfer of the shares as contemplated above in the register of members of the PSO.
