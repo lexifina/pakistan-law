@@ -1,0 +1,1 @@
+8. Jurisdiction under this Act.__ Notwithstanding anything contained in section 190 of the Code, no Court other than the Court of District & Sessions judge shall take cognizance of or try any offence under this Act
