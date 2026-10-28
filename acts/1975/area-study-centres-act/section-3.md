@@ -1,0 +1,1 @@
+3. Establishment of Centre. As soon as may be after the commencement of this Act, the Federal Government may, by notification in the official Gazette, establish an Area Study Centre in a University specified in the notification.
