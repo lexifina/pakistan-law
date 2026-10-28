@@ -1,0 +1,1 @@
+5. Exemption from registration fees.___ Notwithstanding the provisions of section 470 and Sixth Schedule of the Companies Ordinance, 1984, (XLVII of 1984) the company shall be exempt from payment of the registration fees for the purpose of its incorporation.

@@ -1,0 +1,1 @@
+9. Repeal.___ Immediately after the incorporation and registration of the National Insurance Company as a public limited company, the National Insurance Corporation Act, 1976, (XXIII of 1976) shall stand repealed.
