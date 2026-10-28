@@ -1,0 +1,1 @@
+12. Duty to be taken prorate in enactments. Where, by any enactment now in force or hereafter to be in force, any duty of customs or excise, or in the nature thereof, is leviable on any given quantity, by weight, measure or value of any goods or merchandize, then a like duty is leviable according to the same rate on any greater or less quantity.
