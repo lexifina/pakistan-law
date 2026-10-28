@@ -1,0 +1,2 @@
+206. Bar to enforcement of Part against public settlement or legal directions by
+deceased. Nothing in this Part shall be deemed to authorise the contravention of any public act of settlement or of any legal directions given by a deceased proprietor of any property for the possession of his property after his decease in the event of minority or otherwise, and, in every such case, as soon as the Judge having jurisdiction over the property of a deceased person is satisfied of the existence of such directions, he shall give effect thereto.

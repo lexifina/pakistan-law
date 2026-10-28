@@ -1,0 +1,4 @@
+SCHEDULE VII
+(See section 290)
+FORM OF LETTERS OF ADMINISTRATION
+I, , Judge of the District of [or Delegate appointed for granting probate or letters of administration in (here insert the limits of the Delegate’s jurisdiction), hereby make known that on the day of letters of administration (with or without the will annexed, as the case may be), of the property and credits of late of , deceased, were granted to , the father (or as the case may be) of the deceased, he having undertaken to administer the same and to make a full and true inventory of the said property and credits and exhibit the same in this Court within six months from the date of this grant or within such further time as the Court may, from time to time, appoint, and also to render to this Court a true account of the said property and credits within one year from the same date, or within such further time as the Court may, from time to time, appoint.

@@ -1,0 +1,1 @@
+312. Survival of powers on death of one of several executors or administrators. Upon the death of one or more of several executors or administrators, in the absence of any direction to the contrary in the will or grant of letters of administration, all the powers of the office become vested in the survivors or survivor.

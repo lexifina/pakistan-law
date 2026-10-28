@@ -1,0 +1,1 @@
+231. Procedure where executor renounces or fails to accept within time limited. If an executor renounces, or fails to accept an executorship within the time limited for the acceptance or refusal thereof, the will may be proved and letters of administration, with a copy of the will annexed, may be granted to the person who would be entitled to administration in case of intestacy.

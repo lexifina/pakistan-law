@@ -1,0 +1,1 @@
+233. Right to administration of representative of deceased residuary legatee. When a residuary legatee who has a beneficial interest survives the testator, but dies before the estate has been fully administered, his representative has the same right to administration with the will annexed as such residuary legatee.

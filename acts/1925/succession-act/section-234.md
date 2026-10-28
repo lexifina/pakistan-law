@@ -1,0 +1,2 @@
+234. Grant of administration where no executor nor residuary legatee nor
+representative of such legatee. When there is no executor and no residuary legatee or representative of a residuary legatee, or he declines or is incapable to act, or cannot be found, the person or persons who would be entitled to the administration of the estate of the deceased if he had died intestate, or any other legatee having a beneficial interest, or a creditor, may be admitted to prove the will, and letters of administration may be granted to him or them accordingly.

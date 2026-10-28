@@ -1,0 +1,6 @@
+157. Order of payment where portion of fund specifically bequeathed to one legatee, and
+legacy charged. on same fund to another, and, testator having received portion of that fund, remainder insufficient to pay both legacies. Where a portion of a fund is specifically bequeathed to one legatee, and a legacy charged on the same fund is bequeathed to another legatee, then, if the testator receives a portion of that fund, and the remainder of the fund is insufficient to pay both the specific and the demonstrative legacy, the specific legacy shall be paid first, and the residue (if any) of the fund shall be applied so far as it will extend in payment of the demonstrative legacy, and the rest of the demonstrative legacy shall be paid out of the general assets of the testator.
+Illustration
+A bequeaths to B 1,000 rupees, part of the debt of 2,000 rupees due to him from W. He also bequeaths to C 1,000 rupees to be paid out of the debt due to him from W. A afterwards receives [^63][500] rupees, part of that debt, and dies leaving only 1,500 rupees due to him from W. Of these 1,500 rupees, 1,000 rupees belong to B, and 500 rupees are to be paid to C. C is also to receive 500 rupees out of the general assets of the testator.
+
+[^63]: Subs. by the Repealing and Amending Act, 1927 (10 of 1927), s. 2 and 1st Sch., for “5000”.

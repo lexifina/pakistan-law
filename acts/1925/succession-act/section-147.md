@@ -1,0 +1,4 @@
+147. Retention, in form of specific bequest to several persons in succession. Where property is specifically bequeathed to two or more persons in succession, it shall be retained in the form in which the testator left it, although it may be of such a nature that its value is continually decreasing.
+Illustrations
+(i) A, having lease of a house for a term of years, fifteen of which were unexpired at the time of his death, has bequeathed the lease to B for his life, and after B’s death to C. B is to enjoy the property as A left it, although, if B lives for fifteen years, C can take nothing under the bequest.
+(ii) A, having an annuity during the life of B, bequeaths it to C, for his life, and, after C’s death, to D. C is to enjoy the annuity as A left it, although, if B dies before D, D can take nothing under the bequest.

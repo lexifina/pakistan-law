@@ -1,0 +1,1 @@
+326. Executor or administrator not bound to pay legacies without indemnity. If the estate of the deceased is subject to any contingent liabilities, an executor or administrator is not bound to pay any legacy without a sufficient indemnity to meet the liabilities whenever they may become due.

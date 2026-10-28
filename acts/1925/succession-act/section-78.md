@@ -1,0 +1,4 @@
+78. Rejection of erroneous particulars in description of subject. If the thing which the testator intended to bequeath can be sufficiently identified from the description of it given in the will but some parts of the description do not apply, such parts of the description shall be rejected as erroneous, and the bequest shall take effect.
+Illustrations
+(i) A bequeaths to B “my marsh-lands lying in L and in the occupation of X”. The testator had marsh-lands lying in L but had no marsh-lands in the occupation of X. The words “in the occupation of X” shall be rejected as erroneous, and the marsh-lands of the testator lying in L will pass by the bequest.
+(ii) The testator bequeaths to A “my zamindari of Rampur”. He had an estate at Rampur but it was a taluq and not a zamindari. The taluq passes by this bequest.

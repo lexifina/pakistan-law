@@ -1,0 +1,2 @@
+229. Grant of administration where executor has not renounced. When a person appointed an executor has not renounced the executorship, letters of administration shall not be granted to any other person until a citation has been issued, calling upon the executor to accept or renounce his executorship:
+Provided that, when one or more of several executors have proved a will, the Court may, on the death of the survivor of those who have proved, grant letters of administration without citing those who have not proved.

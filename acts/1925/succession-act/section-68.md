@@ -1,0 +1,1 @@
+68. Witness not disqualified by interest or by being executor. No person, by reason of interest in, or of his being an executor of, a will, shall be disqualified as a witness to prove the execution of the will or to prove the validity or invalidity thereof.

@@ -1,0 +1,2 @@
+285. After entry of caveat, no proceeding taken on petition until after notice to caveator.
+No proceeding shall be taken on a petition for probate or letters of administration after a caveat against the grant thereof has been entered with the Judge or District Delegate to whom the application has been made or notice has been given of its entry with some other Delegate, until after such notice to the person by whom the same has been entered as the Court may think reasonable.

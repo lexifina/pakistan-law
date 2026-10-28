@@ -1,0 +1,6 @@
+[^41][116. Bequest to take effect on failure of prior bequest. Where by reason of any of the rules contained in sections 113 and 114, any bequest in favour of a person or of a class of persons is void in regard to such person or the whole of such class, any bequest contained in the same will and intended to take effect after or upon failure of such prior bequest is also void.]
+Illustrations
+(i) A fund is bequeathed to A for his life, and after his death to such of his sons as shall first attain the age of 25, for his life, and after the decease of such son to B. A and B survive the testator. The bequest to B is intended to take effect after the bequest to such of the sons of A as shall first attain the age of 25, which bequest is void under section 114. The bequest to B is void.
+(ii) A fund is bequeathed to A for his life, and after his death to such of his sons as shall first attain the age of 25, and, if no son of A shall attain that age, to B. A and B survive the testator. The bequest to B is intended to take effect upon failure of the bequest to such of A’s sons as shall first attain the age of 25, which bequest is void under section 114. The bequest to B is void.
+
+[^41]: Subs.by the Transfer of Property (Amdt.) Supplementary Act, 1929 (21 of 1929), s. 14, for the original section.

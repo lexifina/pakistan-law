@@ -1,0 +1,5 @@
+75. Inquiries to determine questions as to object or subject of will. For the purpose of determining questions as to what person or what property is denoted by any words used in a will, a Court shall inquire into every material fact relating to the persons who claim to be interested under such will, the property which is claimed as the subject of disposition, the circumstances of the testator and of his family, and into every fact a knowledge of which may conduce to the right application of the words which the testator has used.
+Illustrations
+(i) A, by his will, bequeaths 1, 000 rupees to his eldest son or to his youngest grandchild, or to his cousin, Mary. A Court may make inquiry in order to ascertain to what person the description in the will applies.
+(ii) A, by his will, leaves to B “my estate called Black Acre”. It may be necessary to take evidence in order to ascertain what is the subject-matter of the bequest; that is to say, what estate of the testator’s is called Black Acre.
+(iii) A, by his will, leaves to B “the estate which I purchased of C”. It may be necessary to take evidence in order to ascertain what estate the testator purchased of C.

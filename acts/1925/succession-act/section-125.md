@@ -1,0 +1,7 @@
+125. Bequest to such of certain persons as shall be surviving at some period not
+specified. Where a bequest is made to such of certain persons as shall be surviving at some period, but the exact period is not specified, the legacy shall go to such of them as are alive at the time of payment or distribution, unless a contrary intention appears by the will.
+Illustrations
+(i) Property is bequeathed to A and B to be equally divided between them, or to the survivor of them. If both A and B survive the testator, the legacy is equally divided between them. If A dies before the testator, and B survives the testator, it goes to B.
+(ii) Property is bequeathed to A for life, and, after his death, to B and C, to be equally divided between them, or to the survivor of them. B dies during the life of A; C survives A. At A’s death the legacy goes to C.
+(iii) Property is bequeathed to A for life, and after his death to B and C, or the survivor, with a direction that, if B should not survive the testator, his children are to stand in his place. C dies during the life of the testator; B survives the testator, but dies in the lifetime of A. The legacy goes to the representative of B.
+(iv) Property is bequeathed to A for life, and, after his death, to B and C, with a direction that, in case either of them dies in the lifetime of A, the whole shall go to the survivor. B dies in the lifetime of A. Afterwards C dies in the lifetime of A. The legacy goes to the representative of C.

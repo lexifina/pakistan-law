@@ -1,0 +1,2 @@
+346. Investment of residue bequeathed for life, with direction to invest in specified
+securities. When the testator has bequeathed the residue of his estate to a person for life with a direction that it shall be invested in certain specified securities, so much of the estate as is not at the time of his death invested in securities of the specified kind shall be converted into money and invested in such securities.

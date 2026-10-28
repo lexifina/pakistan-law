@@ -1,0 +1,1 @@
+290. Grant of letters of administration to be under seal of Court. When it appears to the District Judge or District Delegate that letters of administration to the estate of a person deceased, with or without a copy of the will annexed, should be granted, he shall grant the same under the seal of his Court in the form set forth in Schedule VII.

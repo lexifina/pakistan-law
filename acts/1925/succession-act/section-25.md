@@ -1,0 +1,3 @@
+25. Lineal consanguinity.―(1) Lineal consanguinity is that which subsists between two persons, one of whom is descended in a direct line from the other, as between a man and his father, grandfather and great-grandfather, and so upwards in the direct ascending line ; or between a man and his son, grandson, great-grandson and so downwards in the direct descending line.
+(2) Every generation constitutes a degree, either ascending or descending.
+(3) A person’s father is related to him in the first degree, and so likewise is his son; his grandfather and grandson in the second degree; his great-grandfather and great- grandson in the third degree, and so on.

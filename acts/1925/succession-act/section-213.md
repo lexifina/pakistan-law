@@ -1,0 +1,5 @@
+213. Right as executor or legatee when established.___(1) No right as executor or legatee can be established in any Court of Justice, unless a Court of competent jurisdiction in [^80][Pakistan] has granted probate of the will under which the right is claimed, or has granted letters of administration with the will or with a copy of an authenticated copy of the will annexed.
+[^81][(2) Sub-section (1) shall not apply in the case of wills made by Muslims and Parsis, and shall only apply in the case of wills made by any Hindu, Buddhist, Sikh or Jaina where such wills are of the classes specified in clauses (a) and (b) of section 57.]
+
+[^80]: Subs. by the Central Laws (Statute Reform) Ordinance, 1960 (21 of 1960), s. 3 and 2nd Sch., (with effect from the 14th October, 1955), for “the Provinces and the Capital of the Federation” which had been subs. by A. O., 1949, for “British India”.
+[^81]: Subs. by the Succession (Amdt.) Ordinance, 1978 (35 of 1978), s. 2, for sub-section (2), which were previously amended by various enactments.

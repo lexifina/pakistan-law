@@ -1,0 +1,1 @@
+266. District Judge’s powers as to grant of probate and administration. The District Judge shall have the like powers and authority in relation to the granting of probate and letters of administration, and all matters connected therewith, as are by law vested in him in relation to any civil suit or proceeding pending in his Court.

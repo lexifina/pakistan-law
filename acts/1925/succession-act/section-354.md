@@ -1,0 +1,1 @@
+354. No interest on arrears of annuity within first year after testator’s death. No interest is payable on the arrears of an annuity within the first year from the death of the testator, although a period earlier than the expiration of that year may have been fixed by the will for making the first payment of the annuity.

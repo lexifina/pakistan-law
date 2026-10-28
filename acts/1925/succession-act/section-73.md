@@ -1,0 +1,2 @@
+73. Revival of unprivileged will.―(1) No unprivileged will or codicil, nor any part thereof, which has been revoked in any manner, shall be revived otherwise than by the re-execution thereof, or by a codicil executed in manner hereinbefore required, and showing an intention to revive the same.
+(2) When any will or codicil, which has been partly revoked and afterwards wholly revoked, is revived, such revival shall not extend to so much thereof as has been revoked before the revocation of the whole thereof, unless an intention to the contrary is shown by the will or codicil.

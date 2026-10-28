@@ -1,0 +1,3 @@
+340. Dates of successive payments when first payment directed to be made within a
+given time or on day certain: death of annuitant before date of payment.___(1) Where there is a direction that the first payment of an annuity shall be made within one month or any other division of time from the death of the testator, or on a day certain, the successive payments are to be made on the anniversary of the earliest day on which the will authorises the first payment to be made.
+(2) If the annuitant dies in the interval between the times of payment, an apportioned share of the annuity shall be paid to his representative.

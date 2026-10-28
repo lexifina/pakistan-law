@@ -1,0 +1,5 @@
+81. Extrinsic evidence inadmissible in case of patent ambiguity or deficiency. Where there is an ambiguity or deficiency on the face of a will, no extrinsic evidence as to the intentions of the testator shall be admitted.
+Illustrations
+(i) A man has an aunt, Caroline, and a cousin, Mary, and has no aunt of the name of Mary. By his will he bequeaths 1, 000 rupees to “my aunt, Caroline” and 1, 000 rupees to “my cousin, Mary” and afterwards bequeaths 2, 000 rupees to “my before-mentioned aunt, Mary”. There is no person to whom the description given in the will can apply, and evidence is not admissible to show who was meant by “my before-mentioned aunt, Mary”. The bequest is therefore void for uncertainty under section 89.
+(ii) A bequeaths 1,000 rupees to leaving a blank for the name of the legatee. Evidence is not admissible to show what name the testator intended to insert.
+(iii) A bequeaths to B rupees, or “my estate of”. Evidence is not admissible to show what sum or what estate the testator intended to insert.

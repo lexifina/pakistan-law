@@ -1,0 +1,2 @@
+200. Institution and defence of suits. The curator shall be subject to all orders of the District Judge regarding the institution or the defence of suits, and all suits may be instituted or defended in the name of the curator on behalf of the estate:
+Provided that an express authority shall be requisite in the order of the curator’s appointment or the collection of debts or rents; but such express authority shall enable the curator to give a full acquittance for any sums of money received by virtue thereof.

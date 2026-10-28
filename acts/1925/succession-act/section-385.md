@@ -1,0 +1,2 @@
+385. Effect on certificate of previous certificate, probate or letters of administration.
+Save as provided by this Act, a certificate granted thereunder in respect of any of the effects of a deceased person shall be invalid if there has been a previous grant of such a certificate or of probate or letters of administration in respect of the estate of the deceased person and if such previous grant is in force.

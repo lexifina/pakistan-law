@@ -1,0 +1,1 @@
+176. Where gift of annuity and residuary gift, whole annuity to be first satisfied. Where there is a gift of an annuity and a residuary gift, the whole of the annuity is to be satisfied before any part of the residue is paid to the residuary legatee, and, if necessary, the capital of the testator’s estate shall be applied for that purpose.

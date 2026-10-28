@@ -1,0 +1,2 @@
+225. Separate probate of codicil discovered after grant of probate.___ (1) If a codicil is discovered after the grant of probate, a separate probate of that codicil may be granted to the executor, if it in no way repeals the appointment of executors made by the will.
+(2) If different executors are appointed by the codicil, the probate of the will shall be revoked, and a new probate granted of the will and the codicil together.

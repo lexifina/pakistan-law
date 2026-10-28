@@ -1,0 +1,2 @@
+387. Effect of decisions under this Act, and liability of holder of certificate thereunder.
+No decision under this Part upon any question of right between any parties shall be held to bar the trial of the same question in any suit or in any other proceeding between the same parties, and nothing in this Part shall be construed to affect the liability of any person who may receive the whole or any part of any debt or security, or any interest or dividend on any security to account therefor to the person lawfully entitled thereto.

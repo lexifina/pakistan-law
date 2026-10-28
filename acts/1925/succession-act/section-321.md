@@ -1,0 +1,1 @@
+321. Expenses to be paid next after such expenses. The expenses of obtaining probate or letters of administration, including the costs incurred for or in respect of any judicial proceedings that may be necessary for administering the estate, shall be paid next after the funeral expenses and death-bed charges.

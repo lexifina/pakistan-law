@@ -1,0 +1,1 @@
+259. Rules as to grants of effects unadministered. In granting letters of administration of an estate not fully administered, the Court shall be guided by the same rules as apply to original grants, and shall grant letters of administration to those persons only to whom original grants might have been made.

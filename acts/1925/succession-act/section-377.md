@@ -1,0 +1,1 @@
+377. Forms of certificate and extended certificate. Certificates shall be granted and extensions of certificates shall be made, as nearly as circumstances admit, in the forms set forth in Schedule VIII.

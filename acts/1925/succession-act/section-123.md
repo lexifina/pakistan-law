@@ -1,0 +1,3 @@
+123. One of two separate and independent bequests to same person may be accepted,
+and other refused. Where a will contains two separate and independent bequests to the same person, the legatee is at liberty to accept one of them and refuse the other, although the former may be beneficial and the latter onerous. Illustration
+A, having a lease for a term of years of a house at a rent which he and his representatives are bound to pay during the term, and which is higher than the house can be let for, bequeaths to B the lease and a sum of money. B refuses to accept the lease. He will not by this refusal forfeit the money.

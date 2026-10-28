@@ -1,0 +1,1 @@
+205. Limitation of time for application for curator. An application under this Part to the District Judge must be made within six months of the death of the proprietor whose property is claimed by right in succession.

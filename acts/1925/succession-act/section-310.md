@@ -1,0 +1,1 @@
+310. Purchase by executor or administrator of deceased’s property. If any executor or administrator purchases, either directly or indirectly, any part of the property of the deceased, the sale is voidable at the instance of any other person interested in the property sold.

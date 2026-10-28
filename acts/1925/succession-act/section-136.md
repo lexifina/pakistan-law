@@ -1,0 +1,5 @@
+136. Result of legatee rendering impossible or indefinitely postponing act for which no
+time specified, and on non-performance of which subject matter to go over. Where a bequest is made with a condition superadded that, unless the legatee shall perform a certain act, the subject-matter of the bequest shall go to another person, or the bequest shall cease to have effect but no time is specified for the performance of the act; if the legatee takes any step which renders impossible or indefinitely postpones the performance of the act required, the legacy shall go as if the legatee had died without performing such act.
+Illustrations
+(i) A bequest is made to A, with a proviso that, unless he enters the Army, the legacy shall go over to B. A takes Holy Orders, and thereby renders it impossible that he should fulfil the condition. B is entitled to receive the legacy.
+(ii) A bequest is made to A, with a proviso that it shall cease to have any effect if he does not marry B’s daughter. A marries a stranger and thereby indefinitely postpones the fulfilment of the conditions. The bequest ceases to have effect.

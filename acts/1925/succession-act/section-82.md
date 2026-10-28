@@ -1,0 +1,4 @@
+82. Meaning of clause to be collected from entire will. The meaning of any clause in a will is to be collected from the entire instrument, and all its parts are to be construed with reference to each other.
+Illustrations
+(i) The testator gives to B a specific fund or property at the death of A, and by a subsequent clause gives the whole of his property to A. The effect of the several clauses taken together is to vest the specific fund or property in A for life, and after his decease in B; it appearing from the bequest to B that the testator meant to use in a restricted sense the words in which he describes what he gives to A.
+(ii) Where a testator having an estate, one part of which is called Black Acre, bequeaths the whole of his estate to A, and in another part of his will bequeaths Black Acre to B, the latter bequest is to be read as an exception out of the first as if he had said “I give Black Acre to B, and all the rest of my estate to A”.

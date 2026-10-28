@@ -1,0 +1,1 @@
+36. Rules of distribution. The rules for the distribution of the intestate’s property (after deducting the widow’s share, if he has left a widow) amongst his lineal descendants shall be those contained in sections 37 to 40.

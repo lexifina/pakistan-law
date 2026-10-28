@@ -1,0 +1,1 @@
+258. Grant of effects unadministered. If an executor to whom probate has been granted has died, leaving a part of the testator’s estate unadministered, a new representative may be appointed for the purpose of administering such part of the estate.

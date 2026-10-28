@@ -1,0 +1,1 @@
+39. Where intestate has left only great-grandchildren or remoter lineal descendants. In like manner the property shall go to the surviving lineal descendants who are nearest in degree to the intestate, where they are all in the degree of great- grandchildren to him, or are all in a more remote degree.
