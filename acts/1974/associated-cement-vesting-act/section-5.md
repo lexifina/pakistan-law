@@ -1,0 +1,2 @@
+5. Administration, etc., of the Associated Cement.___ (1) The Corporation shall, subject to the provisions of this Act, be competent to administer, control, operate, manage, reorganise or dispose of the Associated Cement in such manner as it deems fit.
+(2) In particular and without prejudice to the generality of the foregoing provision, the Corporation may, with the approval of the Federal Government, transfer the management of the Associated Cement to one or more companies sponsored by the Corporation and registered under the Companies Act, 1913 (VII of 1913).
