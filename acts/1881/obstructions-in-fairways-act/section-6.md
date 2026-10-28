@@ -1,0 +1,2 @@
+6. Proceeds how applied. On realizing the proceeds of such sale, the amount due for expenses and charges as aforesaid, together with the expenses of the sale, shall be deducted therefrom, and the surplus (if any) shall be paid to the owner of the thing sold, or, if no such person appear and claim such surplus, shall be held in deposit for payment, without interest, to any person thereafter establishing his right to the same:
+Provided that he makes the claim within one year from the date of the sale.
