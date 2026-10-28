@@ -1,0 +1,4 @@
+26. Issue Department.—(1) the issue of bank notes shall be conducted by the Bank in an Issue Department which shall be separated and kept wholly distinct from the Banking Department and the assets of the Issue Department shall not be subject to any liability other than the liabilities of the Issue Department as hereinafter defined in section 32.
+(2) The Issue Department shall not issue bank notes to the Banking Department or to any person except in exchange for other bank notes or for such coin, bullion, [^83][special drawing rights held with the International Monetary Fund,] approved foreign exchange or securities as are permitted under this Act to form part of the assets of the Issue Department.
+
+[^83]: Ins. by the State Bank of Pakistan (Amdt.) Ordinance, 1969 (11 of 1969). Ss. 3 and 4.

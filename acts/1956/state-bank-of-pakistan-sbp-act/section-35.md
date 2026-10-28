@@ -1,0 +1,6 @@
+35. Offences and penalties relating to unauthorized issue of bills and bank notes.—(1) No person in Pakistan other than the Bank or as expressly authorised by this Act, the [^94][Federal Government] shall draw, accept, make or issue any bill of exchange, hundi, promissory note or engagement for the payment of money payable to bearer on demand, or borrow, owe or take up any sum or sums of money on the bill, hundis or notes payable to bearer on demand of any such person, but such cheques, or drafts, including hundi, payable to bearer on demand or otherwise may be drawn on a person’s account with a banker, shroff or agent.
+(2) Notwithstanding anything contained in the Negotiable Instruments Act, 1881, no person in Pakistan other than the Bank, or as expressly authorised by this Act, the [^94][Federal Government] shall make or issue any promissory note expressed to be payable to the bearer of the instrument.
+(3) Any person contravening the provision of this section shall be punishable upon conviction with fine which may extend to double the amount of the bill, hundi, promissory note or engagement in respect whereof the offence is committed.
+(4) No prosecution under this section shall be instituted except on complaint made on behalf of the Bank.
+
+[^94]: Subs. by the State Bank of Pakistan (Amdt.) Act, 1972 (23 of 1972), s. 6, for “Central Government”.

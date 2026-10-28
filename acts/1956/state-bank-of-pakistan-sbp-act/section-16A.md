@@ -1,0 +1,5 @@
+[^35][16A. Conflict of interest.⸺ No person appointed under section 11A shall act as a representative of any commercial, financial, agricultural, industrial or other interest or receive or accept directions therefrom, in respect of duties to be performed under this Act. Every such person shall fully and promptly disclose to the Board any interest, whether personal, commercial, financial, agricultural, industrial or other, which he or any dependent member of his family may directly or indirectly hold or be connected with and which becomes the subject of consideration by the Board, and shall recuse themselves from any Board deliberations and voting related thereto:
+Provided that such an interest, if so disclosed, shall not disqualify such member for the purpose of constituting a quorum:
+Provided that no person appointed under section 11A shall be employed by any institution regulated by the Bank within a period of two years after vacating his position at the Bank.]
+
+[^35]: Ins. and subs. by the State Bank of Pakistan (Amendment) Act, 2022 (VI of 2022), s. 17

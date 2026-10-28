@@ -1,0 +1,2 @@
+55. Repeal.— (1) The State Bank of Pakistan Ordinance, 1955 (XVIII of 1955), is hereby repealed.
+(2) Any rules or regulations made, order passed, notification issued, thing done, action taken or proceedings commenced under any of the provisions of the State Bank of Pakistan Ordinance, 1955 (XVIII of 1955), or deemed to have been so made, passed, issued, done, taken or commenced, shall continue in force and be deemed to have been made, or as the case may be, passed, issued, done, taken or commenced under the corresponding provision of this Act.

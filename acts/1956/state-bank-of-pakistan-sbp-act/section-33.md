@@ -1,0 +1,5 @@
+33. Obligation to supply different forms of currency.—(1) The Bank shall issue rupee coin on demand in exchange for bank notes and bank notes on demand in exchange for coin which is legal tender under the Pakistan Coinage Act (III of 1906).
+(2) The Bank shall in exchange for bank notes of five rupees or upwards supply bank notes of lower value or coins which are legal tender under the said Pakistan Coinage Act, in such quantities as may in the opinion of the Bank be required for circulation. The [^94][Federal Government] shall supply such coins to the Bank on demand and if it fails to do so at any time the Bank shall be released during the period of such failure from its obligation to supply them to the public.
+(3) The [^94][Federal Government] shall take over from the Bank at such time and in such quantities as the Bank may, with the previous approval of the [^94][Federal Government], determine rupee coins which are not required for purposes of circulation against payment.
+
+[^94]: Subs. by the State Bank of Pakistan (Amdt.) Act, 1972 (23 of 1972), s. 6, for “Central Government”.
