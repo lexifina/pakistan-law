@@ -1,0 +1,3 @@
+14. Enforcement of orders of the Commission.—(1) Any fine imposed by the Commission in the exercise of its powers under this Act shall be payable to the Commission and may be recovered by the Commission as arrears of land revenue.
+(2) Any amount which cannot be recovered as arrears of land revenue may be recovered as a decree for the payment of money under the Code of Civil Procedure, 1908 (Act V of 1908).
+(3) The Commission may issue such directions as may be necessary or expedient to give effect to its orders or to prevent abuse of its process, including but not limited to, seeking the assistance of the local administration or Police who shall be bound to provide assistance.

@@ -1,0 +1,1 @@
+18. Power to remove difficulties.⸺If any difficulty arises in giving effect to the provisions of this Act, the President may, by notification in the official Gazette, make an order not inconsistent with the provisions of this Act for removing the difficulty.

@@ -1,0 +1,1 @@
+12. Destruction of documents.⸺No person shall destroy, falsify, conceal or dispose of, or cause or permit the destruction, falsification, concealment or disposal of, any document, which he knows or ought to know is relevant to an inquiry, inspection, auditor has been called by the Commission.

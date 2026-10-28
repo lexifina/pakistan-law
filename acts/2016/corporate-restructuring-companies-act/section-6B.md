@@ -1,0 +1,2 @@
+6B. Appointment of a Corporate Restructuring Company as a recovery agent.⸺A financial institution may appoint a Corporate Restructuring Company as its agent for recovery of its non-performing assets by entering into an agency agreement with such Corporate Restructuring Company on such terms and conditions as may be mutually agreed between them:
+Provided that in case an agency relationship, there shall be no transfer of any non-performing assets to Corporate Restructuring Company.]
