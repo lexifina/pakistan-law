@@ -1,0 +1,1 @@
+13. Budget for the Authority.—The Director General shall, in respect of each financial year in accordance with the financial procedures approved by the Authority, prepare the annual budget estimates of the Authority and submit the same to the Federal Government after the approval of the Authority.
