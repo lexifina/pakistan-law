@@ -1,0 +1,2 @@
+3. Prohibition of eating, etc., in public places.___ (1) No person who, according to the tenets of Islam, is under an obligation to fast shall eat, drink or smoke in a public place during fasting hours in the month of Ramazan.
+(2) Whoever contravenes the provisions of sub-section (1) shall be punishable with simple imprisonment for a term which may entend to three months, or with fine which may extend to five hundred rupees, or with both.
