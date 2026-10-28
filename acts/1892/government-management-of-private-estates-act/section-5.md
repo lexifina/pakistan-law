@@ -1,0 +1,1 @@
+5. Saving as to special expenditure. Nothing in this Act shall apply to the cost of establishments specially entertained or to expenditure of any description specially incurred in respect of any particular estate or estates.
