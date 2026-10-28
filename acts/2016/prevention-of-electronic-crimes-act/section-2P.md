@@ -1,0 +1,1 @@
+2P. Indemnity.__ No suit, prosecution or either proceedings shall lie against the Government or public authority or functionary or any other person exercising any powers or performing any function under this Act or for anything done in good faith.

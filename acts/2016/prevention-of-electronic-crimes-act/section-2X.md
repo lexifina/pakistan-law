@@ -1,0 +1,1 @@
+2X. Appeal against decisions of the Tribunal.—Any person aggrieved by the final decision of the Tribunal may prefer an appeal to the Supreme Court of Pakistan within sixty days of receipt of the decision.]

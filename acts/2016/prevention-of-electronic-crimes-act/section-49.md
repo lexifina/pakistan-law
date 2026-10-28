@@ -1,0 +1,3 @@
+49. Computer emergency response teams.—(1) The Federal Government may constitute one or more computer emergency response teams to respond to any threat against or attack on any critical infrastructure information systems or critical infrastructure data, or widespread attack on information systems in Pakistan.
+(2) A computer emergency response team constituted under sub-section (1) may comprise of technical experts of known expertise officers of any intelligence or agency or any sub-set thereof.
+(3) A computer emergency response team shall respond to a threat or attack without causing any undue hindrance or inconvenience to the use and access of the information system or data as may be prescribed.

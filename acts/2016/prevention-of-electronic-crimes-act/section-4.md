@@ -1,0 +1,1 @@
+4. Unauthorized copying or transmission of data.— Whoever with dishonest intention and without authorization copies or otherwise transmits or causes to be transmitted any data shall be punished with imprisonment for a term which may extend to six months, or with fine which may extend to one hundred thousand rupees or with both.

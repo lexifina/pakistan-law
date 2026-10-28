@@ -1,0 +1,1 @@
+53. Report to Parliament.—The agency designated or established under section 29 of the Act shall submit a half yearly report to both houses of the Parliament for consideration by the relevant Committee in camera, in respect of its activities, without disclosing identity information, in a manner as prescribed under this Act.

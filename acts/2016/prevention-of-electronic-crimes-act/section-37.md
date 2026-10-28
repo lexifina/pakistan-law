@@ -1,0 +1,7 @@
+37. Unlawful on-line content.— (1) The Authority shall have the power to remove or block or issue directions for removal or blocking of access to an information through any information system if it considers it necessary in the interest of the glory of Islam or the integrity, security or defence of Pakistan or any part thereof, public order, decency or morality, or in relation to contempt of court or commission of or incitement to an offence under this Act.
+(2) The Authority shall, with the approval of the Federal Government, prescribe rules providing for, among other matters, safeguards, transparent process and effective oversight mechanism for exercise of powers under sub-section (1).
+(3) Until such rules are prescribed under sub-section (2), the Authority shall exercise its powers under this Act or any other law for the time being in force in accordance with the directions issued by the Federal Government not inconsistent with the provisions of this Act.
+(4) Any person aggrieved from any order passed by the Authority under sub-section (1), may file an application with the Authority for review of the order within thirty days from the date of passing of the order.
+(5) An appeal against the decision of the Authority in review shall lie before the [^17][Tribunal] within thirty days of the order of the Authority in review.
+
+[^17]: Subs. by the Establishment of Telecommunication Appellate Tribunal Act, 2024 (Act No. XXV of 2024), s. 7.

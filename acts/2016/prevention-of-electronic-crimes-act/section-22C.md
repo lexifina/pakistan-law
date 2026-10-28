@@ -1,0 +1,2 @@
+22C. Use of information system for kidnapping, abduction or trafficking of minor.—
+Whoever contacts a minor through the use of an information system or any other similar means directly or indirectly of communication with intent to kidnap, abduct or traffic a minor to commit sexual abuse of a minor or exploitation shall be punished with imprisonment of either description for a term which shall not be less than fourteen years and may extend up to twenty years and with fine which shall not be less than one million rupees.]

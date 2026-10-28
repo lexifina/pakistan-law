@@ -1,0 +1,8 @@
+24. Cyber stalking.— (1) A person commits the offence of cyber stalking who, with the intent to coerce or intimidate or harass any person, uses information system, information system network, the Internet, website, electronic mail or any other similar means of communication to—
+(a) follow a person or contacts or attempts to contact such person to foster personal interaction repeatedly despite a clear indication of disinterest by such person;
+(b) monitor the use by a person of the internet, electronic mail, text message or any other form of electronic communication;
+(c) watch or spy upon a person in a manner that results in fear of violence or serious alarm or distress, in the mind of such person; or
+(d) take a photograph or make a video of any person and displays or distributes it without his consent in a manner that harms a person.
+(2) Whoever commits the offence specified in sub-section (1) shall be punished with imprisonment for a term which may extend to three years or with fine which may extend to one million rupees or with both:
+Provided that if victim of the cyber stalking under sub-section (1) is a minor the punishment may extend to five years or with fine which may extend to ten million rupees or with both.
+(3) Any aggrieved person or his guardian, where such person is a minor, may apply to the Authority for removal, destruction of or blocking access to such information referred to in sub-section (1) and the Authority, on receipt of such application, shall forthwith pass such orders as deemed reasonable in the circumstances including an order for removal, destruction, preventing transmission of or blocking access to such information and the Authority may also direct any of its licensees to secure such information including traffic data.

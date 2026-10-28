@@ -1,0 +1,2 @@
+18. Tampering, etc. of communication equipment.—Whoever unlawfully or without authorization changes, alters, tampers with or re-programs unique device identifier of any communication equipment including a cellular or wireless handset and starts using or marketing such device for transmitting and receiving information shall be punished with imprisonment which may extend to three years or with fine which may extend to one million rupees or with both.
+Explanation.— A “unique device identifier” is an electronic equipment identifier which is unique to a communication device.

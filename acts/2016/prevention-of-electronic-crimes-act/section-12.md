@@ -1,0 +1,1 @@
+12. Recruitment, funding and planning of terrorism.— Whoever prepares or disseminates information, through any information system or device, that invites or motivates to fund, or recruits people for terrorism or plans for terrorism shall be punished with imprisonment for a term which may extend to seven years or with fine or with both.
