@@ -1,0 +1,3 @@
+28. Complaints.— (1) The Council shall exclusively inquire into and adjudicate upon and decide complaints relating to registered and licensed individuals and recognized institutions and impose penalties of suspension or cancellation of registration, license or recognition and fines in the prescribed manner:
+Provided all cognizable offences shall be triable exclusively by the Pakistan Medical Tribunal.
+(2) Notwithstanding sub-section (1), a person may institute a claim for damages before the Pakistan Medical Tribunal arising out of negligence, malpractice, maladministration or failure in provision of authorized healthcare services by an AHP or a recognized institution subsequent to a finding by the Council on a complaint under sub-section (1).

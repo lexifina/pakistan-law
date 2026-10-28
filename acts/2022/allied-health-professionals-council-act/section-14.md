@@ -1,0 +1,2 @@
+14. Recognition of continuous professional development opportunity providers.— (1) Any organization in Pakistan, offering opportunities of continuous professional development (CPD), to AHP’s shall apply to the Council to have such facility recognized and Council on the recommendations of the relevant advisory committee may recognize such institutions and facilities as a recognized CPD provider.
+(2) A separate list of international CPD providing organization or institutes recognized by the Council shall also be maintained by the Council.

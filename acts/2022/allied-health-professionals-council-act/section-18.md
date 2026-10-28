@@ -1,0 +1,1 @@
+18. Institutions to furnish information required by the Council.— Every institution which trains or grants or both any recognized basic or higher qualification for AHP, or applies for the recognition of any basic or higher qualification shall furnish to the Council such information as it may from time to time, require for its recognition.

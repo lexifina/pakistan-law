@@ -1,0 +1,1 @@
+41. Overriding effect.— Notwithstanding anything to the contrary contained in any other law, the provisions of this Act shall have an overriding effect and the provisions of any such law to the extent of inconsistency to this Act shall cease to have effect.

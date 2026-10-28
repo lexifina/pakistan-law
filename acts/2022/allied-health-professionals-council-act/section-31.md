@@ -1,0 +1,1 @@
+31. Action done in good faith.— No suit or other legal proceedings shell lie against the Council, advisory committee, officers, servants, inspectors, inspection teams or office holders of the Council for anything done in good faith or in the execution or purported execution of this Act, rules or regulations made thereunder.

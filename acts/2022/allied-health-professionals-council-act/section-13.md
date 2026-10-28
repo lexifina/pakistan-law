@@ -1,0 +1,2 @@
+13. Recognition of foreign qualifications.— (1) Notwithstanding section 16, the Council may on the recommendation and evaluation by the relevant advisory committee, recognize any foreign basic or higher qualification granted by any foreign institution for purposes of licenses and qualification in Pakistan.
+(2) The Council shall register and grant a license to any foreign licensed AHP who has acquired a license or is registered with an allied health authority in a country recognized by the Council.

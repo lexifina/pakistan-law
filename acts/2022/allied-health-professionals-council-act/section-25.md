@@ -1,0 +1,10 @@
+25. Penalty for offenses.— (1) A person shall be punishable with imprisonment of either description for a term which may extend to three year or with a fine which may extend to one million rupees or with both, if:
+(a) one procures or attempts to procure the registration of one’s name in the register or abets the procurement of such registration of any name by asking or abetting in any manner whatsoever, false or fraudulent statement, representation or declaration; or
+(b) one, not being registered in the register, represents that one is so registered, or uses with one’s name any title or any word or letter representing or claimed to represent that one is so registered; or
+(c) one serves as AHP according to his category in contravention of any regulations made under this Act.
+(2) A health care establishment or an institution shall be punishable with a fine of not less than two million rupees and which may extend to five million rupees and the chief executive of the establishment or institution shall be punishable with imprisonment of either description for a term which may extend to one year or with a fine of not less than one million rupees which may extend to three million rupees or with both, if;
+(a) it employs an unregistered allied health professional; or
+(b) an Allied Health Professional is working in a capacity other than the one he is registered for; or
+(c) the institution misrepresents itself to be recognized by the Council to grant or train or both an AHP qualification.
+(3) If the complaint submitted by a person is determined to be false to the knowledge of the complainant, such complainant shall be punishable with imprisonment of either description for a term which may extend to three months or with a fine which may extend to one million rupees or with both.
+(4) Whoever obstructs an inspection made by an inspector in exercise of any power conferred upon him by or under this Act, shall be punishable with imprisonment for a term which may extend to six months or a fine which may extend to fifty thousand Rupees or with both.
