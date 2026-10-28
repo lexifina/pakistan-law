@@ -1,0 +1,2 @@
+39. Complaints. — (1) Any interested person, including a Provincial Government, may file a written complaint with the Authority against a licensee for contravention of any provision of this Act or any order, rule, regulation, licence or instruction made or issued thereunder.
+(2) The Authority shall, on receipt of a complaint, before taking any action thereon, give notice to the licensee or any other person against whom such complaint has been made to show cause and provide such licensee or such other person an opportunity of being heard.

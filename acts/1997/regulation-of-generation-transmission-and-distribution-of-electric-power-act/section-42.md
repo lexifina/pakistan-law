@@ -1,0 +1,3 @@
+42. Reports of the Authority. — (1) The Authority shall submit, to the Council of Common Interests and to the Federal Government, at the end of every financial year, but before the last day of September of that year—
+(a) a report on the conduct of its affairs for that year including anticipated developments for the following year; and
+(b) report on the state of the electric power services in the country identifying the ownership, operation, management, efficiency and control of electric power facilities, amount of transmission and generation capacity, present and future demand of electricity, cost of electric power services and other matters relating to electric power services.

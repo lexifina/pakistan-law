@@ -1,0 +1,5 @@
+27C. Prohibition order. — (1) The Authority may, after recording reasons in writing, for continuing violations of this Act or the rules or regulations made thereunder—
+(a) prohibit a generation company, a licensee or a registered person, from providing electric power services; or
+(b) in the case of a generation company, prohibit any or all persons from purchasing electricity from such generation company; or
+(c) require a generation company, a licensee or a registered person, to improve the provision of electric power services so as to ensure compliance with this Act and the rules and regulations made thereunder.
+(2) The Authority may, either on its own motion or on the application of a generation company, a licensee or a registered person, against whom a prohibition or requirement has been imposed under sub-section (1), rescind or vary such prohibition or requirement if the Authority is satisfied that no violation of this Act or rules or the regulations made thereunder exists to that extent.]

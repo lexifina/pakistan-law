@@ -1,0 +1,1 @@
+12D. Automatic disqualification. — If a member of the Appellate Tribunal remains absent from his position or otherwise fails to undertake his duties for any reason whatsoever for a period of three months it shall be a ground for automatic disqualification of such member.

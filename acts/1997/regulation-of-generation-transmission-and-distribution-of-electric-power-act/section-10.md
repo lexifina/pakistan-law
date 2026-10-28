@@ -1,0 +1,2 @@
+10. Staff and advisers, etc.— (1) To carry out the purposes of this Act, the Authority may, from time to time, employ officers, members of its staff, experts, consultants, advisers and other employees on such terms and conditions as it may deem fit.
+(2) All officers, members of staff, experts, consultants, advisers and other employees employed by the Authority shall not be deemed to be civil servants within the meaning of the Civil Servants Act, 1973 (LXXI of 1973).

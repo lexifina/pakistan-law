@@ -1,0 +1,1 @@
+41. Sum payable to the Authority to be recoverable as land revenue. — All sums payable to the Authority in accordance with the provisions of this Act and the rules shall be recoverable as arrears of land revenue.

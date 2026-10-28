@@ -1,0 +1,1 @@
+49. Cognizance of offences. — Notwithstanding anything contained in the Code of Criminal Procedure, 1898 (Act V of 1898), no court other than the court of sessions shall take cognizance of an offence under this Act except on a complaint by an officer authorized in this behalf by the Authority.
