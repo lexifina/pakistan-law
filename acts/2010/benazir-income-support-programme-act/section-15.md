@@ -1,0 +1,2 @@
+15. Maintenance of Accounts and internal control.—(1) The Programme shall maintain complete and accurate books of accounts in connection with the discharge of its responsibility as may be prescribed by the Auditor-General of Pakistan.
+(2) The internal audit of the Programme shall be carried through an independent internal audit officer who shall report directly to the Board. The internal audit report shall be presented to the Board for comments and follow up on the remedial actions.

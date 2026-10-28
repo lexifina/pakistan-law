@@ -1,0 +1,2 @@
+14. Budget of the Programme.— (1) The Secretary shall, in respect of each financial year, in accordance with the financial procedures approved by the Board, prepare the annual budget estimates of the Programme and submit the same to the Board for approval.
+(2) The Secretary shall have full powers to incur expenditure or re-appropriate funds, subject to any general or specific instructions of the Board.

@@ -1,0 +1,1 @@
+20. Indemnity.— No prosecution, suit or other legal proceedings shall lie against the Council, Board, the Chairperson, Members, officers and other employees of the Programme for anything done in good faith for carrying out the purposes of this Act or regulations or orders made or issued there under.
