@@ -1,0 +1,6 @@
+[^19][7A. Special power of search and seizure in respect of certain offences.___[^20][(1)] If a police-officer, not below the rank of sub-inspector, has reason to believe that an offence under section 5, in respect of a goat, is being or is about to be, or has been, committed in any place, or that any person has in his possession the skin of a goat with any part of the skin of the head attached thereto, he may enter and search such place or any place in which he has reason to believe any such skin to be, and may seize any such skin and any article or thing used or intended to be used in the commission of such offence.]
+[^21][(2) If a police-officer, not below the rank of sub-inspector, or any person specially authorised by the Provincial Government in this behalf has reason to believe that phooka or doom dev has just been or is being performed on any animal within the limits of his jurisdiction, he may enter any place in which he has reason to believe such animal to be, and may seize the animal and produce it for examination by the Veterinary Officer in charge of the area in which the animal is seized.]
+
+[^19]: S. 7A ins. by the Prevention of Cruelty to Animals (Amdt.) Act, 1917 (14 of 1917), s. 3.
+[^20]: Section 7 A re-numbered as sub-section (1) of that section by Act 25 of 1938, s. 9.
+[^21]: Sub-section (2) added, ibid.

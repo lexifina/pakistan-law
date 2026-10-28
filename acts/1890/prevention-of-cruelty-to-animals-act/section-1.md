@@ -1,0 +1,7 @@
+1. Title, extent and commencement, and supersession of other enactments.–(1) This Act may be called the Prevention of Cruelty to Animals Act, 1890.
+(2) This section extends to [^2][the whole of Pakistan] and the [^3][Provincial Government] may, by notification in the official Gazette, extend, on and from a date to be specified in the notification, the whole or any part of the rest of this Act to any such local area as it thinks fit.
+(3) When any part of this Act has been extended under sub-section (2) to a local area, the [^3][Provincial Government] may, by notification in the official Gazette, direct that the whole or any part of any other enactment in force in the local area for the prevention of cruelty to animals shall, except as regards anything done or any offence committed or any fine or penalty incurred or any proceedings commenced, cease to have effect in the local area, and such whole or part shall cease to have effect accordingly until the [^3][Provincial Government], by a like notification, otherwise directs.
+(4) The [^3][Provincial Government] may cancel or vary a notification under sub-section (2) or sub- section (3).
+
+[^2]: Subs. by the Central Laws (Statute Reform) Ordinance, 1960 (21 of 1960), s. 3 and 2nd Sch. (with effect from the 14th October, 1955), for “all the Provinces and the Capital of the Federation” which had been subs. by A. O., 1949, Arts. 3(2) and 4 for “the whole of British India”.
+[^3]: Subs. by A. O., 1937, for the words “Local Government”.

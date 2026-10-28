@@ -1,0 +1,6 @@
+10. Destruction of suffering animals.__[^29][(1)] When any Magistrate, [^30]* * * or District Super-intendent of police has reason to believe that an offence against this Act has been committed in respect of any animal, he may direct the immediate destruction of the animal if in his opinion its sufferings are such as to render such a direction proper.
+[^31][(2) Any police-officer above the rank of a constable who finds any animal so diseased, or so severely injured, or in such a physical condition that it cannot, in his opinion, be removed without cruelty, may, if the owner is absent or refuses to consent to the destruction of the animal, forthwith summon the Veterinary Officer in charge of the area in which the animal is found and if the Veterinary Officer certifies that the animal is mortally injured, or so severely injured or in such a physical condition that its destruction is desirable, the police-officer may, after obtaining orders from a Magistrate, destroy the animal or cause it to be destroyed.]
+
+[^29]: S. 10 re-numbered as sub-section (1) of that section by Act 25 of 1938, s. 11.
+[^30]: The words “Commissioner of Police” omitted, by A. O., 1949, Sch.
+[^31]: Sub-section (2) added, by Act. 25 of 1938.

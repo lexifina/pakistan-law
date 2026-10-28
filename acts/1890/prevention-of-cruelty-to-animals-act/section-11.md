@@ -1,0 +1,1 @@
+11. Saving with respect to religious rites and usages. Nothing in this Act shall render it an offence to kill any animal in a manner required by the religion or religious rites and usages of any race, sect, tribe or class.

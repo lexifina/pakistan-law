@@ -1,0 +1,3 @@
+[^10]5B. Presumptions as to possession of the skin of a goat. If any person is charged with the offence of killing a goat contrary to the provisions of section 5, or with an offence punishable under section 5A, and it is proved that such person had in his possession, at the time the offence was alleged to have been committed, the skin of a goat with any part of the skin of the head attached thereto, it shall be presumed, until the contrary be proved, that such goat was killed in an unnecessarily cruel manner, and that the person in possession of such skin had reason so to believe.]
+
+[^10]: Ss. 5A and 5B were ins. by s. 2 of the Prevention of Cruelty to Animals (Amdt.) Act, 1917 (14 of 1917).
