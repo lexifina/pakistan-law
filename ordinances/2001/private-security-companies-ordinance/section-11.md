@@ -1,0 +1,2 @@
+11. Effect of revocation of licence, etc.___ (1) Where an order of revocation becomes effective under section 10, the licensee shall cease to carry on the business of a private security company.
+(2) Notwithstanding the revocation of licence, the enforcement of right or claim of any against the licensee or by the licensee of any right or claim against person arising out of, or concerning, any matter or thing done prior to the revocation of the licence shall not be affected.

@@ -1,0 +1,1 @@
+5. Prohibition of maintenance of a company without a licence.___ No person shall carry on the business of a private security company or maintain or provide security guards or security arrangements for consideration unless holds a licence for the purpose issued under this Ordinance.

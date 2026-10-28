@@ -1,0 +1,1 @@
+4. Private security companies’ employees not to wear certain uniform.___ The persons employed by the private security company shall not wear uniform akin to uniform of armed forces, police or any civil armed force and shall wear the uniform as may by prescribed.

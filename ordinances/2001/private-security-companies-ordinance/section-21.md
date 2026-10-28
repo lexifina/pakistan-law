@@ -1,0 +1,1 @@
+21. Private security company not to be private military organization.___ The private security company shall not be construed as private military organization for the purposes of Private Military Organization (Abolition and Prohibition) Act, 1974(IV of 1974).
