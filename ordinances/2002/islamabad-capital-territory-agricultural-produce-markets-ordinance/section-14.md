@@ -1,0 +1,4 @@
+14. Vote of no-confidence. ___ (1) A chairman or a vice-chairman shall vacate office if a vote of no-confidence is passed against him in the manner prescribed by two-third majority of total number of members of the market committee electing him.
+(2) A motion of no-confidence against a chairman or vice-chairman shall not be moved before the expiry of six months from the date of his assumption of the office and a second or subsequent motion shall not be moved except with an interval of six months between the first and second motion or any two subsequent motions.
+(3) A motion of no-confidence shall not be competent after the expiry of thirty days beyond every interval of six months provided under sub-section (2) and in such a situation it shall be deemed to have been moved and rejected for purposes of sub-section (2):___
+Provided that a member who is not a grower shall not be eligible for election as chairman.

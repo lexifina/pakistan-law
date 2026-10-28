@@ -1,0 +1,3 @@
+36. Emergency powers. ___ If at any time Government is satisfied that a situation has arisen in which the purposes of this Ordinance cannot be carried out in accordance with the provisions thereof, Government may by notification,___
+(a) declare that the functions of the market committee shall, to such extent as may be specified in the notification, be exercised by Government or such officer as it may direct; and
+(b) assume to itself all or any of the powers vested in or exercisable by any market committee; and such notification may contain such incidental and consequential provisions as may appear to Government to be necessary or desirable for giving effect to the objects of the notification.

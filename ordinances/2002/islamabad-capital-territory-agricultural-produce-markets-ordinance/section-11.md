@@ -1,0 +1,1 @@
+11. Period of office of members.___ Subject to the provisions of section 14, every member shall hold office for a period of two years, from the date of his making oath of office and if on the expiry of this period no person is elected to succeed him, such member shall, unless the Government otherwise directs, continue to hold office until his successor is elected.

@@ -1,0 +1,1 @@
+25. Trade allowance.___ No trade allowance, other than an allowance prescribed by rules or bye-laws made under this Ordinance shall be made or received in a notified market area by any person in any transaction in respect of agricultural produce and no civil court shall, in any suit or proceeding arising out of any such transaction recognize any trade allowance not so prescribed.
