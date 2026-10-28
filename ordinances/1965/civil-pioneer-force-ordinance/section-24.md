@@ -1,0 +1,1 @@
+24. Proof of appointment or enrolment. In any proceedings before a Court the fact that a person is a person subject to this Ordinance may be provided by the production of a certificate purporting to be signed by the Controller of the unit in which he is so serving.

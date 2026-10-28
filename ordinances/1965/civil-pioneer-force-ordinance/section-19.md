@@ -1,0 +1,8 @@
+19. Power of Controller to make deduction from pay.—The following deductions may, subject to the rules made in this behalf, be made by the Controller from the pay and allowances of any person subject to this Ordinance, namely:-
+(a) all pay and allowances for every day on which such person is absent either on desertion or without leave or because of imprisonment awarded by a Criminal Court or a Court constituted under this Ordinance ;
+(b) all pay and allowances for every day on which such person is in custody on a charge for an offence of which he is afterwards convicted by a Criminal Court or a Court constituted under this Ordinance, or on a charge of absence without leave for which he is afterwards awarded punishment under section 14, 15 or 16;
+(c) all pay and allowances for every day on which such person is in hospital on account of sickness certified by the medical officer attending him to have been caused by an offence punishable under this Ordinance committed by him, or, subject to any rules made in this behalf, on account of a venereal disease ;
+(d) all pay and allowances which may be forfeited under section 14 or 15 ;
+(e) any deduction from pay which may be ordered under clause (b) of section 20 ;
+(f) any sum required to defray any expenditure incurred as a consequence of misconduct by him or to make good any loss of, or of damage or destruction done by him to, any clothes, tools or equipment or to any building or property :
+Provided that the total deductions from the pay and allowances of any person under clauses (d) to (f) shall not in any one month exceed one-half of his pay and allowances for that month.

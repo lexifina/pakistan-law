@@ -1,0 +1,1 @@
+21. Custody during investigation. Any person charged with an offence punishable under this Ordinance may be taken into and kept in custody in the prescribed manner by the unit to which he belongs pending investigation of the offence.

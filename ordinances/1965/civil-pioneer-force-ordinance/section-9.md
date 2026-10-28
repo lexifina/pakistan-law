@@ -1,0 +1,1 @@
+9. Liability for service. Every person subject to this Ordinance shall be bound to serve in the unit of the Force to which he has been appointed or transferred or is for the time being attached until he is discharged from the Force.
