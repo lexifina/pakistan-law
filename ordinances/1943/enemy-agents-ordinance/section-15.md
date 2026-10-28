@@ -1,0 +1,1 @@
+15. Application of ordinary law. The provisions of the Code of Criminal Procedure, 1898 (V of 1898), and of any other law for the time being in force in so far as they may be applicable and in so far as they are not inconsistent with the provisions of this Ordinance, shall apply to all matters connected with, arising from, or consequent upon, a trial under this Ordinance.

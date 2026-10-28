@@ -1,0 +1,3 @@
+10. Hearing of proceedings in camera. If, as respects any proceedings before a Special Judge or before a Judge reviewing under section 9 the proceedings of a Special Judge, the Special Judge or reviewing Judge, as the case may be, is satisfied that it is expedient in the interests of the public safety or the defence of [^8][Pakistan] so to do, such Judge may give directions that throughout or during any part of the proceedings such persons or classes of persons as the Judge may determine shall be excluded.
+
+[^8]: Subs. by the Central Laws (Statute Reform) Ordinance, 1960 (Ordinance No. XXI of 1960), s. 3 and 2nd Sch. (with effect from the 14th October, 1955).

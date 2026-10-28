@@ -1,0 +1,6 @@
+11. Limitation on appearance of Pleaders.__ ( 1) In any proceedings before a Special Judge, and in proceedings before a Judge reviewing under section 9 the proceedings of a Special Judge when the reviewing Judge grants permission in this behalf, a person accused of an offence triable under this Ordinance may of right be defended by a pleader, but such pleader shall be a person whose name is entered in a list prepared in this behalf by the [^7][Federal Government] or who is otherwise approved by the [^7][Federal Government].
+(2) A Special Judge, or a Judge reviewing under section 9 the proceedings of a Special Judge, may appoint a pleader whose name is entered in the list referred to in sub‑section (1) or who is otherwise approved by the [^12][Federal Government] to defend at any stage of the proceedings a person accused of an offence triable under this Ordinance who has not himself engaged a pleader.
+(3) A Special Judge shall not be required to grant an adjournment for the purpose of securing the attendance of a pleader, if in the opinion of the Special Judge such adjournment would cause unreasonable delay in the disposal of the case.
+
+[^7]: Subs. by the Federal Adaptation of Laws Order, 1975 (P. O. No. 4 of 1975), Art.2 and Table.
+[^12]: Subs by the Federal Adaptation of Laws Order, 1975 (P. O. No. IV of 1975), Art. 2 and Table,

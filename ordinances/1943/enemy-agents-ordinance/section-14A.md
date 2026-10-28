@@ -1,0 +1,5 @@
+[^13][14A. Copies of proceedings.__(1) Notwithstanding the provisions of the Code of Criminal Procedure, 1898 (V of 1898), or of any other law for the time being in force, or of anything having the force of law by whatsoever authority made or done, no person other than the accused or his pleader shall be entitled to be furnished with a copy of any part of the records of, or of any document relating to, any proceedings under this Ordinance.
+(2) Any such copy furnished to the accused or his pleader shall be kept by the person to whom it was furnished in his personal custody, and it shall be an offence punishable under section 16 for that person to show it to any person other than his pleader or his client as the case may be, or to divulge its contents except in the course of the proceedings for the purpose of which is was obtained.
+(3) Any such copy shall be returned to the authority from which it was obtained within ten days of the conclusion of the proceedings for the purpose of which it was furnished, and any failure so to do shall be punishable with the punishment provided for an offence under section 16.]
+
+[^13]: Ins. by Ordinance No. XI of 1944, s. 4.

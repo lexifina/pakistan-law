@@ -1,0 +1,1 @@
+12. Special rule of evidence. Notwithstanding anything contained in the Evidence Act, 1872 (I of 1872), when the statement of any person has been recorded by any Magistrate, such statement may be admitted in evidence in any trial before a Special Judge, if such person is dead or cannot be found or is incapable of giving evidence.
