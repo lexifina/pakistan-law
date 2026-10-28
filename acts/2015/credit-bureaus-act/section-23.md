@@ -1,0 +1,2 @@
+23. Disclosure of source of credit information.―(1) Every credit bureau, upon request and payment of fee prescribed by regulations shall disclose to a debtor, clearly and accurately, the source of credit information contained in the credit information report of such debtor.
+(2) A credit bureau shall provide to a debtor, a copy of the summary of rights alongwith the report requested under sub-section (1) as set out in the Schedule.

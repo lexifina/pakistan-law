@@ -1,0 +1,2 @@
+37. Adjudication of punishment by imprisonment.―(1) Where imprisonment or imprisonment in addition to fine is provided for any contravention of, or default in complying with, any provisions of this Act and any rules or regulations made thereunder, it shall be adjudged by the Court.
+(2) The Court shall not take cognizance of any offence punishable under this Act except upon a complaint in writing made by an officer of the State Bank of Pakistan or by a person authorised by the Federal Government in this behalf.

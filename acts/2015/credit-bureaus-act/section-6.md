@@ -1,0 +1,1 @@
+6. Paid up capital.―The minimum paid up capital of a credit bureau shall be a minimum of PKR 250,000,000 or as may be prescribed by the State Bank of Pakistan from time to time but not less than 250,000,000/- should be fully subscribed and deposited as paid up capital of the company.

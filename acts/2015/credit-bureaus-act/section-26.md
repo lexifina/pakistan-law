@@ -1,0 +1,3 @@
+26. Unauthorized access to or disclosure of credit information.―(1) No one shall obtain access to, or distribute or disclose, credit information in the possession or control of a credit bureau or a credit information furnisher or a user unless such access or distribution or disclosure is authorized by this Act or any other law for the time being in force.
+(2) Any credit bureau which contravenes the provisions of this section shall be guilty of an offence punishable with a fine not exceeding five million rupees or by imprisonment not exceeding three months or with both:
+Provided that the punishment of imprisonment shall be awarded to the director, officer, employee, agent or representative, etc., of the credit bureau who is convicted of such contravention.

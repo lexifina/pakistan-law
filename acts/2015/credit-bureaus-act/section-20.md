@@ -1,0 +1,2 @@
+20. Contents of credit information report.―(1) A credit information report issued by a credit bureau in accordance with the provisions of this Act shall only contain credit information as prescribed and shall not contain any information or data relating to a debtor that is not relevant for the purposes of evaluating or assessing the credit worthiness of such debtor.
+(2) Personal information contained in a credit information report relating to an individual debtor shall be limited to such items as may be prescribed by regulations.

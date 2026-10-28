@@ -1,0 +1,3 @@
+## PART IX
+## OFFENCES, FINES AND PENALTIES
+34. Penalties.―Any person who contravenes or defaults in complying with any provision or requirement of this Act or of any rules or regulations made thereunder or obstructs lawful exercise of any power conferred by or under this Act, shall, if no specific provision is made under this Act, the rules and regulations made thereunder for punishment of such contravention, default or obstruction, in addition to any other liability as provided for herein, be punishable with fine which may extend to five million rupees and where a contravention, default or obstruction is a continuing one, with a further fine which may extend to fifty thousand rupees for every day during which the contravention or default or obstruction continues.
