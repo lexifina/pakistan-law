@@ -1,0 +1,2 @@
+5. Rules to be subject to previous publication.___(1) All rules made under this Act shall be subject to the condition of previous publication and the date to be specified under clause (3) of section 23 of the General Clauses Act, 1897 (X of 1897), shall not be less than one month from the date on which the draft of the proposed rules was published.
+(2) All such rules shall be published in the official Gazette and shall, unless some later date is appointed in such rules, come into force on the date of such publication.
