@@ -1,0 +1,1 @@
+32. Employee of the Authority to be public servants.___(1) For the purposes of this Act, the Chairperson, Members, Executive Directors and other Officers, staff, advisers, consultants and experts of the Authority shall be deemed to be public servants within the meaning of section 2l of the Pakistan Penal Code, 1860 (Act XLV of 1860).

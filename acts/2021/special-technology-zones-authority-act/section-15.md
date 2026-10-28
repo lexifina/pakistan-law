@@ -1,0 +1,1 @@
+15. Sanctions against zone enterprises and zone developers.___(1) A mechanism may be prescribed by the Authority in the regulations for sanctions, imposition and recovery of penalties and fines against zone enterprises and zone developers for violations of this Act or any rule or regulation prescribed by the Authority.

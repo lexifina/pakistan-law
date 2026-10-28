@@ -1,0 +1,2 @@
+27. Powers to make rules.___(1) The Authority may, with the approval of the Federal Government, make rules, on the matters as deemed necessary for implementation and to carry out the purposes of this Act.
+(2) Until the rules referred to in sub-section (1) are made, the President of the Board shall be competent to determine, the terms and conditions for appointment of the Chairperson, Members, Executive Directors, officers and employees of the Authority.

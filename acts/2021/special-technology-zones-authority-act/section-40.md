@@ -1,0 +1,1 @@
+40. Removal of difficulties.___(1) If any difficulty arises in giving effect to any of the provisions of the Act, the Federal Government may, within one year of the commencement of this Act, make such order, not in-consistent with the provisions of this Act, as may appear to it to be necessary or expedient for the purpose of removing such difficulty.

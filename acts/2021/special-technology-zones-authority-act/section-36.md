@@ -1,0 +1,1 @@
+36. Indemnity.___(1) No suit, prosecution or other legal proceedings shall lie against the Board, Authority, the Chairperson, Members, Executive Directors, officers, the employees and consultants of the Authority and its subsidiaries for anything done in good faith or intended to be done under this Act or any rule or regulation made thereunder.

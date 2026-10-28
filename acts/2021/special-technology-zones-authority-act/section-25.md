@@ -1,0 +1,1 @@
+25. Appeal to Supreme Court.___(1) Any person aggrieved by an order of the Special Technology Zones Appellate Tribunal may prefer leave to appeal to the Supreme Court of Pakistan within sixty days under the rules prescribed by the Supreme Court.
