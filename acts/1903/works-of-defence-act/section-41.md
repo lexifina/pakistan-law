@@ -1,0 +1,1 @@
+41. Notice in case of suits for anything done in pursuance of Act. No suit or other proceeding shall be commenced or prosecuted against any person for anything done in pursuance of this Act, without giving to such person a month’s previous notice in writing of the intended proceeding, and of the cause thereof, nor after tender of sufficient amends.

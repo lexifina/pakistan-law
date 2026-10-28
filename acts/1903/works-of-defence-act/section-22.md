@@ -1,0 +1,1 @@
+22. Proceedings to be in open Court. Every such proceeding shall take place in open Court, and all persons entitled to practice in any Civil Court in the Province shall be entitled to appear, plead and act, as the case may be, in such proceeding.

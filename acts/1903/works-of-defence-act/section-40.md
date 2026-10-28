@@ -1,0 +1,1 @@
+40. Exemption from stamp duty and fees. No award or agreement made under this Act shall be chargeable with a stamp duty, and no person claming under any such award or agreement shall be liable to pay any fee for a copy of the same.
