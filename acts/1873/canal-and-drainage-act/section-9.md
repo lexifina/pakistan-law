@@ -1,0 +1,1 @@
+9. Limitation of claims.—No claim for compensation for any such stoppage, diminution or damage shall be made after the expiration of one year from such stoppage, diminution or damage unless the Collector is satisfied that the claimant had sufficient cause for not making the claim within such period.

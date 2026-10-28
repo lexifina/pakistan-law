@@ -1,0 +1,1 @@
+62. Limitation of such claims. No such claim shall be entertained after the expiration of one year from the occurrence of the loss complained of, unless the Collector is satisfied that the claimant had sufficient cause for not making the claim within such period.

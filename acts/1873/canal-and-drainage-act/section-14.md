@@ -1,0 +1,11 @@
+## PART III
+## OF THE CONSTRUCTION AND MAINTENANCE OF WORKS
+14. Power to enter and survey, etc. Any Canal officer, or other person acting under the general or special order of a Canal-officer,
+may enter upon any lands adjacent to any canal, or through which any canal is proposed to be made, and undertake surveys or levels thereon ;
+and dig and bore into the sub-soil ;
+and make and set up suitable land-marks, level-marks, and water-gauges ;
+and do all other acts necessary for the proper prosecution of any enquiry relating to any existing or projected canal under the charge of the said Canal-officer ;
+Power to clear land. and, where otherwise such enquiry cannot be completed, such officer or other person may cut down and clear away any part of, any standing crop, fence or jungle ;
+Power to inspect and regulate water-supply. and may also enter upon any land, building or water-course on account of which any water-rate is chargeable, for the purpose of inspecting or regulating the use of the water supplied, or of measuring the lands irrigated thereby or chargeable with a water-rate, and of doing all things necessary for the proper regulation and management of such canal :
+Notice of intended entry into houses.—Provided that, if such Canal-officer or person proposes to enter into any building or enclosed court or garden attached to a dwelling house not supplied with water flowing from any canal he shall previously give the occupier of such building, court or garden at least seven days’ notice in writing of his intention to do so.
+Compensation for damage caused by entry.—In every case of entry under this section, the Canal-officer shall, at the time of such entry, tender compensation for any damage which may be occasioned by any proceeding under this section ; and, in case of dispute as to the sufficiency of the amount so tendered, he shall forthwith refer the same for decision by the Collector, and such decision shall be final.

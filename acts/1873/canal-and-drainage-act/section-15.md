@@ -1,0 +1,5 @@
+15. Power to enter for repairs and to prevent accidents.—In case of any accident happening or being apprehended to a canal any Divisional Canal-officer or any person acting under his general or special orders in this behalf may enter upon any lands adjacent to such canal, and may execute all works which may be necessary for the purpose of repairing or preventing such accident.
+Compensation for damage of land. In every such case such Canal-officer or person shall tender compensation to the proprietors or occupiers of the said lands for all damage done to the same. If such tender is not accepted, the Canal-officer shall refer the matter to the Collector, who shall proceed to award compensation for the damage as though the[^22][Provincial Government] had directed the occupation of the lands under section [^23][35 of the Land Acquisition Act, 1894 (I of 1894)].
+
+[^22]: Subs. by A. O., 1937, for “L.G.”. See now the Land Acquisition Act, 1894 (1 of 1894) s. 35.
+[^23]: Subs. by Ord XXVII of 1981, s.5 and Sch IV (only to the extent of Islamabad Capital Territory).

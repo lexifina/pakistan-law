@@ -1,0 +1,1 @@
+25. When applicant may be placed in occupation. If no such objection is made, or (where such objection is made) if the Collector over-rules it, he shall give notice to the Divisional Canal-officer to that effect, and shall proceed forthwith to place the said applicant in occupation of the land marked out or of the water-course to be transferred, as the case may be.
