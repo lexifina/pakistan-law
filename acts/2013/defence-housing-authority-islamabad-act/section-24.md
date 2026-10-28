@@ -1,0 +1,1 @@
+24. Validation. —All actions done or taken by the Defence Housing Authority Islamabad before the commencement of this Act shall be deemed to be validly done or have been taken to the extent they are consistent with this Act.

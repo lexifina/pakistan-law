@@ -1,0 +1,1 @@
+13. Delegation of powers. —Subject to this Act and the specified conditions, the Governing Body, the Executive Board and the Administrator may, by order in writing, delegate to any person to exercise any of their powers and perform such functions and duties as may be specified in the order.

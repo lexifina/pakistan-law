@@ -1,0 +1,2 @@
+18. Conversion of property to a different use. — (1) If a person converts without previous written approval of the Authority, any property in a scheme in the specified area to a use or purpose other than the one provided under the scheme, such person shall be liable to fine which may extend to two thousand rupees per day from the date of the conversion of the property till the default continues.
+(2) The Authority shall not impose the fine under sub-section (1) unless the person concerned is afforded an opportunity of being heard.

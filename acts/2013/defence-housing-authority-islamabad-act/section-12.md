@@ -1,0 +1,1 @@
+12. Annual report and accounts. —As soon as may be after conclusion of a financial year but before the 31st day of December, the Executive Board shall in respect of the said financial year, submit to the Governing Body a general report on its affairs including accounts, balance sheet and audit.
