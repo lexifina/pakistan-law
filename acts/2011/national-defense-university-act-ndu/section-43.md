@@ -1,0 +1,1 @@
+43. indemnity. —No suit or legal proceedings shall lie against the Government, the University or any authority, officer or employee of the Government or the University or any person in respect of anything which is in good faith done under this Act.

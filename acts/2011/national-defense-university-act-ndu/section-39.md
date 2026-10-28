@@ -1,0 +1,1 @@
+39. First Statutes and Regulations. — Notwithstanding anything to the contrary contained in theAct, the President of Islamic Republic of Pakistan shall promulgate the first Statutes and Regulations which shall be deemed to be Statutes and Regulations framed under sections 25 and 26 and shall continue to remain in force unless amended.
