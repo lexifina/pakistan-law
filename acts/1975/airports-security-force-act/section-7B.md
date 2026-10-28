@@ -1,0 +1,1 @@
+7B. Consequence of sentence of imprisonment. An officer or member of the Force who is sentenced to imprisonment for a term which is not less than ninety days shall be deemed to have been dismissed from the Force.

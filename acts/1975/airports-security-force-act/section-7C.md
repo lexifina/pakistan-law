@@ -1,0 +1,1 @@
+7C. Suspension. Any officer shall be competent to suspend in the prescribed manner a member of the Force working under him for any mis-conduct, remissness or negligence in the discharge of his duties.
