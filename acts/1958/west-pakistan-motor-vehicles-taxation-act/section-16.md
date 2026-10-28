@@ -1,0 +1,2 @@
+16. Punishment. (1) In making any rule under the preceding section, the Government may direct that any person contravening the rule shall be punished with fine which may extend to twenty rupees and in the event of any subsequent conviction for the same offence, with a fine which may extend to one hundred rupees.
+(2) No court inferior to that of a Magistrate of the Second Class shall try any offence punishable under this Act.
