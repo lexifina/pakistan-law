@@ -1,0 +1,2 @@
+5B. Amendment of a Schedule. ___ (l) If, at any time, the Federal Government has agreed to a revision of any Carriage by Air Conventions, the Federal Government may, by notification in the official Gazette, make such amendments in a Schedule as it may consider appropriate to give effect to the revision of the Convention.
+(2) In sub-section (1), “revision” means an omission from, addition to or alteration of the Convention and includes replacement of the Convention or part of it by another convention.]

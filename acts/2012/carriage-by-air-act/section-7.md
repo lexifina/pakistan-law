@@ -1,0 +1,1 @@
+7. Repeal. ___The Carriage by Air Act, 1934 (XX of 1934), the Carriage by Air (International Convention) Act, 1966 (X of 1966), and the Carriage by Air (Supplementary Convention) Act, 1968 (V of 1968) are hereby repealed.
