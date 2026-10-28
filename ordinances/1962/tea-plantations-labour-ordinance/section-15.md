@@ -1,0 +1,1 @@
+15. House building facilities.—It shall be the duty of every employer to provide house-building facilities to every worker and his family residing in the tea plantation according to such scale as may be prescribed.

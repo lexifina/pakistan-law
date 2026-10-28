@@ -1,0 +1,1 @@
+39. Cognizance of offences.___ No court shall take cognizance of any offence punishable under this Ordinance except on complaint made by the chief inspector or any person authorized by him in this behalf and no court inferior to that of a Magistrate of the first class shall try any offence punishable under this Ordinance.

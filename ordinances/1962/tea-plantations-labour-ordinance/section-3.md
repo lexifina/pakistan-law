@@ -1,0 +1,4 @@
+## CHAPTER II
+3. Chief Inspector and Inspectors.___(1) The Provincial Government may, by notification in the official Gazette, appoint for the Province a duly qualified persons to be the chief inspector of tea plantations and so many duly qualified persons to be inspectors of tea plantations subordinate to the chief inspector as it thinks fit.
+(2) Subject to such rules as may be made in this behalf by the Provincial Government, the chief inspector may declare the local area or areas within which, are the tea plantations with respect to which, inspectors shall exercise their powers under this Ordinance, and may himself exercise the powers of an inspector within such limits as may be assigned to him by the Provincial Government.
+(3) The chief inspector and all inspectors shall be deemed to be public servants within the meaning of section 21 of the Pakistan Penal Code (Act XIV of 1860).
