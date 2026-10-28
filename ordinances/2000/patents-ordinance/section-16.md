@@ -1,0 +1,12 @@
+## CHAPTER V
+## EXAMINATION OF APPLICATIONS
+16. Examination of application.—(1) The Controller shall refer to an examiner every application in respect of which a complete specification has been filed, for making a report to the Controller after detail scrutiny of the application, specification, claims and drawing, if any, to the effect whether the invention is new and involves an inventive step, and to also determine whether other requirements of this Ordinance and rules have been complied with.
+(2) The examiner shall make the report to the Controller as soon as is reasonably possible. [^29][* * *]
+(3) If the examiner reports that any of the requirements of this Ordinance and rules are not complied with, the Controller shall give the applicant an opportunity, or more than one opportunity, to comply with such requirements as may be mentioned in the said report and to amend the application, if necessary, within such time as may be prescribed, failing which the Controller may refuse to proceed with the application.
+(4) If the Controller considers, at any time, before the acceptance of the application, that the invention claimed therein has been wholly or in part claimed in a specification published on or after the date which the patent applied for would bear, if granted appertaining to an application for grant of a patent which, if granted, will be prior date to the patent applied for, he may require that the applicant’s specification be amended by the insertion of a reference to such other specification by way of notice to the public.
+(5) The investigation required under this section shall not be held in any way to guarantee the validity of any patent, and no liability shall be incurred by the Federal Government or any officer by reason of, or in connection with, any such investigation or any proceeding consequent thereon.
+[^30]* * * * * * *
+(6) Notwithstanding anything in the preceding sub-sections, all applications claiming protection for chemical products intended for use in medicine or agriculture filed after the first day of January, 1995, in accordance with Article 70 (8) and 70 (9) of the World Trade Organization Agreement on Trade Related Aspects of Intellectual Property Rights (TRIPs), shall be dealt with in accordance with sub-section (3) of section 1.
+
+[^29]: Omitted and shall be deemed always to have been so omitted by Act IX of 2010, s.2.
+[^30]: Omitted by Act IX of 2010, s.2.

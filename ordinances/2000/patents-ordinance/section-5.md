@@ -1,0 +1,1 @@
+5. Officers and employees incapable of an interest in a patent. Any officer or a person employed in the Patent Office shall be incapable during the period of his appointment and for one year thereafter of applying for a patent or of acquiring, directly or indirectly, except by inheritance or bequest, any patent issued or to be issued by the Patent Office.

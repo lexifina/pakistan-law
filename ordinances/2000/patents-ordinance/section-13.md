@@ -1,0 +1,15 @@
+13. Application for patent.—(1) Every application for the patent shall be made in the prescribed form and shall be filed at the Patent Office in the prescribed manner and shall contain a declaration to the effect that the applicant is in possession of an invention of which he, or in the case of the joint application, at least one of the applicants, claims to be the true and the first inventor of or the legal representative or assignee of such inventor or, as the case may be, inventors, provided that where the inventor is not the applicant, he shall be entitled to be mentioned as such in the application and if he is not so mentioned the Controller may, upon an application made in the prescribed manner and after hearing any interested person, insert the name of such person as an inventor or co-inventor, as the case may be, if he is satisfied that he be named as an inventor of the invention for which the applicant desires, to obtain a patent.
+(2) Where applications for protection have been made in one or more Convention countries in respect of two or more invention which are cognate or of which one is modification of another, a single Convention application may, subject to the provisions of section 15, be made in respect of those inventions at any time within twelve months from the date of the earliest of the said applications for protection.
+(3) Each application shall relate to one invention only [^22]* * *.
+(4) The applicant may, before the acceptance of the application, divide it into two or more applications, hereinafter referred to as divisional applications, provided that each divisional application shall not go beyond the disclosure in the first application.
+(5) Each divisional application shall be entitled to the filing date and, where applicable, the priority date of the first application.
+(6) The fact that a patent has been granted on an application that did not comply with the requirement of unity of invention shall not be a ground for the invalidation of the patent.
+(7) The applicant may at anytime withdraw the application by making a request to the Controller [^23][:]
+[^23][Provided that where the application has been withdrawn before the advertisement of its acceptance in the official Gazette or publication in the patents journal, the application and the specification, claims and drawings, if any, shall not be open to public inspection.]
+[^24][(8) An application for an invention relating to genetically modified organisms shall require clearance from the Federal Government and shall comply with such requirement as may be prescribed.
+(9) An application for availing exclusive marketing rights for a patentable invention relating to pharmaceutical or agricultural chemical product shall be filed in the mailbox provided for this purpose by the Controller who may require the form and manner for submitting such application as may be prescribed] [^23][.]
+[^23][* * *]
+
+[^22]: The certain words omitted by the Patents (Amdt.) Ordinance, 2002 (95 of 2002), s. 8.
+[^23]: Subs, Added and Omitted by Act XXIV of 2016, s.3.
+[^24]: New sub-sections (8) and (9) of s. 13 added by s. 8 of Ord.no XCV of 2002.

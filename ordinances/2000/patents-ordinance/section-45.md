@@ -1,0 +1,12 @@
+_____________
+## CHAPTER XII
+## RESTORATION OF LAPSED PATENTS
+45. Restoration of lapsed patents.—(1) Where a patent has ceased to have effect by reason of a failure to pay any renewal fee within the prescribed period, an application for the restoration of the patent may be made to the Controller under this section within eighteen months from the date on which the patent ceased to have effect.
+(2) An application under this section may be made by the person she was the proprietor of the patent or by any other person who would have been entitled to the patent if it had not ceased to have effect, and where the patent was held by two or more persons jointly, the application may, with the leave of the Controller, be made by one or more of them without joining the others.
+(3) If the Controller is satisfied that__
+(a) the proprietor of the patent took reasonable care to see that any renewal fee was paid within the prescribed period or that the fee and any prescribed additional fee were paid within six months immediately following the end of that period; and _________________________________________________________________________________
+(b) those fees were not so paid because of circumstances beyond his control,
+the Controller shall by order restore the patent on payment of any unpaid renewal fee and any prescribed additional fee.
+(4) An order under this section may be made subject to such conditions as the Controller thinks fit and if the proprietor of the patent does not comply with any condition of such an order, the Controller may revoke the order and give such directions consequential on the revocation as he thinks fit.
+(5) Where an order is made under this section and, between the end of the period of six months beginning with the date when the patent concerned ceased to have effect and the date of the application under this section, any person has begun in good faith to use the patented invention has made effective and serious preparations to make use of the invention, he shall, after the order comes into force, have the right to make use of the invention and the said use shall not amount to an infringement of the patent concerned.
+(6) Where a patented product is disposed of by any person to another in exercise of a right conferred by sub-section (5), that other and any other person claiming through him shall be entitled to deal with the product in the same way as if it had been disposed of by a sole registered proprietor.
