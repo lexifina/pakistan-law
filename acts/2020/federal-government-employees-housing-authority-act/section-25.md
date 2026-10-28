@@ -1,0 +1,1 @@
+25. Appeal against the order of Director General.— Any person aggrieved by an order passed by Director General in respect to his rights in relation to any plot, built up or otherwise, may file an appeal before the Executive Board within ninety days of such order. Such appeal shall be decided by the Executive Board excluding the Director General, who passed such order.

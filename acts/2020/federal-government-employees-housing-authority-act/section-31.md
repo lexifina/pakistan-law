@@ -1,0 +1,1 @@
+31. Removal of difficulty.— If any difficulty arises in giving effect to any of the provisions of this Act, the Federal Government may give such directions, consistent with the provisions of this Act, as it may consider necessaryfor removal of such difficulty.

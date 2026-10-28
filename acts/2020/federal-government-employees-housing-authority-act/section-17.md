@@ -1,0 +1,1 @@
+17. Vesting of land in the Authority.— Immediately on making of the award under section 15, the land shall vest in the Authority, free from all encumbrances and thereupon the Deputy Commissioner may, after giving reasonable notice to the occupier, enter upon and take possession of such land for the purposes and periods specified in the notice under section 14.
