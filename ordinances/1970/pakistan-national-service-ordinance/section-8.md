@@ -1,0 +1,6 @@
+8. Service in Defence Services.___(1) A person in the National Service Reserve shall, when called up for service in a Defence Service under clause (b) of section 6 by a notice in writing by the officer or authority prescribed in this behalf, report in person to such authority and at such time and place as may be specified in the notice.
+(2) A person who has reported in pursuance of a notice under sub-section (1) shall be enrolled in the Pakistan Army, the Pakistan Navy or, as the case may be, the Pakistan Air Force unless he is, after medical examination, declared unfit for such enrolment.
+(3) A person enrolled in a Defence Service under sub-section (2) shall, unless he is earlier discharged or released, serve in that Service until he has attained the age of thirty-five years:
+Provided that nothing in this sub-section shall be deemed___
+(a) to prevent the retention in the Defence Service with his consent of any such person after he has attained the age of thirty-five years; or
+(b) to terminate the liability under section 6 of any such person who is discharged or released before he has attained the age of thirty-five years to be called up for refresher training every year or for service in a Defence Service.

@@ -1,0 +1,3 @@
+[^6][11. Extension of age limit. Where any maximum qualifying age has been fixed for regulating the eligibility of persons for admission to a competitive examination held for appointment to any service or post or any academic or professional institution or for appointment to any service or post, a person who has rendered national service shall, for the purpose of such eligibility be entitled, notwithstanding anything contained in any other law for the time being in force or in any rule, order or other instrument, to the period actually spent by him in national service being deducted from his age.]
+
+[^6]: Subs. by Ord. 37 of 1971, s. 3, for Section 11.
