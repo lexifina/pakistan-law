@@ -1,0 +1,1 @@
+24. Drawing spirits by unprotected artificial light. If any person, by an unprotected artificial light, draws off spirits on board any vessel, within any port subject to this Act, he and the master of the vessel shall for every such offence be punishable with fine which may extend to two hundred rupees each.

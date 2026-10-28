@@ -1,0 +1,2 @@
+61. Conviction to be quashed on merits only.— (1) No conviction, order or judgment of any Magistrate under this Act shall be quashed for error of form or procedure, but only on the merits, and it shall not be necessary to state, on the face of the conviction, order or judgment, the evidence on which it proceeds.
+(2) If no jurisdiction appears on the face of the conviction, order or judgment, but the depositions taken supply that defect, the conviction, order or judgment shall be aided by what so appears in the depositions.

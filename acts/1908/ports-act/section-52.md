@@ -1,0 +1,2 @@
+52. Pilot to require master to hoist number.— (1) Every pilot in charge of a vessel shall require the number of the vessel to be duly signalled as provided by the last foregoing section.
+(2) When, on such requisition from the pilot, the master refuses to hoist the number of a vessel, or to adopt such other means of making her name known as may be practicable and usual, the pilot may, on arrival at the first place of safe anchorage, anchor the vessel and refuse to proceed on his course until the requisition has been complied with.

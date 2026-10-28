@@ -1,0 +1,1 @@
+29. Unauthorized person not to search for lost stories.— (1) No person, without the permission of the conservator, shall, in any port subject to this Act, creep or sweep for anchors, cables or other stores lost or supposed to lost therein. (2) If any person offends against the provisions of sub-section (1), he shall be punishable with fine which may extend to one hundred rupees.

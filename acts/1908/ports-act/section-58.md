@@ -1,0 +1,1 @@
+58. Cost of distress. Whenever any fine, expenses or damages is or are levied under this Act by distress and sale, the cost of the distress and sale may be levied in addition to such fine, expenses or damages, and in the same manner.

@@ -1,0 +1,6 @@
+11. Recovery of expenses of removal. If the owner of any such timber, raft or other thing, or the person who has caused any such obstruction, impediment or public nuisance as is mentioned in the last foregoing section, neglects to pay the reasonable expenses incurred in the removal thereof, within one week after demand, or within fourteen days after such removal has been notified in the [^38][official Gazette] or in such other manner as the [^39][Government] by general or special order directs, the conservator may cause such timber, raft or other thing, or the materials of any public nuisance so removed, or so much thereof as may be necessary, to be sold by public auction; and may retain all the expenses of such removal and sale out of the proceeds of the sale, and shall pay the surplus of such proceeds, or deliver so much of the thing or materials as may remain unsold, to the person entitled to receive the same;
+and, if no such person appears, shall cause the same to be kept and deposited in such manner as the [^39][Government] directs;
+and may, if necessary, from time to time, realize the expenses of keeping the same, together with the expenses of sale, by a further sale of so much of the thing or materials as may remain unsold.
+
+[^38]: Subs. by A.O., 1937, for “local official Gazette”.
+[^39]: Subs. ibid., for “L.G.”

@@ -1,0 +1,1 @@
+67. Service of written notice of directions. Any written notice of a direction given under this Act, left for the master of any vessel with any person employed on board thereof, or affixed on a conspicuous place on board of the vessel, shall, for the purposes of this Act, be deemed to have been given to the master thereof.

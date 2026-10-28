@@ -1,0 +1,10 @@
+17. Appointment and powers of health officer.— (1) The [^42][Government] may appoint at any port subject to this Act an officer to be called the health-officer.
+(2) A health-officer shall, subject to the control of the [^42][Government], have the following powers, within the limits of the port for which he is appointed, namely : —
+(a) with respect to any vessel, the powers conferred on a shipping master by the [^43][Merchant Shipping Act, 1923 (XXI of 1923), section 91],
+(b) power to enter on board any vessel and medically examine all or any of the seamen or apprentices on board the vessel;
+(c) power to require and enforce the production of the logbook and any other books, papers or documents which he thinks necessary for the purpose of enquiring into the health and medical condition of the persons on board the vessel;
+(d) power to call before him and question for any such purpose all or any of those persons and to require true answers to any questions which he thinks fit to ask;
+(e) power to require any person so questioned to make and subscribe a declaration of the truth of the statements made by him.
+
+[^42]: Subs. by A.O., 1937, for “L. G”.
+[^43]: Subs. by the Federal Laws (Revision and Declaration) Ordinance, 1981 (27 of 1981), s. and Second Sch., for “Indian Merchant Shipping Act, 1859, section 71” which had been amended by Act 21 of 1923, s. 91.

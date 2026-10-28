@@ -1,0 +1,10 @@
+[^124][68A. Authorities exercising jurisdiction in port to co-operate in manoeuvres for defence
+of port. Every authority exercising any powers or jurisdiction in, or relating to, any port to which this Act for the time being applies shall, if so required by an officer authorised by general or special order of the [^125][Federal Government] in this behalf, co-operate in such manner as such officer may direct, in carrying out any manoeuvres in connection with any scheme or preparations for the defence of the said port in time of war, and for this purpose shall, if so required, temporarily place at the disposal of such officer the services of any of its staff and the use of any of its vessels, property, equipment or other material:
+Provided, firstly, that if any vessels are placed at the disposal of such officer in accordance with this section, the [^126][Federal Government] shall, in respect of the period during which they are so at his disposal, bear the running expenses of such vessels, and be responsible for any damage thereto.
+Explanation. __The expression “running expenses” in this proviso includes all outlay incurred in connection with the use of the vessels other than any charges for their hire, or for the wages of the officers and crews of such vessels:
+Provided, secondly, that any officer making a requisition under this section shall exercise his powers in such a way as to cause as little disturbance to the ordinary business of the port as is compatible with the exigencies of the efficient carrying out of the manoeuvres:
+Provided, thirdly, that no suit or other legal proceeding shall lie against any authority for any default occurring by reason only of compliance with a requisition under this section.
+
+[^124]: Ss. 68A and 68B ins. by the Indian Ports (Amdt.) Act,1916 (6 of 1916), s.11.
+[^125]: Subs. by F. A. O., 1975, Art. 2 and Table for “Central Government” which has been subs. by A. O., 1937, for “G. G. in C”.
+[^126]: Subs. ibid. for “Central Government” which has been subs. by A.O., 1937, for “G. of I”.
