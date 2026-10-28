@@ -1,0 +1,1 @@
+19. Refund of excess payments. Where light‑dues have been paid in respect of any ship in excess of the amount payable under this Act, no claim to refund of such excess payment shall be admissible, unless it is made within six months from the date of each payment.
