@@ -1,0 +1,6 @@
+113. Power of arrest without warrant.– (1) A police officer in uniform may arrest without warrant any person who commits in his view an offence punishable under section 99 or section 100 or section 110:
+Provided that any person so arrested in connection with an offence punishable under section 100 shall be subjected to a medical examination by a registered medical practitioner within two hours of his arrest, and if not to subjected within the said period of two hours shall be released from custody.
+(2) A police officer in uniform may arrest without warrant–
+(a) any person who being required under the provisions of this Ordinance to give his name and address refuses to do so, or gives a name and address which the police officer has reason to believe to be false, or
+(b) any person concerned in an offence under this Ordinance or reasonably suspected to have been so concerned, if the police officer has reason to believe that he will abscond or otherwise avoid the service of a summons.
+(3) A police officer arresting without warrant the driver of a motor vehicle shall, if the circumstances so required, take or cause to be taken any steps he may consider proper for the temporary disposal and safe custody of the vehicle.

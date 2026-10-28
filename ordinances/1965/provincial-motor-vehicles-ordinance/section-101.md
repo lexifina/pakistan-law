@@ -1,0 +1,5 @@
+101. Driving when mentally or physically unfit to drive.– Whoever drives a motor vehicle in any public place when he is to his knowledge suffering from any disease or disability calculated to cause his driving of the vehicle to be a source of danger to the public, shall be punished with fine which may extend to two hundred rupees, and if having been previously convicted of such an offence, shall again be guilty of an offence punishable under this section, shall be subject for every such subsequent offence to fine which may extend to five hundred rupees.
+[^72][101-A. Use of mobile telephone.__ (1) A person shall not drive a motor cycle or motor vehicle if, he is using a hand-held mobile telephone or a device which performs an interactive communication function of transmitting and receiving data.
+(2) A person shall not be guilty of contravention of sub-section (1) if, at the time of the alleged contravention, he is using the mobile telephone or the device to call the police, fire, ambulance or other emergency service.]
+
+[^72]: Ins. by Act No. XXXII of 2026, s.2. (Applicable only to the extent of ICT.)

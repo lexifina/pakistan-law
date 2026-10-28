@@ -1,0 +1,4 @@
+63. Transfer of permit on death of holder.– (1) Where the holder of a permit dies, the person succeeding to the possession of the vehicle or vehicles covered by the permit may, for a period of three months, use the permit as if it had been granted to himself:
+Provided that such person has, within thirty days of the death of the holder, informed the transport authority which granted the permit of the death of the holder and of his intention to use the permit:
+Provided further that no permit shall be so used after the date on which it would have ceased to be effective without renewal in the hands of the deceased holder.
+(2) The transport authority may, on application made to it within three months of the death of the holder of a permit, transfer the permit to the person succeeding to the possession of the vehicles covered by the permit.

@@ -1,0 +1,4 @@
+120. Appointment of motor vehicles officers.– (1) Government may, for the purpose of carrying into effect the provisions of this Ordinance establish a Motor Vehicles Department and a
+Transport Department and appoint as officers thereof such persons as it thinks fit.
+(2) Every such officer shall be deemed to be a public servant within the meaning of section 21 of the Pakistan Penal Code (XLV of 1860).
+(3) Government may make rules to regulate the discharge by officers of the Motor Vehicles Department and the Transport Department of their functions, and in particular and without prejudice to the generality of the foregoing power, to prescribe the uniform to be worn by them, the authorities to which they shall be subordinate, the duties to be performed by them, the powers to be exercised by them, and the conditions governing the exercise of such powers.

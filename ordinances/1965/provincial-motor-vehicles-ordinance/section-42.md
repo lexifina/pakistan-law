@@ -1,0 +1,2 @@
+42. Application of Chapter III to trailers.– (1) The registration mark assigned to a trailer shall be displayed in the prescribed manner on the side of the vehicle.
+(2) No person shall drive a motor vehicle to which a trailer is or trailers are attached unless the registration mark of the motor vehicle so driven is displayed in the prescribed manner on the trailer or on the last trailer in the train, as the case may be.
