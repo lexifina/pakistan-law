@@ -1,0 +1,3 @@
+3. Supremacy of Shari’ah.— (1) The Shari’ah that is to say, the Injunctions of Islam as laid down in the Holy Quran and Sunnah, shall be the supreme law of Pakistan.
+(2) Notwithstanding anything contained in this Act, the Judgement of any court or any other law for the time being in force, the present political system, including the Majlis-e-Shoora (Parliament) and Provincial Assemblies and the existing system of Government, shall not be challenged in any court, including Supreme Court, the Federal Shariat Court or any authority or tribunal:
+Provided that nothing contained herein shall affect the rights of the non-Muslims guaranteed by or under the Constitution.

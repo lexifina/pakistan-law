@@ -1,0 +1,1 @@
+14. Nizam-i-adl.—The State shall take adequate measures for the Islamisation of the Judicial system by eliminating laws delays, multiplicity of proceedings in different courts, litigation expenses and ensuring the quest for truth by the court.

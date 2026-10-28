@@ -1,0 +1,1 @@
+13. Eradication of social evils.—The State shall take effective measures for enactment of law eradicating social evils and promoting Islamic virtues on the principles of amr bil Ma’roof wa nahi’anil Munkar as laid down in the Holy Quran.
