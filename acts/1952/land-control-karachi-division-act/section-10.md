@@ -1,0 +1,1 @@
+10. Removal of building. ___If any person fails to comply with any direction for the removal of any building given to him under section 7 or section 8 within the period fixed therefor, the Authorised Officer may cause the unauthorised building or the building under construction, as the case may be, to be removed at the owner’s expense.

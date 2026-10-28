@@ -1,0 +1,1 @@
+22. Cost of removal to be recoverable as an arrear of land revenue. ___Where under this Act anything is to be done at the expense of any person the expense of doing the same shall be recoverable from him as an arrear of land revenue.

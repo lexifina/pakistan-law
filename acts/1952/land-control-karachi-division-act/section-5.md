@@ -1,0 +1,1 @@
+5. Restriction on building etc., in a controlled area.___ Notwithstanding anything to the contrary in any other law for the time being in force, or in agreement, no person shall erect or re-erect any building, or make or extend any excavation, in a controlled area except with the previous permission of the Authorised Officer in writing.
