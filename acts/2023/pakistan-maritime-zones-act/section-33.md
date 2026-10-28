@@ -1,0 +1,1 @@
+33. Delegation.—The federal Government may, by notification in the official Gazette and subject to such conditions as may be specified in the notification, direct that all or any of its powers under this Act or rules made thereunder shall also be exercisable by an authority or officer subordinate to it or by a provincial government or any authority or officer subordinate to it.

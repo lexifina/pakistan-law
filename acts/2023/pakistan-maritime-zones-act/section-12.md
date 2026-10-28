@@ -1,0 +1,1 @@
+12. Publication of charts.—The Federal Government may cause to be published in official charts the baseline referred to in sub-section (3) of section 3, the boundaries of the territorial sea, the contiguous zone, the exclusive economic zone, the continental shelf and other maritime boundaries as referred to in section 11.

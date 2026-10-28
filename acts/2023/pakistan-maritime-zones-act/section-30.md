@@ -1,0 +1,1 @@
+30. Armed robbery against ships.—Whoever, by any unlawful act of violence or detention or any act of depredation or threat thereof, other than act of piracy, directed against the ship or against persons or property onboard a ship in the territorial sea, commits or attempts to commit the armed robbery against ships shall be liable to punishment under section 27.
