@@ -1,0 +1,1 @@
+13. Power to issue directions.__ The 1[Federal Government] may, from time to time, issue directions to the Board to take such measures as it considers necessary for the efficient management of the factories and the Board shall comply with such directions.
