@@ -1,0 +1,3 @@
+102. Effect of death on certain causes of action. Notwithstanding anything contained in section 306 of the Succession Act, 1925 (XXXIX of 1925), the death of a person in whose favour a certificate of insurance [^28]* * * had been issued, if it occurs after the happening of an event which has given rise to a claim under the provisions of this Chapter, shall not be a bar to the survival of any cause of action arising out of the said event against his estate or against the insurer.
+
+[^28]: Omitted by the Motor Vehicles (Amdt.) Act, 1947 (XXVII of 1947), s.6 (with effect from the 1st March, 1949).

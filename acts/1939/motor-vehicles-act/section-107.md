@@ -1,0 +1,3 @@
+107. Production of certificates of Insurance on application for authority to use vehicle. A Provincial Government may make rules requiring the owner of any motor vehicle when applying whether by payment of a tax or otherwise for authority to use the vehicle in a public place to produce such evidence as may be prescribed by those rules to the effect that either—
+(a) on the date when the authority to use the vehicle comes into operation there will be in force the necessary policy of insurance in relation to the use of the vehicle by the applicant or by other persons on his order or with his permission, or
+(b) the vehicle is a vehicle to which section 94 does not apply.

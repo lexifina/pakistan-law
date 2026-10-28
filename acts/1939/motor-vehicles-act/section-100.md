@@ -1,0 +1,2 @@
+100. Saving in respect of sections 97, 98 and 99.— (1) For the purposes of sections 97, 98 and 99 a reference to “liabilities to third parties” in relation to a person insured under any policy of insurance shall not include a reference to any liability of that person in the capacity of insurer under some other policy of insurance.
+(2) The provisions of sections 97, 98 and 99 shall not apply where a company is wound up voluntarily merely for the purposes of reconstruction or of an amalgamation with another company.
