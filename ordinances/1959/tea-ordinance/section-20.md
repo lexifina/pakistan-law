@@ -1,0 +1,6 @@
+## CHAPTER V
+## MISCELLANEOUS
+20. Power to call for information etc.___(1) The [^42][Federal Government] may, for the purposes of this Ordinance at any time, by notified order, direct such person or class of persons as may be specified in the order to maintain such accounts and furnish such returns or other information relating to their business of cultivation, production, manufacture, sale or purchase of tea to the [^42][Federal Government] or to such officer or authority subordinate to the [^42][Federal Government] or the Provincial Government within such period, and giving such particulars as may be specified.
+(2) Any person authorised in this behalf by the [^42][Federal Government] or by the Board or any member authorised by the Chairman of the Board in writing or any officer of the Board may, at all reasonable times, enter any tea estate or any place or premises where tea or tea waste is manufactured, stored, kept or exposed for sale and may require the production for his inspection of any book, register, record or other paper kept therein and ask for any information relating to the cultivation, production, manufacture, storage or keeping for sale of tea or tea waste.
+
+[^42]: Subs. by F.A.O., 1975, Art. 2 and Table, for “Central Government”.

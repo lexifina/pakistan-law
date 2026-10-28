@@ -1,0 +1,1 @@
+26. Cognizance of offences.—No court shall take cognizance of any offence punishable under this Ordinance except on a report in writing of the facts constituting such offence made by the Board or a person authorized by the Board.

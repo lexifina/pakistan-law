@@ -1,0 +1,5 @@
+4. Functions of the Board.—The functions of the Board shall be to [^18][undertake such business, or to acquire take over or manage the business of such concern, as the [^15][Federal Government] may direct ; to] regulate, control and promote the [^19][cultivation and] export of tea ; to organise and assist in special research connected with tea cultivation and tea industry]; [^19][to regulate and control the sale of tea;] to collect statistics from growers, manufactures or dealers of tea and other persons on any matter relating to tea and the tea industry; to fix grading standards of tea and provide for training in tea tasting ; and generally, to take such measures as may appear advisable in the interests of the tea industry of Pakistan ; and to perform such other functions as the [^15][Federal Government] may, from time to time, direct.
+
+[^15]: Subs. by F.A.O., 1975, Art. 2 and Table, for “Central Government”.
+[^18]: Ins. by the Laws Amendment Ordinance 1965 (XXXIX of 1965), s.4.
+[^19]: Ins. by the Tea (Amdt.) Ordinance, 1960 (I of 1960), s. 4.
