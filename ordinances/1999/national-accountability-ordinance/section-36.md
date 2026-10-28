@@ -1,0 +1,4 @@
+36. Indemnity. No suit, prosecution, or any other proceedings shall lie against the Federal Government, Provincial Government, Chairman NAB, or any other member of the NAB or any person exercising any power or performing any function under this Ordinance or the Rules made hereunder for any act or thing which has been done in good faith or intended to be done under this Ordinance or the rules thereof [^235][:]
+[^235][Provided that if the accused has been acquitted by the Court on the ground that the case was initiated with malafide intention or based on false or fabricated evidence, the person responsible shall be punished with imprisonment of either description for a term which may extend to five years and shall also be liable to fine.]
+
+[^235]: Subs. and added by Act XI of 2022, Ss. 26-27.
