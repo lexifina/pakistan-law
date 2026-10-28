@@ -1,0 +1,10 @@
+9A. Inquiry into more serious accidents.⎯ (1) The [^29][Federal Government] may, where it is of opinion, whether or not it has received the report of an inquiry under section 9, that an inquiry of more formal character should be held into the causes of an accident such as is referred to in section 8, appoint the [^32][Director General Explosives] or any other competent person to hold such inquiry, and may also appoint one or more persons possessing legal or special knowledge to act as assessors in such inquiry.
+(2) Where the [^33][Federal Government] orders an inquiry under this section, it may also direct that any inquiry under section 9 pending at the time shall be discontinued.
+(3) The person appointed to hold an inquiry under this section shall have all the powers of a Civil Court under the Code of Civil Procedure, 1908(V of 1908), for the purposes of enforcing the attendance of witnesses and compelling the production of documents and material objects; and every person required by such person as aforesaid to furnish any information shall be deemed to be legally bound so to do within the meaning of section 176 of the Pakistan Penal Code (XLV of 1860).
+(4) Any person holding an inquiry under this section may exercise such of the powers conferred on any officer by rules under section 7 as he may think it necessary or expedient to exercise for the purposes of the inquiry.
+(5) The person holding an inquiry under this section shall make a report to the [^33][Federal Government] stating the causes of the accident and its circumstances, and adding any observations which he or any of the assessors may think fit to make; and the [^33][Federal Government] shall cause every report so made to be published at such time and in such manner as it may think fit.
+(6) The [^33][Federal Government] may make rules for regulating the procedure at inquiries under this section.]
+
+[^29]: Ins., and subs. by Ordinance No. CV of 2002, ss. 9 and 2.
+[^32]: Subs. by Act No. XVII of 2025, s. 10.
+[^33]: Ins., and subs. by Ordinance No. CV of 2002, ss. 2 and 10.

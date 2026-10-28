@@ -1,0 +1,1 @@
+12. Abetment and attempts.__ Whoever abets, within the meaning of the Pakistan Penal Code (XLV of 1860), the commission of an offence punishable under this Act, or the rules made under this Act, or attempts to commit any such offence and in such attempt does any act towards the commission of the same, shall be punished as if he had committed the offence.

@@ -1,0 +1,5 @@
+17. Extension of definition of “explosive” to other explosive substances.__ The [^41][Federal Government] may, from time to time, by notification in the [^43][official Gazette], declare[^44] that any substance which appears to the [^41][Federal Government] to be specially dangerous to life or property, by reason either of its explosive properties or of any process in the manufacture thereof being liable to explosion, shall be deemed to be an explosive within the meaning of this Act, and the provisions of this Act (subject to such exceptions, limitations and restrictions as may be specified in the notification) shall accordingly extend to that substance in like manner as if it were included in the definition of the term “explosive” in this Act.
+
+[^41]: Subs. by Ordinance No. CV of 2002, ss. 2 and 14.
+[^43]: Subs. by the Government of India (Adaptation of Indian Laws) Order, 1937.
+[^44]: Picric acid with certain exceptions has been declared to be an Explosive within the meaning of this Act, see Gazette of India, 1926, Pt. I, p. 1264.
