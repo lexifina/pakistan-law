@@ -1,0 +1,1 @@
+22. Directives from the Federal Government.__ The Council shall follow and carry out all such directives and orders issued by the Federal Government in writing, as may be issued from time to time, as it may consider necessary for carrying out the purposes of this Act.

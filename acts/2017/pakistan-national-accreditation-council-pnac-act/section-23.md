@@ -1,0 +1,1 @@
+23. Employees of the Council to be public servants.__ The employees of the Council shall, when acting or purporting to act in pursuance of any of the provisions of this Act, be deemed to be public servants within the meaning of section 21 of the Pakistan Penal Code (XLV of 1860).
