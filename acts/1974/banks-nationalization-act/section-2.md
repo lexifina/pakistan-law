@@ -1,0 +1,1 @@
+2. Act to override other laws. This Act shall have effect notwithstanding anything contained in any other law for the time being in force or in any agreement, contract, award, memorandum or articles of association or other instrument.

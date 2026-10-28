@@ -1,0 +1,3 @@
+13. Provisions regarding staff. —(1) Save as otherwise provided in this Act, all officers and other employees of a bank shall continue in their respective offices and employments on the same terms and conditions, including remuneration and rights as to pension and gratuity, as were applicable to them immediately before the commencing day.
+(2) Notwithstanding any law or any provision contained in a contract, agreement, letter of appointment rules or regulations of a bank, every officer and employee of a bank shall be liable to transfer to any of its branches in or outside Pakistan or to any other bank:
+Provided that his status and emoluments shall not be adversely affected.
