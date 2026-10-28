@@ -1,0 +1,3 @@
+2. Continuance of certian emergency provisions. Notwithstanding the repeal of the Defence of Pakistan Ordinance, 1971.
+(a) the provisions of the Defence of Pakistan Rules mentioned in the first column of the Schedule shall continue in force, and shall have effect subject to the modifications specified in the second column thereof;
+(b) any order of other instrument made or deemed to be made under or in pursuance of any of the said provisions and in force immediately before the commencement of this Ordinance shall continue in force so far as consistent with the provisions as continued in force by this section and be deemed to be made under or in pursuance of the provisions so continued in force.
