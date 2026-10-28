@@ -1,0 +1,1 @@
+15. Indemnity.—No suit, prosecution or other legal proceedings shall lie against the Federal Government or any office of the Government for anything which is in good faith done or intended to be done under this Act or the Rules made thereunder.
