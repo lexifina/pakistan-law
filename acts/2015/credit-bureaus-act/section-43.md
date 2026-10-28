@@ -1,0 +1,1 @@
+43. Power to make regulations.―The State Bank of Pakistan may, by notification in the official Gazette, make regulations not inconsistent with the rules to provide for all matters for which provision is necessary.

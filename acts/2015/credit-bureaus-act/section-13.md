@@ -1,0 +1,2 @@
+13. Audit.―(1) The accounts of credit bureaus shall be audited by auditors who are chartered accountants within the meaning of Chartered Accountants Ordinance, 1961 (X of 1961) and are on the panel of auditors maintained by the State Bank of Pakistan for the purposes of audit of banking companies.
+(2) Credit bureaus shall submit duly audited accounts to the State Bank of Pakistan within a period not exceeding three months of the date of closing of each calendar year.

@@ -1,0 +1,1 @@
+3. Application of other laws not barred. ―The provisions of this Act shall be in addition to, and not, save as herein after expressly provided, in derogation of, the Companies Ordinance, 1984 (XLVII of 1984), the Banking Companies Ordinance, 1962 (LVII of 1962) or any other law for the time being in force.

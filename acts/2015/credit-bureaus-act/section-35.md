@@ -1,0 +1,1 @@
+35. Adjudication of fine or penalty.―Where only a fine is provided for any offence, contravention or default in complying with any of the provisions or requirements of this Act or of any rule or regulations made thereunder, it shall be adjudged by the State Bank of Pakistan provided that the person concerned is afforded an opportunity of being heard.

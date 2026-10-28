@@ -1,0 +1,5 @@
+24. Accuracy and security of credit information files and credit reports.― (1) A credit bureau shall―
+(a) take reasonable steps to ensure that the credit information stored, maintained and disseminated is accurate, up-to-date, complete and not misleading and for this purpose may make therein appropriate corrections, deletions and additions regularly during the course of business; and
+(b) ensure that the credit information maintained by it is protected by such security safeguards as are reasonable in the circumstances against loss, unauthorized access, use, modification or disclosure thereof―
+(2) The credit bureau shall follow the standards with respect to systems and procedures, including any information systems employed by the credit bureau to ensure credit information accuracy and security as may be prescribed by regulations.
+(3) Every credit bureau shall arrange to have such systems and procedures independently audited every year to ensure adherence to standards prescribed under sub-section (2).

@@ -1,0 +1,1 @@
+42. Power of the Federal Government to make rules.―The Federal Government may, after consultation with the State Bank of Pakistan and by notification in the official Gazette, make rules to provide for all matters for which provision is necessary or expedient for the purposes of giving effect to the provisions of this Act.

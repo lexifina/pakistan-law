@@ -1,0 +1,8 @@
+11. Membership of credit bureaus.―(1) Every credit institution shall become a member of at least one credit bureau within a period as may be prescribed by regulations. The membership of other credit information furnisher, other than credit institution, to become a member of credit bureaus shall be notified by the Federal Government accordingly.
+(2) All credit information furnishers upon membership of a credit bureau shall furnish credit information in accordance with the requirements and specifications.
+(3) In case of termination of membership, the credit institution shall obtain membership of any other credit bureau either before termination or simultaneously to comply with sub-section (1).
+(4) In case of failure to comply with quality standards and procedural requirements specified by credit bureaus, the membership of credit information furnisher either by the credit bureau on its own motion or at the direction of the State Bank of Pakistan may be suspended or cancelled, provided that an opportunity to show cause for the proposed action is given.
+(5) Where a credit institution
+(a) abstains from becoming a member of at least one credit bureau; or
+(b) at any time is not a member of any credit bureau―
+such credit institution shall be liable to a fine not exceeding one million rupees and, where the contravention is a continuing one, with a further fine which may extend to fifty thousand rupees for every day during which the violation continues, provided that no penalty may be imposed by the State Bank of Pakistan without affording such credit institution an opportunity to show cause against the proposed imposition of penalty.

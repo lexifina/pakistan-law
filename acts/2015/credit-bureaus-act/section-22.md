@@ -1,0 +1,1 @@
+22. Deletion of information from credit information report.―No credit bureau shall include information of default or overdue with respect to any obligation involving credit, where the date on which the default or overdue has been settled antedates the credit information report by the number of years as may be prescribed by rules.

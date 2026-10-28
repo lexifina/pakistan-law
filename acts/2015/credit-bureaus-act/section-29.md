@@ -1,0 +1,1 @@
+29. Exchange of credit information.―Notwithstanding anything contained in this Act, credit bureaus in Pakistan may exchange credit information on confidential basis amongst themselves, or with other companies as may be approved by the State Bank of Pakistan for the purpose of exchange of credit information.

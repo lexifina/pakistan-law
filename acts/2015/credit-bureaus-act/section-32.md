@@ -1,0 +1,1 @@
+32. Legal recognition of electronic forms.―Any document, record, information, communication, transaction, publication or notice, made under or for the purposes of this Act, whether required or otherwise, shall be deemed valid if made in electronic form.
