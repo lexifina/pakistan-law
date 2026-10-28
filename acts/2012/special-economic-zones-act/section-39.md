@@ -1,0 +1,3 @@
+39. Alternative dispute resolution procedures.— (1) Development agreements may provide for the resolution of disputes through arbitration between developers and any Federal, Provincial or Local Governmental authority or agency arising out of, or relating to, such development agreement.
+(2) Development agreements may authorize developers to pursue and defend the rights of zone enterprises within a particular special economic zone through arbitration.
+(3) Zone regulations may provide for the resolution of disputes between zone enterprises in the same SEZ or between zone enterprises and developers through arbitration and mediation in accordance with procedures approved by the BOA for this purpose.

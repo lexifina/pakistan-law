@@ -1,0 +1,3 @@
+1. Short title, extent and commencement.—(1) This Act may be called the Special Economic Zones Act, 2012.
+(2) It extends to the whole of Pakistan.
+(3) It shall come into force on such date as the Federal Government may, by notification in the official Gazette, appoint and different dates may be appointed for coming into effect of different provisions of this Act and any reference to commencement shall generally refer to the commencement of this Act but commencement of any provision that comes into force subsequent to the general commencement shall be treated from the date of coming into force of the respective provision and not the general commencement.

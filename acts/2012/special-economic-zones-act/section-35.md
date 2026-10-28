@@ -1,0 +1,2 @@
+35. Protection of benefits.—(1) All incentives under this Act shall be additional to all incentives, benefits and protections which may be applicable to developers and zone enterprises under generally applicable legislation and international agreements of Pakistan.
+(2) These benefits shall not be withdrawn prematurely and any change therein shall be to the advantage of the developer of the SEZ or the enterprise.

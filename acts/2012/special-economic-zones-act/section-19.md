@@ -1,0 +1,1 @@
+19. Eligibility as developer.― Unless otherwise decided by the BOA with respect to a particular SEZ or type of SEZ, any entity shall be eligible as a developer which is incorporated under the laws of Pakistan.
