@@ -1,0 +1,2 @@
+4. Utilization of cess.⎯(1) The cess shall be utilized by the Federal Government for or in connection with infrastructure development of Iran Pakistan Pipeline Project, Turkmenistan- Afghanistan-Pakistan-India (TAPI) Pipeline Project, LNG or other ancillary projects.
+(2) An annual report in respect of the utilization of the cess shall be laid before the both Houses of Majlis-e-Shoora (Parliament) after three months at the end of the each fiscal year.
