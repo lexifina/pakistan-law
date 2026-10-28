@@ -1,0 +1,25 @@
+THE SCHEDULE
+(See section 3)
+1. BONES.
+2. BRISTLES.
+3. BUTTER.
+4. CEREALS, other than Rice and Wheat.
+5. DRUGS.
+6. FIBRE for brushes.
+7. FISH.
+8. FRUITS.
+9. GHEE.
+10. HIDES, raw.
+11. MANURES.
+12. OILCAKES.
+13. PULSES.
+14. SEEDS.
+15. SKINS, raw.
+16. SPICES.
+17. TOBACCO, unmanufactured.
+18. VEGETABLES.
+19. WHEAT.
+20. WHEAT FLOUR.
+21. WOOL, raw.
+______
+Date: 21.03.2024
