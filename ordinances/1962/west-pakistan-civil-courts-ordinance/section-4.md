@@ -1,0 +1,1 @@
+4. Civil Districts. For the purposes of this Ordinance, Government may, by notification, divide the province into civil districts, fix the limits of such districts and determine the headquarters of each such district.

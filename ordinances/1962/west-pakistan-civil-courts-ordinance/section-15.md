@@ -1,0 +1,2 @@
+15.Power to distribute business. Notwithstanding anything contained in the Code of Civil Procedure, 1908 (V of 1908), every District Judge may by written order direct that any civil business cognizable by his Court and the Courts under his control shall be distributed among such Courts in such manner as he thinks fit:
+Provided that no direction issued under his section shall empower any Court to exercise any powers or deal with any business beyond the limits of its jurisdiction.
