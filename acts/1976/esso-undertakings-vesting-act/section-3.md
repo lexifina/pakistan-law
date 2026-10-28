@@ -1,0 +1,1 @@
+3. Act to override other laws.— This Act shall have effect notwithstanding anything contained in any other law for the time being in force or in any instrument having effect by virtue of any law other than this Act and notwithstanding any decree or order of any court, tribunal, commission or other authority.

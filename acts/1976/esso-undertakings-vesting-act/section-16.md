@@ -1,0 +1,1 @@
+16. Cognizance of offences.— Notwithstanding anything contained in the Code of Criminal Procedure, 1898 (Act V of 1898), no court shall take cognizance of any offence under this Act except on a complaint in writing made by or under the authority of the Federal Government.

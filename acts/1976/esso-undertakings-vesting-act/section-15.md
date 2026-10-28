@@ -1,0 +1,1 @@
+15. Protection of action taken in good faith.— No suit prosecution or other legal proceeding shall lie against the Federal Government or any person for anything which is in good faith done or intended to be done under this Act.

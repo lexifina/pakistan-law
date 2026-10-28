@@ -1,0 +1,1 @@
+9. Payment.—The Federal Government shall pay Esso for Esso undertakings on the commencing day the sum set forth in the Agreement dated the fifteenth day of September, 1976, between the President of Pakistan and Esso, and such payment shall be made in the currencies and in the manner provided in the said Agreement.
