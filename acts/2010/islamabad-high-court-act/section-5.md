@@ -1,0 +1,1 @@
+5. Powers of Chief Justice and other Judges. ___ Any law in force immediately before the appointed date relating to the powers of the Chief Justice and of single Judges and Benches of the Lahore High Court, and with respect to all matters ancillary to the exercise of those powers, shall, mutatis mutandis, apply in relation to Islamabad High Court.

@@ -1,0 +1,1 @@
+7. Procedure as to appeals to Supreme Court.___ Any law in force immediately before the appointed date relating to appeals to the Supreme Court from the Lahore High Court in respect of cases relating to Islamabad Capital Territory shall, with the necessary modification, apply in relation to Islamabad High Court.
