@@ -1,0 +1,2 @@
+11. Powers of Special Courts with respect to other offences.—(1) When trying any scheduled offence a Special Court may also try any offence other than the scheduled offence with which the accused may, under the Code, be charged at the same trial.
+(2) If, in the course of any trial under this Act, it is found that the accused person has committed any other offence, the Special Court, may, whether such offence is or is not a scheduled offence, convict such person of such offence and pass any sentence authorised by law for the punishment thereof.

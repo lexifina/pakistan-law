@@ -1,0 +1,1 @@
+18. Trial before special Court to have precedence.—The trial under this Act of any offence by a Special Court, and appearance of the accused before it, shall have precedence over the trial of any other case against the accused in any other Court, except the High Court on its original side.

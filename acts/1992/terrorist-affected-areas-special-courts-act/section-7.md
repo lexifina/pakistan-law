@@ -1,0 +1,1 @@
+7. Composition and appointment of Presiding officers of Special Courts. A Special Court shall consist of a Judge, being a person who is, or has been, or is qualified for appointment as, a Judge of a High Court and is appointed by the Government after consultation with the Chief Justice of the High Court.
