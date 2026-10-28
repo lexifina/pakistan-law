@@ -1,0 +1,1 @@
+32. Presumption as to intent of parties. For the purpose of rectifying a contract in writing, the Court must be satisfied that all the parties thereto intended to make an equitable and conscientious agreement.

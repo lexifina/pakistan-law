@@ -1,0 +1,1 @@
+38. Court may require party rescinding to do equity. On adjudging the rescission of a contract, the Court may require the party to whom such relief is granted to make any compensation to the other which justice may require.

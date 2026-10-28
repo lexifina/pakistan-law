@@ -1,0 +1,3 @@
+34. Specific enforcement of rectified contract. A contract in writing may be first rectified and then, if the plaintiff has so prayed in his plaint and the Court thinks fit, specifically enforced.
+Illustration
+A contracts in writing to pay his attorney, B, a fixed sum in lieu of costs. The contract contains mistakes as to the name and rights of the client, which, if construed strictly, would exclude B from all rights under it. B is entitled, if the Court thinks fit, to have it rectified, and to an order for payment of the sum, as if at the time of its execution it had expressed the intention of the parties.
