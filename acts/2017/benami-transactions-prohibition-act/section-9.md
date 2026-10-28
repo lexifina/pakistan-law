@@ -1,0 +1,1 @@
+9. Term of office of Chairperson and members of Adjudicating Authority.⸺The Chairperson and members of the Adjudicating Authority shall hold office for a term not exceeding three years from the date on which they enter upon their office or until they attain the age of sixty-two years, whichever is earlier, and. shall not be eligible for re-appointment.

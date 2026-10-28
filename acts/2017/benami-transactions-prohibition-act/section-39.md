@@ -1,0 +1,1 @@
+39. Distribution of business amongst Benches of Appellate Tribunal. ⸺Where any Benches are constituted, the Chairperson may, from time to time, by notification in the official Gazette, make provision as to the distribution of the business of the Tribunal amongst the Benches and also provide for the matters which may be dealt with by each Bench.

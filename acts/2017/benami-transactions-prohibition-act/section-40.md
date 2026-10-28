@@ -1,0 +1,1 @@
+40. Power of Chairperson of Appellate Tribunal to transfer cases. ⸺On the application of any of the parties and notice to the parties, and after hearing them, or on his own motion without any notice, the Chairperson of the Tribunal may transfer any case pending before one Bench, for disposal, to any other Bench.

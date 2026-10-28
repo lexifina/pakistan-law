@@ -1,0 +1,3 @@
+## CHAPTER IV
+## INFORMATION COLLECTION
+18. Power to call for information. ⸺ Any authority or Chairperson or member of the Appellate Tribunal under this Act shall have power to require any officer of the Federal Government or Provincial Government or a local body or an authority or any person or officer who is responsible for registering any property or maintaining books of accounts or other documents containing a record of any transaction relating to any property or any other person to furnish any information in relation to any person, point ormatter as in his opinion shall be useful for or relevant for the purposes of this Act.

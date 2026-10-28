@@ -1,0 +1,4 @@
+27. Possession of property.(1) Where an order of confiscation in respect of a property under sub-section (I) of section 25 has been made, the Administrator shall proceed to take the possession of such property.
+(2) The Administrator shall,
+(a) by notice in writing, order within seven days of the date of the service of notice, any person who may be in possession of the Benami property, to surrender or deliver possession thereof to the Administrator or any other person duly authorized in writing by him in this behalf; and
+(b) in the event of non-compliance of the order referred to in clause (a). or if in his opinion. taking over of immediate possession is warranted, for the purpose of forcibly taking over possession, requisition the service of any police officer to assist him and it shall be the duty of such officer to comply with such requisition.

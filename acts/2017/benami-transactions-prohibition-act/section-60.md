@@ -1,0 +1,1 @@
+60. Protection of action taken in good faith. ⸺No prosecution, suit or other proceeding shall lie against the Government or any officer of the Government or the Tribunal or the Adjudicating Authority established under this Act, for anything done or intended to be done in good faith under this Act.

@@ -1,0 +1,7 @@
+25. Confiscation and vesting of Benami property. ⸺ (1)Where an order is passed in respect of any property under sub-section (3) of section 24, holding such property to be a Benami property, the Adjudicating Authority shall, after giving to the person concerned, an opportunity of being heard make an order confiscating the property held to be a Benami property:
+Provided that where an appeal has been filed against the order of the Adjudicating Authority, the confiscation of property shall be made subject to the order passed by the Tribunal under section 44:
+Provided further that the confiscation of the property shall be made in accordance with such procedure as may be prescribed.
+(2) Nothing in sub-section () shall apply to a property held or acquired by a person from the Benamidar for adequate consideration, prior to the issuance of notice under sub-section (I) of section 22, without having knowledge of the Benami transaction.
+(3) Where an order of confiscation has been made under sub-section (I), all the rights and title in such property shall vest absolutely in the Federal Government free of all encumbrances and no compensation shall be payable in respect of such confiscation.
+(4) Any right of any third person created in such property with a view to defeat the purposes of this Act shall be null and void.
+(5) Where no order of confiscation is made upon the proceedings under this Act attaining finality, no claim shall lie against the Government.

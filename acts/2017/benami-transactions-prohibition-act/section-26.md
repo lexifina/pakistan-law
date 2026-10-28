@@ -1,0 +1,3 @@
+26. Management of properties confiscated.⸺ (1) The Administrator shall have the power to receive and manage the property, in relation to which an order of confiscation under sub-section (L) of section 22 has been made, in such manner and subject to such conditions, as may be prescribed.
+(2) The Federal Government may, by order publish in the official Gazette, notify as many of its officers as it thinks fit to perform the functions of Administrators.
+(3) The Administrator shall also take such measures, as the Federal Government may direct, to dispose of the property which is vested in the Federal Government under sub-section (3) of section 25, in such manner and subject to such conditions as may be prescribed.
