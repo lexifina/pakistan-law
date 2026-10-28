@@ -1,0 +1,1 @@
+42. First Vice-Chancellor.— Notwithstanding anything contained in this Act, as regards the Institute set up after the promulgation date hereof, the first Vice Chancellor shall be appointed by the Chancellor for a period of three years.
