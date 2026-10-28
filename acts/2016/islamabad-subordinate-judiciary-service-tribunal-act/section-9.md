@@ -1,0 +1,1 @@
+9. Transfer of appeals.—All appeals pending before the Tribunal established under the Service Tribunals Act, 1973 (LXXI of 1973), relating to members of subordinate judiciary shall stand transferred to the Tribunal established under this Act.
