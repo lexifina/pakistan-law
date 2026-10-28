@@ -1,0 +1,2 @@
+6. Penalties. (1) Any person concerned in the promotion or conduct of a public meeting held in a proclaimed area contrary to the provisions of section 4 shall be punished with imprisonment for a term which may extend to six Months, or With fine, or with both.
+(2) Any public meeting which has been prohibited, under section 5 shall be deemed to be an unlawful assembly within the meaning of Chapter VIII of the Pakistan Penal Code (XLV of 1860) and of Chapter IX of the Code of Criminal Procedure, 1898 (V of 1898).
