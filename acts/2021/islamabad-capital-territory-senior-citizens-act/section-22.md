@@ -1,0 +1,1 @@
+22.Authorities for implementing provisions of this Act.—The Ministry of Human Rights may, confer such powers and impose such duties on Deputy Commissioner or any other officer of that rank as may be necessary to ensure that the provisions of this Act are properly carried out.

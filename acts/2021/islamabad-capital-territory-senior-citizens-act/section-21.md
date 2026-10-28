@@ -1,0 +1,2 @@
+21. Appeal and Recovery.—(1) Any person aggrieved from a decision of the Grievance Committee under section 19 or 20 may, within fifteen days from the date of decision, file an appeal before the Council whose decision against appeal shall be final.
+(2) The Council may authorize any officer to recover the amount of fine levied under this Act or any other amount recoverable under this Act and such officer shall be deemed to be ‘Collector’ under the Land Revenue Act, 1967. PART-VI MISCELLANEOUS

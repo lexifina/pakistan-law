@@ -1,0 +1,1 @@
+6. Appointment of employees or officers.—To carry out the purposes of this Act, the Council may appoint or employ advisors, experts and consultants of the required fields on such terms and conditions as may be prescribed in the Regulations.

@@ -1,0 +1,2 @@
+19. Violation of directions of the Council.—(1) Whoever refuses to honor the senior citizen card or does not comply with any direction issued to him by the Council, shall be tried in accordance with the Code and will be liable to a fine not exceeding fifty thousand rupees:
+Provided that no action shall be taken under this section, other than in cases of emergency, unless fifteen days’ notice has been given for compliance and such person has failed to comply.
