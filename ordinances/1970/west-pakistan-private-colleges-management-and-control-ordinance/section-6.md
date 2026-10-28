@@ -1,0 +1,1 @@
+6. Filling of casual vacancies.__ If a vacancy in the office of the Chairman or a member occurs during the prescribed term, by death, resignation, disability or otherwise, the vacancy shall be filled in accordance with the provisions of section 4 and the Chairman or the member so elected or nominated to fill the vacancy shall hold office for the unexpired term.

@@ -1,0 +1,2 @@
+13. Inspection.__ (1) The competent authority may inspect the college or cause it to be inspected from time to time by one or more persons authorised by it in this behalf.
+(2) The competent authority may call upon any college so inspected to take, within a specified period, such actions as may appear to it to be necessary in respect of any of the matters provided for in this Ordinance and the rules and regulations made thereunder.

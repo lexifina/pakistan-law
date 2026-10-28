@@ -1,0 +1,1 @@
+18. Appointment of foreign nationals.__ Notwithstanding anything contained in sections 4, 8, 9 and 19 and the rules made under this Ordinance, no person who is a foreign national shall be appointed to the teaching or administrative staff or elected or nominated to the Governing Body of a college without the prior approval of Government.

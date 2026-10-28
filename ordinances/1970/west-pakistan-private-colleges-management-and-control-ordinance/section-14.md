@@ -1,0 +1,1 @@
+14. Staff Council.__ There shall be a Staff Council in the college consisting of the Principal as Chairman and four other senior-most teachers as members, to advise on the day-to-day affairs of the college and on other matters mentioned in section 9.

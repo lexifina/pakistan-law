@@ -1,0 +1,1 @@
+12. Bar to derive financial benefits.__ No member of the Governing Body shall derive any financial benefit from the college; provided that nothing in this section shall debar a person possessing the prescribed qualifications from being appointed and receiving emoluments and enjoying other benefits as a teacher in accordance with the rules made under this Ordinance.
