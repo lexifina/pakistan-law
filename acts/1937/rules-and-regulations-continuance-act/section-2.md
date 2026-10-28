@@ -1,0 +1,4 @@
+2. Continuance in force of rules and regulations made under Act IX of 1910 and Act V
+of 1923. Rules made before the 31st day of March, 1937, under section 37 of the Electricity Act, 1910 (IX of 1910), and regulations made before the 28th day of March, 1937 (X of 1937), under section 28 of the Boilers Act, 1923 (V of 1923), by the Governor General in Council shall, on and from the said dates respectively, be deemed to have been made under the said sections of the said Acts by the authority substituted for the Governor General in Council by the Indian Electricity (Amendment) Act, 1937, and the Indian Boilers (Amendment) Act, 1937 (XI of 1937), respectively, and shall continue to be in force until superseded by rules or regulations made under the said sections of the said Acts by the 2[Electricity Board or the Boilers Board], as the case may be.
+___________
+Date: 22-07-2024
