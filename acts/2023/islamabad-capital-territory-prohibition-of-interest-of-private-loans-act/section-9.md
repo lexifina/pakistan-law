@@ -1,0 +1,1 @@
+9. Cognizance of offences.— Notwithstanding anything to the contrary contained in the Code or any other law for the time being in force an offence under this Act shall be cognizable, non-compoundable and non-bailable.

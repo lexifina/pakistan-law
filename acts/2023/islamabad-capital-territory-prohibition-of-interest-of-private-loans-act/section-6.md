@@ -1,0 +1,1 @@
+6. Complaint.— A justice of peace shall, within three days on receipt of any application or complaint with regard to the commission of an offence under this Act, order the local police to, register a case against such person or group of persons.

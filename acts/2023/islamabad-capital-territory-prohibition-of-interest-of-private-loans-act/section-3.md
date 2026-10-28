@@ -1,0 +1,2 @@
+3. Prohibition of Private Money Lending.—(1) No money lender either individually or ingroup of persons shall lend money for any purpose or advance loan to any person for the purpose of receiving interest thereon, nor shall carry on an interest based transaction in the Islamabad Capital Territory.
+(2) Whoever contravenes the provisions of sub-section (1) shall be punished with imprisonment of either description which may extend to ten years but shall not be less than three years and shall also be liable to fine not exceeding one million rupees.

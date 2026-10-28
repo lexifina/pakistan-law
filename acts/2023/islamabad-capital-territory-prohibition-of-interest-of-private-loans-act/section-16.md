@@ -1,0 +1,1 @@
+16. Power to make rules.— The Federal Government may, by notification in the Official Gazette and within one hundred and twenty days from the commencement of this Act, make Rules for carrying out the purposes of this Act.

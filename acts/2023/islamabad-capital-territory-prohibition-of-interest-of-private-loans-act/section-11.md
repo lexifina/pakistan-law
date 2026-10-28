@@ -1,0 +1,3 @@
+11. Recovery of sums.— Where penalty imposed on money lender under this Act or the amount ordered to be returned, is not paid,—
+(a) the Court may order to recover the amount so payable by selling the assets belonging to such person; and
+(b) in case the amount cannot be recovered from such person in the manner provided in paragraph (a) the Court may prepare and sign a certificate specifying the amount due from such person and send it to the collector of the district in which such person owns any property or resides or carries on business; and the collector of the district on receipt of such certificate shall proceed to recover from the said person the amount specified in the certificate as if it is an arrear of land revenue.

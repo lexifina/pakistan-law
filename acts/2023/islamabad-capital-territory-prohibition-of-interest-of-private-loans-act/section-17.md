@@ -1,0 +1,1 @@
+17. Interpretation.— In the interpretation and application of the provisions of this Act, and in respect of matters ancillary or akin thereto, the Court shall follow the injunctions of Islam as laid down in the Holy Qur’an and Sunnah.

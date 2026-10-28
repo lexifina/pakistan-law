@@ -1,0 +1,1 @@
+14. Act to override other laws, etc.— The Provisions of the Act shall have effect notwithstanding anything contained in any other law for this time being in force or in any instrument having effect by virtue of any such law.

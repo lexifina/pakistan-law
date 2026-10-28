@@ -1,0 +1,1 @@
+7. Liability to pay interest on debt to stand extinguished.— On the commencement of this Act, every obligation of any debtor or borrower to pay interest on debt or such part of interest shall stand extinguished.
