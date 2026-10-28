@@ -1,0 +1,2 @@
+8. Transfer and attachment.___(1) Any person appointed to a corps or unit under section 7 may be transferred, whether on disbandment of the corps or unit or otherwise, to another corps or unit of the same branch of the Pakistan Territorial Force, in such manner as may be prescribed.
+(2) Any person enrolled may be attached at his own request to any corps or unit of the Pakistan Territorial Force or to any unit of the Pakistan Army.
