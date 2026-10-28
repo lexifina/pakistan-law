@@ -1,0 +1,3 @@
+23. Federal Government may carry out functions of the Regulator.⸻ Notwithstanding anything contained in any other provision of this Act, the [^15][division to which business of this Act stands allocated] may, by notification in the official Gazette, direct that powers and functions of the Regulator shall, under such circumstances or in such cases, as may be specified in the notification, be exercised and performed by the [^15][division to which business of this Act stands allocated] and upon such notification reference to the Regulator in the relevant provisions of this Act shall be construed as reference to the [^15][division to which business of this Act stands allocated] and such provisions shall have effect accordingly.
+
+[^15]: Subs. by Act No. IV of 2025, ss.18-19.

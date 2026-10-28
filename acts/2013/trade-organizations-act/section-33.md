@@ -1,0 +1,4 @@
+33. Merger of trade organisations.⸻ Notwithstanding anything contained in any other law for the time being in force or provisions contained in memorandum and articles of association of any trade organisation, the [^16][division to which business of this Act stands allocated] may, by notification in official Gazette, direct any number of trade organisations to merge if each of' them is involved in the same or significantly similar trade, industry or services or any combination thereof:
+Provided that if two or more trade organisations are involved in the same or significantly similar trade, industry or services or any combination thereof, their merger shall be determined by the [^16][division to which business of this Act stands allocated] whose decision in this regard shall be final.
+
+[^16]: Subs. by Act No. IV of 2025, ss.20-21.

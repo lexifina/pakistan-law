@@ -1,0 +1,1 @@
+25. Penalty.⸻ Where a person contravenes any provision of this Act or any rule or order made or any direction or instruction given thereunder or obstructs any officer or person acting under or in pursuance of any such provision, rule, order, direction or instruction, shall be liable to penalty which may extend to one hundred thousand rupees.
