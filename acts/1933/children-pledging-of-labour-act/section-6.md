@@ -1,0 +1,4 @@
+[^4][6. Penalty for employing a child whose labour has been pledged. Whoever, knowing or having reasons to believe that an agreement has been made to pledge the labour of a child, in furtherance of such agreement employs such child, or permits such child to be employed in any premises or place under his control, shall be punishable with imprisonment which may extend to six months or fine which shall not be less than twenty thousand rupees and may extend to fifty thousand rupees or both, and on every subsequent conviction, the imprisonment shall not be less than six months or fine which shall not be less than fifty thousand rupees or both.]
+_______________
+
+[^4]: Subs. by the children (Pledging of Labour) (Amdt.) (Act No. XXXII of 2022) Act, 2022, ss. 3 & 4 (Applicable to the extent of Islamabad Capital Territory).
