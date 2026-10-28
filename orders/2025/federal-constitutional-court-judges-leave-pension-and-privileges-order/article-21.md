@@ -1,0 +1,2 @@
+21. Official car.—(1) A Judge shall be entitled to the use of official car(s), to be determined by the Chief Justice, maintained at Government expense, but shall have to bear the cost of petrol used in the car(s) during a month in excess of eight hundred litres.
+(2) Car(s) provided for the use of a Judge shall be used by him until he retires, subject to its replacement earlier, either because of its having completed the specified number of years of service or distance to be covered or of its having become unserviceable in accordance with the rules.

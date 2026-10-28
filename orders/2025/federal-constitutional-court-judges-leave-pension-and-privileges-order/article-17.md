@@ -1,0 +1,3 @@
+17. Commutation of pension.—The Civil Pension (Commutation) Rules shall, with necessary modifications, apply to a Judge.
+(2) Where the pension of a Judge increase at any time after his retirement on account of a subsequent increase of salaries payable to Judges, he shall not be entitled to have the different of the pension payable to him at the time of his retirement and the subsequent increase in pension commuted.
+(3) A Judge at the time of his appointment to a High Court was in receipt of a pension in respect of any post and had got any part of the said pension commuted, the amount of commutation so paid shall be deducted from the amount of commutation arrived at under sub-paragraph (1).

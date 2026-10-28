@@ -1,0 +1,1 @@
+12. Abeyance of acting appointments in vacation.—Nothing in this Order shall be construed as authorising any acting Chief Justice or acting Judge to continue to hold his acting appointment during vacation.
