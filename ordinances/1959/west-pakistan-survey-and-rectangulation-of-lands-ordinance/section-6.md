@@ -1,0 +1,1 @@
+6. Bar to jurisdiction of Civil Courts. No Civil Court shall have jurisdiction to entertain any claim, suit or other legal proceedings in respect of any act done in pursuance of the provisions of this Ordinance.
