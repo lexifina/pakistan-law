@@ -1,0 +1,3 @@
+[^31]17. Implied warranty on sale of marked goods. On the sale or in the contract for the sale of any goods to which a trade mark or mark or trade description has been applied, the seller shall be deemed to warrant that the mark is a genuine mark and not counterfeit or falsely used, or that the trade description is not a false trade description within the meaning of this Act, unless the contrary is expressed in some writing signed by or on behalf of the seller and delivered at the time of the sale or contract to and accepted by the buyer.
+
+[^31]: Cf. the Merchandise Marks Act, 1887 (50 & 51 Vict., c. 28), s. 17.

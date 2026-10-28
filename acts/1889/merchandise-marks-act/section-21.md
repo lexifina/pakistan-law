@@ -1,0 +1,1 @@
+21. Information as to commission of offence. An officer of the Government whose duty it is to take part in the enforcement of this Act shall not be compelled in any Court to say whence he got any information as to the commission of any offence against this Act.
