@@ -1,0 +1,2 @@
+11. Appellate Authority.__ (1) Any employee if aggrieved by any order, action or inaction in respect of his terms and conditions of service in the Authority may in accordance with the prescribed rules, prefer an appeal to the prescribed Appellate Authority.
+(2) The Appellate Authority may provide personal hearing to the applicant and pass appropriate orders within ninety days of the receipt of application.

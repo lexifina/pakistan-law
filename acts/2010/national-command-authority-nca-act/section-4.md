@@ -1,0 +1,3 @@
+4. Powers of the Chairman.__ All the powers and functions shall rest with the National Command Authority on whose behalf, the Chairman will exercise these powers and functions who may in consultation with National Command Authority and subject to such limitations as he may specify, delegate any of these powers and functions to [^1][Chief of the Army Staff concurrently the Chief of the Defense Forces] and Director General Strategic Plans Division, who may further sub-delegate the same to any employee.
+
+[^1]: Subs., Omitted, re-numbered and Ins. by Act No. XLVIII of 2026, ss.2-3. (w.e.f. 27-11-2025)

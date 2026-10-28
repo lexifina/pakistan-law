@@ -1,0 +1,3 @@
+10. Powers of inquiry and investigation etc.__ (1) The Director General Strategic Plans Division or any' official authorized by him may order fact finding inquiry or investigation of any suspicious conduct or violation of any rule, regulation, procedures, direction or orders issued pursuant to this Act.
+(2) During the said inquiry or investigation, Director General Strategic Plans Division shall have the power to order any measure or step that may be necessary in the interest of national security or to prevent the consequences of the violation etc.
+(3) The Director General Strategic Plans Division may upon receiving the report of the said inquiry or investigation may recommend to the Authority to impose any penalty or penalties under the service rules.

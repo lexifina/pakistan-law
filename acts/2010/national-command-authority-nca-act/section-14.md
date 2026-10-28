@@ -1,0 +1,1 @@
+14. Industrial Relations Act, 2008 (IV of 2008) not to apply to employees of Authority.__ Nothing contained in the Industrial Relations Act, 2008 (IV of 2008) shall apply to or in relation to the employees in the service of the Authority and the Strategic Organizations.

@@ -1,0 +1,1 @@
+8. Strategic Organizations.__ All the Organizations working under the control, regulations and directions of the Authority and such bodies as may be notified by the Authority shall be the Strategic Organizations under this Act.
