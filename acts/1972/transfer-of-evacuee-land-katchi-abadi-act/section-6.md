@@ -1,0 +1,2 @@
+6. Resumption of land.—(1) Any evacuee land in a Katchi Abadi which is not transferred under section 5 shall be resumed by the Chief Settlement Commissioner to whom the occupant thereof shall give vacant possession of such land within the time stipulated by the Chief Settlement Commissioner.
+(2) For the purpose of recovering possession of any land under sub-section (1), the Chief Settlement Commissioner may use or cause to be used such force as may be necessary.

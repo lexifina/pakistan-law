@@ -1,0 +1,1 @@
+11. Validation. Notwithstanding the repeal of Martial Law Order No. 251 made by the Martial Law Administrator, Zone ‘C’, any action taken scheme made, order passed and thing done in pursuance thereof shall be deemed respectively to have been taken, made, passed and done under this Act.

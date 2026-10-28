@@ -1,0 +1,6 @@
+5. Conferment of proprietary rights on occupants of evacuee land.—(1) Any person, other than a person referred to in subsection (2) of section 4, who, on the appointed day, was in occupation of evacuee land in any Katchi Abadi and did not own any other plot, house or shop shall be granted proprietary rights in respect of such land not exceeding five marlas, on payment of such price as may be determined by the Chief Settlement Commissioner on the basis of the market price prevailing in the year 1947.
+Explanation.—For the purpose of this sub-section, “shop” does not include a shop situated outside a Katchi Abadi to which no residential accommodation is attached.
+(2) The price payable by any persons under sub-section (1) shall, at his option, be paid in a lump sum or in six half-yearly installments and shall form part of the compensation pool.
+Explanation.— “Compensation pool” means—
+(a) if the evacuee land the price of which is paid under subsection (1) is agricultural land, the compensation pool constituted under the Displaced Persons (Land Settlement) Act, 1958 (XLVII of 1958); and
+(b) if such land is not agricultural land, the compensation pool constituted under the Displaced Persons (Compensation and Rehabilitation) Act, 1958 (XXVIII of 1958).
