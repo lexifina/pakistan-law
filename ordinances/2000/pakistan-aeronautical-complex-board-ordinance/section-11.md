@@ -1,0 +1,3 @@
+[^1][11. Delegation of Powers.—The Board may, from time; to time, authorize the Chairman, any one or more of its members or any subordinate authority of the Board to perform such functions or exercise such powers on its behalf as may be specified by the Board through a resolution passed at a meeting with proper quorum, and the Chairman, member or subordinate authority so authorized shall conform to such regulations or restrictions as may be prescribed by the Board].
+
+[^1]: Subs, by the Pakistan Aeronautical Complex Board (Amdt.) Ordinance, 2002 (LXXVIII of 2002), s. 2, for the original section 11.
