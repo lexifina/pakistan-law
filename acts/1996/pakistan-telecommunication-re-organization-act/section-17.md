@@ -1,0 +1,1 @@
+17. Liability of the Federal Government to be limited. The liability of the Federal Government under this Act to the creditors of the Authority shall be limited to the extent of any grants made by it and the loans raised by the Authority with the approval of the Federal Government.

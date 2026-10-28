@@ -1,0 +1,1 @@
+33. Indemnity. No suit, prosecution or other legal proceedings shall lie against the Authority or any member or employee of the Authority in respect of anything done or intended to be done by the Authority in good faith under this Act.

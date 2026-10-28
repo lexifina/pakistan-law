@@ -1,0 +1,7 @@
+[^10][7. Appeals.⎯(1) A person aggrieved by any decision or order of the Authority, on the ground that it is contrary to the provisions of this Act, may, within thirty days of the receipt of such decision or order, prefer an appeal to the Tribunal and the Tribunal shall decide such appeal within ninety days.]
+(2) A person aggrieved by any decision or order of any officer of the Authority acting under the delegated powers of the Authority may, within thirty days of the receipt of the decision or order, appeal to the Authority in prescribed manner and the Authority shall decide such appeal within thirty days.
+[^10][(3) No suit or other legal proceedings shall be brought in any civil court or court exercising power of the civil court against any order, decision, notice issued by the Authority under this Act or in respect of any matter which falls within the jurisdiction of the Tribunal and to determine and to adjudicate. Any civil court or court exercising power of civil court shall not grant injunction in respect of any action taken or intended to be taken by the Tribunal in pursuance of its jurisdiction.]
+[^9][* * * * * * *]
+
+[^9]: Subs. added and omitted by Act No. II of 2006, ss. 5, 6 and 7.
+[^10]: Subs. and added by Act No. XXV of 2024, s. 3 Ins. by Act No. XXV of 2024. s. 4 _______________________________________________________________________________________________________________________

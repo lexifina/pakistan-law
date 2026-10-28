@@ -1,0 +1,3 @@
+38. Exemption from taxes, audit, etc.⎯(1) The Company shall not, till the 30th June, 1999, be liable to pay any income-tax, super tax or wealth tax on its income, profits or gains.
+(2) The value ascribed to the property vested in the Company by the Federal Government under the order made under section 35 shall represent the actual acquisition cost of the property for the purposes of taxation and depreciation.
+(3) Notwithstanding anything contained in the Pakistan (Audit and Accounts) Order, 1973 (XXI of 1973), the accounts of the Company shall not be audited by the Auditor-General of Pakistan, but shall be subject to audit in accordance with the provisions of the Companies Ordinance, 1984 (XLVII of 1984)

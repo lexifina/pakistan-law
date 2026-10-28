@@ -1,0 +1,9 @@
+8. Powers of the Federal Government to issue policy directives. (1) The Federal Government may, as and when it considers necessary, issue policy directives to the Authority, not inconsistent with the provisions of the Act, on the matters relating to telecommunication policy referred to in sub-section (2), and the Authority shall comply with such directives.
+(2) The matters on which the Federal Government may issue policy directives shall be⎯ (a) the number and term of the licenses to be granted in respect of telecommunication systems which are public switched networks, telecommunication services over public switched networks and international telecommunication services, and the conditions on which those Licenses should be granted; [^11][*]
+[^11][(aa) framework for telecommunication sector development and scarce resources;]
+(b) the nationality, residence and qualifications of persons to whom licences for public switched networks may be issued or transferred or the persons by whom licensees may be controlled; and
+(c) requirements of national security and of relationships between Pakistan and the Government of any other country or territory outside Pakistan and other States or territories outside Pakistan.
+[^11][(2A) Notwithstanding anything contained in sub-section (2), the Cabinet, or any committee authorized by the Cabinet, may issue any policy directive on any matter related to telecommunication sector, not inconsistent with the provisions of this Act, and such directives shall by binding on the Authority.]
+(3) The Federal Government may, from time to time, call for reports on the activities of the Authority and Board and provide for representation in meetings of international telecommunication organizations.
+
+[^11]: Omitted, ins and subs. by Act No. II of 2006, ss. 8, 9 and 10.

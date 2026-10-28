@@ -1,0 +1,3 @@
+25. Accounting procedures, investments and contracts.⎯ (1) The Authority may require any licensee to establish and maintain specified accounting procedure in order to enable the Authority to obtain all relevant information required for determining the tariff under section 26 or for exercise any other power of the Authority under section 5.
+(2) Accounting procedures once established may only be modified by the Authority after providing reasons and an opportunity of being heard to the licensee.
+(3) No licensee shall enter into any agreement or arrangement which is inconsistent with any obligation of the licensee under this Act, the rules or any condition attaching to its licence; and any such agreement or arrangement shall to such extent be void.

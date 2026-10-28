@@ -1,0 +1,4 @@
+28. National standards.⎯(1) The Authority may, with the approval of the Federal Government, notify regulations for establishing national standards for telecommunication equipment:
+Provided that the Authority may specify differerence standards for different classes of telecommunication equipment and may establish procedure for testing thereof:
+Provided further that subject to the national standards established under this sub-section and the conditions of the licence, the Authority shall not restrict the type of telecommunication equipment that may be used for the establishment, maintenance or operation of telecommunication systems or the provision of telecommunication services.
+(2) In determining the standards referred to in subsection (1), the Authority shall have regard to the need for a safe, modern and efficient telecommunication environment and interoperability of network.
