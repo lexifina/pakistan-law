@@ -1,0 +1,2 @@
+11. Bail and imprisonment.— (1) Notwithstanding anything contained in the Second Schedule to the Code of Criminal Procedure, 1898 (Act V of 1898), or any other law for the time being in force, offences triable by a Special Judge under this Act shall be deemed to be non-bailable.
+(2) Any offence triable under this Act which is punishable with simple imprisonment shall be deemed to be punishable with imprisonment of either description.

@@ -1,0 +1,7 @@
+10. Appeal, revision and transfer of cases.___(1) An appeal from the judgment of a Special Judge shall lie to the highest court having appellate jurisdiction in the territorial limits in which the offence is tried by the Special Judge, and the same court shall also have powers of revision.
+(2) Notwithstanding the provisions of section 417 of the Code of Criminal Procedure, 1898 (Act V of 1898), in any case tried by a Special Judge appointed by the [^16][Federal Government] under section 3, in which such Special Judge has passed an order of acquittal, the[^16][Federal Government] may direct the Public Prosecutor to present an appeal to such court as aforesaid.
+(3) The aforesaid court shall have authority to transfer any case from the court of a Special Judge to the court of another Special Judge:
+Provided that notwithstanding anything contained in section 526 of the Code of Criminal Procedure, 1898 (Act V of 1898), the Special Judge from whose court a transfer is desired, shall not be bound to adjourn the case, but if he rejects a request for adjournment, he shall record his reasons for doing so.
+(4) No prosecution under this Act against any person either generally or in respect of any one or more of the offences for which he is being tried shall be withdrawn except under the orders in writing of the appropriate Government.
+
+[^16]: Subs. by the Pakistan Criminal Law Amendment Act (Amdt.) Act, 1974 (Act No. IV of 1975), s. 2.
