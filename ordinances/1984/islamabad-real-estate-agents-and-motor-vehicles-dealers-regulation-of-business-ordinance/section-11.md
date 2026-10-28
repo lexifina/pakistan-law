@@ -1,0 +1,2 @@
+11. Penalties, etc.(1) Whoever contravenes any of the provisions of this Ordinance shall without prejudice to any other action that may be taken against him under this Ordinance, be punishable with simple imprisonment for a term which may extend to six months, or with fine which may extend to five thousand rupees, or with both.
+(2) No Court shall take cognizance of an offence punishable under this Ordinance except on a complaint in writing made by the registering authority
