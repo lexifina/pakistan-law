@@ -1,0 +1,1 @@
+8. Bar of Jurisdiction. No court shall, grant an injunction, make any order or entertain any proceedings in respect of anything done or action taken, or intended to be done or taken, under this Ordinance
