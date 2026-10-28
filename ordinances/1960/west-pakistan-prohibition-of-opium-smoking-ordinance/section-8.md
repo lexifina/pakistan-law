@@ -1,0 +1,1 @@
+8. Presumption raised by presence of opium smoking appliances. Whenever any person is found in possession of any pipes or utensils ordinarily used for opium smoking or of any apparatus used in the manufacture of opium, it shall be presumed, unless the contrary is proved, that he has manufactured or smoked opium.

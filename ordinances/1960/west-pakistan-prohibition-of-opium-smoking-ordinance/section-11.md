@@ -1,0 +1,1 @@
+11. Procedure for arrest, etc. The provisions of the Code of Criminal Procedure, 1898 (V of 1898), relating to arrest, detention in custody, execution of warrants and searches shall be applicable to all actions taken in these respects by an excise officer under this Ordinance.
