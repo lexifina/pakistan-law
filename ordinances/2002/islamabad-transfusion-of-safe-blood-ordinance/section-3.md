@@ -1,0 +1,1 @@
+3. Transfusion of safe blood:—Every physician, surgeon, medical practitioner or any other person transfusing blood or blood Products to any patient shall, before such transfusion, ensure that the blood or, as the case may be, blood products, is healthy and has been certified by the blood bank, as screened for any virus or infection specified in clause (e) of section 2.
