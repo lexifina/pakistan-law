@@ -1,0 +1,1 @@
+5. Cognizance of Offence.—Cognizance of offence under this Act shall be taken by a court of a magistrate upon complaint by the child on whom punishment is inflicted or the parent of such child or his next of kin.
