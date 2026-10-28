@@ -1,0 +1,1 @@
+44. Benefits and Insurance.—(1) The University shall constitute for the benefit of its officers, teachers and other employees schemes, as may beprescribed, for the provision of post-employment benefits as well as health andlife insurance while in service.
