@@ -1,0 +1,2 @@
+21. Punishment for contravention of certain other conditions for Hindu marriage.—
+Every person who get his or her marriage solemnized under this Act in contravention of the conditions specified in clauses (b) or (c) of section (4) shall be punishable with simple imprisonment which may extend to six months but not less than three months, or with fine which may extend to five thousand rupees; or with both.

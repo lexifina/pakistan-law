@@ -1,0 +1,1 @@
+16. Separated person may marry again.—When a Hindu marriage has been annulled or terminated by a decree of nullity or decree of termination, as the case may be and the time for appeal has expired or an appeal has been preferred but has been dismissed, it shall be lawful for either party to the marriage so terminated to marry again after expiry of six months from final decision.

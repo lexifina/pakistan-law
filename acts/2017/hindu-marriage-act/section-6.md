@@ -1,0 +1,2 @@
+6. Registration of Hindu marriages.—(1) The solemnization of every Hindu marriage shall be registered in accordance with the provisions of this Act. Such registration shall take place within a period of fifteen days of solemnization of Hindu marriage.
+(2) The marriage register shall be open for inspection and shall be admissible as evidence of the contents contained therein or certified extracts there from shall, on application, be given by the marriage registrar on payment of such fee, as may be prescribed.

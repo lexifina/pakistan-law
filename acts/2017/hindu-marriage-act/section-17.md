@@ -1,0 +1,1 @@
+17. Hindu widows are entitled to remarry.—A Hindu widow shall have right to re-marry of her own will and consent after the death of her husband provided a period of six months has lapsed after the husband’s death.
