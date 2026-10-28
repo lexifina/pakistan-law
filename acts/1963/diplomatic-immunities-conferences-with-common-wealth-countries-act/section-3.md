@@ -1,0 +1,3 @@
+3. Application of Act reciprocal.—If the [^1][Federal Government] is satisfied that the govern-ment of any country within the Commonwealth has made provision for extending to the representatives of the Government of Pakistan attending conferences in that country and their official staff immunities similar to those provided for in this Act, it may, by notification in the official Gazette, declare that this Act applies to such country, and thereupon the provisions of this Act shall during the period such notification remains in force, apply accordingly.
+
+[^1]: Subs. by F.A.O., 1975, Art. 2 and Table, for “Central Government”.
