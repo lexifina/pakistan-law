@@ -1,0 +1,5 @@
+37. Assessors.___ (1) When, in the opinion of the Court making an As investigation under this Chapter, the investigation involves, or appears likely to involve, any question as to the cancelling or suspension of the certificate of a master, engineer or engine-driver, or any person holding a certificate granted under Chapter III, the Court shall appoint as its assessors, for the purposes of the investigation, two persons having experience in the merchant service or in the navigation of [^92][mechanically propelled vessels].
+(2) In every other investigation the Court may, if it thinks fit, appoint as its assessor, for the purposes of the investigation, any person conversant with maritime affairs or the navigation of [^92][mechanically propelled vessels] and willing to act as assessor.
+(3) Every person appointed as an assessor under this section shall attend during the investigation and deliver his opinion in writing, to be recorded on the proceedings.
+
+[^92]: Subs. by the Inland Steam-vessels (Amdt.). Act, 1951 (25 of 1951), s. 2. for “inland steam-vessels”.

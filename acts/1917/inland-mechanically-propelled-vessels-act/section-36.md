@@ -1,0 +1,1 @@
+36. Person charged to be heard. For the purpose of an investigation under this Chapter into any charge against a master, engineer or engine-driver, or any person holding a certificate granted under Chapter III, the Court may summon him to appear, and shall give him full opportunity of making a defence, either in person or otherwise.

@@ -1,0 +1,3 @@
+[^21][6. Fees in respect of surveys. Before a survey is commenced, or a registry is made, the owner or master of the vessel to be surveyed or registered, as the case may be, shall pay to such officer as the Provincial Government may, by notification in the official Gazette appoint in this behalf, a survey or registry fee, as the case may be, calculated on the tonnage of the vessel according to the rates mentioned in Schedules I and IA or according to any other prescribed rates.]
+
+[^21]: Subs. by the Inland Steam-vessels (Amdt.) Act, 1951 (25 of 1951), s 8, for the original section 6, as amended by A. O., 1937 and A. O., 1949, Sch,

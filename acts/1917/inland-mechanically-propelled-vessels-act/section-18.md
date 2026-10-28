@@ -1,0 +1,1 @@
+18. Division of duties when two surveyors employed. When a survey is made by two surveyors under either section 16 or section 17, each of the surveyors shall perform the prescribed portion of the duties assigned to a surveyor under this Act or the rules made thereunder.

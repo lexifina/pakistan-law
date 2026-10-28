@@ -1,0 +1,1 @@
+61. Penalty for failing to deliver up suspended or cancelled certificate. If any person, whose certificate is suspended or cancelled under this Act, fails to deliver up the certificate as required by section 46, he shall be punishable with fine, which may extend to five hundred rupees.
