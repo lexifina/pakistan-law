@@ -1,0 +1,1 @@
+27. First Statutes. Notwithstanding anything contained in this Ordinance, the Statutes set­out in the Schedule to this Ordinance shall be deemed to be the Statutes framed under section 26 and shall remain in force until they are rescinded or replaced by new Statutes framed in accordance with the provisions of this Ordinance.

@@ -1,0 +1,4 @@
+11. Chancellor.—(1) The Minister for Science and Technology shall be the Chancellor of the Institute.
+(2) In case the Chancellor is satisfied that the proceedings of any Authority or order of any officer are not in accordance with the provisions of this Ordinance, the rules or regulations, he may, after calling upon such Authority or officer to show cause as to why such proceedings or, as the case may be, order should not be annulled, by order in writing, annual such proceedings or orders.
+(3) The Chancellor may cause a visitation or inquiry to be made in respect of any matter connected with the affairs of the Institute and appoint any such person as he may deem fit for the purpose.
+(4) The Chancellor may, on receipt of a report, issue such directions as he thinks fit and the Rector shall comply with such directions.

@@ -1,0 +1,3 @@
+12. Rector.__(1) The Board may appoint the Rector on such terms and conditions, as it may determine.
+(2) The Rector shall be the principal academic and administrative officer of the Institute, and shall be responsible for proper implementation of the decisions of the Board and for the execution of the programmes of the Institute in accordance with the guidelines and policies formulated by the Board.
+(3) At any time when the office of the Rector is vacant, or the Rector is absent or is unable to perform the functions of his office due to illness or some other cause, the Executive Director, COMSATS, shall make such arrangement for the performance of the duties of the Rector as he may deem fit.

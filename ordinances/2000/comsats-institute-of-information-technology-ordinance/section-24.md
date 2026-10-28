@@ -1,0 +1,1 @@
+24. Indemnity. No suit, prosecution or legal proceedings shall lie against the Institute, Board, any Authority or an employee of the Institute for anything which is done, or intended to be done in good faith under this Ordinance.

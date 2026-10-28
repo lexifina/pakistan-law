@@ -1,0 +1,1 @@
+5. Institute open to all classes, etc. The Institute shall be open to all persons of either sex of whatever religion, race, creed, colour or domicile who are academically qualified for admission to the courses of study offered by the Institute, and no such person shall be denied the privilege on the ground only of sex, religion, creed, race, class, colour or domicile.

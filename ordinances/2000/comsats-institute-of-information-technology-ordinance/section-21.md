@@ -1,0 +1,2 @@
+21. Academic and administrative staff. —(1) The academic and administrative staff of the Institute shall be selected with a view to achieve stated objectives, and the basic criteria for their selection shall be the highest standards of competence, integrity and efficiency.
+(2) In the case of academic staff, the academic qualifications and fringe benefits shall not be less than those duly approved by the University Grants Commission for such appointments.

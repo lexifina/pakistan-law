@@ -1,0 +1,2 @@
+19. Constitution, functions and powers of the Authorities. —(1) Subject to the provisions of the Ordinance, the constitution, functions and powers of the Authorities for which no specific provision has been made in this Ordinance shall be such as may be prescribed by Statutes.
+(2) No act, proceedings resolution or decision of any Authority shall be invalid by reason only of any vacancy or defect in the constitution of or in the appointment or nomination of any member of the Authority.

@@ -1,0 +1,4 @@
+22. Fund of the Institute. —(1) The Institute shall have a Fund to which shall be credited income from fees, donations, trusts, bequests, endowments, grants, contributions and income from any other source.
+(2) The capital and recurrent expenditure of the Institute shall be met from the contributions made by any source including foundations, universities and individuals, and from the income derived from such sources.
+(3) The Institute may obtain funds from the COMSATS according to such terms and conditions as may be mutually agreed upon.
+(4) No contribution, donation or grant which may directly or indirectly involve any immediate or subsequent financial liability for the Institute, or which may involve an activity not included in the academic programmes of the Institute for the time being, shall be accepted without the prior approval of the Board.
