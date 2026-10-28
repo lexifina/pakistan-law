@@ -1,0 +1,2 @@
+3. Naib Kazis. Any Kazi appointed under this Act may appoint one or more persons as his naib or naibs to act in his place in all or any of the matters appertaining to his office throughout the whole or in any portion of the local area for which he is appointed, and may suspend or remove any naib so appointed.
+When any Kazi is suspended or removed under section 2, his naib or naibs (if any) shall be deemed to be suspended or removed, as the case may be.
