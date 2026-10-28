@@ -1,0 +1,1 @@
+19. Registration of contracts. The 1[ Federal Government] may, by general or special order, require any contract or class of contracts for sale of tobacco for export to be registered with such organisation and in such manner as may be specified in the order.

@@ -1,0 +1,1 @@
+16. Appointment of officers, etc. The Board may, subject to the approval of the 1[ Federal Government], appoint such officers, advisers and other employees as may be necessary for the efficient performance of the functions of the Board and of the Committee.
