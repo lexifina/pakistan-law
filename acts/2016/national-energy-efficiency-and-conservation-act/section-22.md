@@ -1,0 +1,1 @@
+22. Delegation of powers.—(1) The Authority may, by general or special order in writing, delegate to any of its officer, consultant, adviser, designated entity or any other person such of its powers and functions under this Act and subject to such conditions, as may be specified in the order.

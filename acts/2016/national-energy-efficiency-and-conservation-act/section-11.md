@@ -1,0 +1,2 @@
+11. Powers of the Federal Government to issue energy saving certilicate.—(1) The Federal Government may issue energy saving certificate to a designated consumer whose energy consumption is less than the prescribed norms and standards in accordance with the procedure as may be prescribed.
+(2) The designated consumer whose energy consumption is more than the prescribed norms and standards shall be entitled to purchase the energy saving certificate to comply with the prescribed norms and standards.

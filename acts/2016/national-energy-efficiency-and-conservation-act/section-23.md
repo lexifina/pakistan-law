@@ -1,0 +1,3 @@
+23. Power to exempt.—(1) In case the Authority is of the opinion that it is expedient so to do in the public interest; it may, by notification and subject to such conditions as may be specified therein, exempt any designated consumer or class of designated consumers from application of all or any of the provisions of this Act:
+Provided that the Authority shall not grant exemption to any designated consumer or class of designated consumers for a period exceeding five years.
+(2) After the expiry of the period specified in the proviso to sub-section (1), the designated consumer or class of designated consumers shall not be entitled for exemption for any further period.

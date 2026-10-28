@@ -1,0 +1,4 @@
+17. Procedure for conducting inquiry, investigation and energy audit.—(1) The Authority or a designated agency may on its own initiative or upon a complaint require any person to get energy audit carried out within the time stipulated by such agency.
+(2) The Authority or a designated agency shall bring the wastage of energy into notice of that person and give reasonable time to that person for taking corrective measures thereof.
+(3) After the expiry of the stipulated time, the Authority or a designated agency shall require that person to get second energy audit or such remedial measures as may be prescribed.
+(4) If that person is again found to be contravening the provisions of this Act, he shall be subject to a fine, to be imposed by the Authority or a designated agency, in accordance with section 18, after providing a reasonable opportunity of hearing to that person.

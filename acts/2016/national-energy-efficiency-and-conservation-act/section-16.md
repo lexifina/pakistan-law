@@ -1,0 +1,4 @@
+16. Powers to issue directions.— The Federal Government or a Provincial Government may, in exercise of its powers and performance of its functions under this Act and for efficient use of energy and its conservation, issue such directions in writing as it deems fit for the purposes of this Act to any person, officer, authority or any designated consumer and such person, officer or authority or any designated consumer shall be bound to comply with such directions.
+Explanation.—For the avoidance of doubts, it is hereby declared that the power to issue directions under this section includes the power to direct—
+(a) regulation of norms for process and energy consumption standards in any industry or building or building complex; or
+(b) regulation of the energy consumption standards for equipment and appliances.
