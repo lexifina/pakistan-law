@@ -1,0 +1,2 @@
+7. Bar of jurisdiction.__ (1) No court shall entertain an application, petition or suit against any process or act undertaken or done, intended or purported to be undertaken or done under this Act.
+(2) No court shall grant an injunction or entertain any application for injunction against any process undertaken, intended or purported to be undertaken for a commercial transaction or agreement under this Act.
