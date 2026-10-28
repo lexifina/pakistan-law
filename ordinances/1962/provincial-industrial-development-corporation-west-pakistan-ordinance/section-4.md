@@ -1,0 +1,2 @@
+4. Share Capital.___ (1) The authorized share capital of the Corporation shall, in the first instance, be one crore of rupees divided into one hundred fully paid up shares of one lakh of rupees each, of which forty five shares will be issued in the first instance and the remaining shares may be issued from time to time by the Corporation with the previous sanction of the Government.
+(2) Nothing in sub-section (1) shall prevent the Corporation from increasing its capital with the previous sanction of the Government.

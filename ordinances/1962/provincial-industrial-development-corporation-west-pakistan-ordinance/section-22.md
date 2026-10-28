@@ -1,0 +1,1 @@
+22. Public servants. The Chairman, Directors, officers adviser or employee of the Corporation shall, while acting or purporting to act in pursuance of the provisions of this Ordinance, or the rules or regulations made thereunder, be deemed to be public servants within the meaning of section 21 of the Pakistan Penal Code (Act XLV of 1860).
