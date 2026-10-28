@@ -1,0 +1,1 @@
+4. Registration of blood banks:—No blood bane shall receive or supply blood unless it is registered with the Authority and a license is issued to it by the Authority in the manner and subject to payment of such fee as may be prescribed.
