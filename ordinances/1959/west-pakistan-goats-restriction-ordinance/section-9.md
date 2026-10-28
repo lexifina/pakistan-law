@@ -1,0 +1,2 @@
+9. Person arrested and goat seized to be released on bond. (1) Any officer making an arrest under sub-section (1) of section 8 shall release such person on his executing a bond to appear, when so required, before the officer in charge of the nearest police station.
+(2) Where any officer, as aforesaid, has seized any goat, he shall release it to the person from whose possession it was seized or to the owner thereof on his executing a bond for producing it before the officer in charge of the nearest police station.

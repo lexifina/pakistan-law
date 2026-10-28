@@ -1,0 +1,1 @@
+5. Power to regulate slaughter of goats. Government may in such manner as may be prescribed regulate the slaughter of goats including the proportion of the goats to the sheep that may be slaughtered in a slaughter-house on any day.
