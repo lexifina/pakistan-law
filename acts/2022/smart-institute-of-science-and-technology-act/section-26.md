@@ -1,0 +1,13 @@
+26. Academic Council.— (1) There shall be an Academic Council of the Institute consisting of the following,—
+(a) Vice-Chancellor who shall be its Chairperson;
+(b) Deans of faculties and such heads of departments as may be prescribed;
+(c) Five members representing the departments, institutes and the constituent colleges/school to be elected in the manner prescribed by the Board of Governors;
+(d) Five Professors including Professors Emeritus;
+(e) Registrar;
+(f) Controller of Examinations; and
+(g) Librarian.
+(2) The Board of Governors shall appoint the members of the Academic Council, other than ex-officio and elected members, on the recommendation of the Vice-Chancellor:
+Provided that as regards the five professors and the members representing the departments, institutes and the constituent colleges/school the Board of Governor may, as an alternative to elections, prescribe a procedure for proposal of panel of names, by the representation committee set up in terms under this Act Appointment of persons proposed by the representation committee may be made by the Board of Governor on recommendation of the Vice- Chancellor.
+(3) Members of the Academic Council shall hold office for three years.
+(4) The Academic Council shall meet at least once in each quarter.
+(5) The quorum for meetings of the Academic Council shall be one half of the total number of members, a fraction being counted as one.

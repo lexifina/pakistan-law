@@ -1,0 +1,2 @@
+6. Teaching at the Institute.— (1) All recognized teaching in various courses shall be conducted by the Institute or the colleges in the prescribed manner and may include lectures, tutorials, discussions, seminars, demonstrations and other methods of instruction as well as practical work in the laboratories, hospitals, workshops and other organizations.
+(2) The Institute may setup any number of campuses, at such places in Pakistan or abroad as the Board of Governors may determine and with prior approval of Higher Education Commission.
