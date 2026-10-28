@@ -1,0 +1,1 @@
+3. Prohibition of use of emblem of white cross on red ground or imitations thereof. No person shall use for the purposes of his trade or business the heraldic emblem of the white cross on a red ground, being the federal colours of Switzerland, or any sign constituting a colourable imitation of that heraldic emblem.
