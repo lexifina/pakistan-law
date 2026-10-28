@@ -1,0 +1,1 @@
+4. Carrying of offensive weapons.___ Any person, not being a public servant acting in his capacity as such, who, while present in a public meeting, has with him any offensive weapon shall be guilty of an offence.
