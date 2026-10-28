@@ -1,0 +1,4 @@
+8. Principal Office.___ (1) The principal office of a microfinance institution shall be situated in the specified area and shall not be changed without prior approval of the state Bank. The microfinance institution may, with the approval of the state Bank, establish branch offices at such other place, or places, in the specified area as it may think fit.
+(2) A microfinance institution shall furnish to the State Bank an annual plan indicating the place where new branches will be opened or the names of agents to be appointed together with the details of their duties and functions.
+(3) A microfinance institution shall give at least thirty days’ advance notice to the State Bank for opening of a new branch or appointment of an agent.
+(4) Unless otherwise advised by the State Bank, the opening of the new branch or appointment of an agent shall be deemed to be licensed at the expiry of thirty days of the notice given to the State Bank under sub-section (3).

@@ -1,0 +1,2 @@
+15. Accounts.___ (1) A microfinance institution shall maintain porper books of accounts and, at the expiration of teach calendar year, prepare annual statement of accounts including the profit and loss account and balance sheet as may be prescribed.
+(2) A microfinance institution shall, in respect of such accounts, comply with such general directions as the State Bank may, from time to time, issue.
