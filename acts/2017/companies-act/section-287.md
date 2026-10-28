@@ -1,0 +1,6 @@
+287. Powers of Court under section 286.—Without prejudice to the generality of the powers of the Court under section 286, an order under that section may provide for—
+[^27][(a) the termination, setting aside or modification of any agreement or award compensation, however arrived including but not limited to between the company or any other company or any director, including the chief executive or any other officer, wherein the Court concludes that such agreement suffers from conflict of interest on the part of any director or the Board or any such agreement or contract is prejudicial to the interest of members upon such terms and conditions as may, in the opinion of the Court, be just and equitable in all the circumstances;]
+(b) setting aside of any transfer, delivery of goods, payment, execution or other transactions not relating to property made or done by or against the company within ninety days before the date of the application which would, if made or done by or against an individual, be deemed in his insolvency to be a fraudulent preference; and
+(c) any other matter, including a change in management, for which in the opinion of the Court it is just and equitable that provision should be made.
+
+[^27]: Subs. by Act No. XXXVII of 2021, s.21

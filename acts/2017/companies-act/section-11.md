@@ -1,0 +1,6 @@
+11. Rectification of name of a company.—(1) A company which, through inadvertence or otherwise, is registered by a name in contravention of the provisions of section 10 or the name was obtained by furnishing false or incorrect information—
+(a) may, with approval of the registrar, change its name; and
+(b) shall, if the registrar so directs, within thirty days of receipt of such direction, change its name with approval of the registrar:
+Provided that the registrar shall, before issuing a direction for change of the name, afford the company an opportunity to make representation against the proposed direction.
+(2) If the company fails to report compliance with the direction issued under sub-section (1) within the specified period, the registrar may enter on the register a new name for the company selected by him, being a name under which the company may be registered under this Act and issue a certificate of incorporation on change of name for the purpose of section 13.
+(3) If a company makes default in complying with the direction issued by the registrar under sub-section (1) or continue using previous name after the name has been changed by the registrar under sub-section (2), shall be liable to a penalty of level 1 on the standard scale.

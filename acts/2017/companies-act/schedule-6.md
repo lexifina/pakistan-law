@@ -1,0 +1,5 @@
+SIXTH SCHEDULE
+(See section 258)
+OFFENCES PUNISHABLE UNDER SECTION 258
+(SERIOUS FRAUD)
+1. Offences punishable under section 496.

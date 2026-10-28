@@ -1,0 +1,1 @@
+461. Security clearance of shareholder and director.—The Commission may require the security clearance of any shareholder or director or other office bearer of a company or class of companies as may be notified by the concerned Minister-in-charge of the Federal Government.

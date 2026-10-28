@@ -1,0 +1,3 @@
+215. Liability for undesired activities of the shareholders.—(1) A member of a company shall act in good faith while exercising its powers as a shareholder at the general meetings and shall not conduct themselves in a manner that is considered disruptive to proceedings of the meeting.
+(2) Without prejudice to his rights under this Act, a member of the company shall not exert influence or approach the management directly for decisions which may lead to create hurdle in the smooth functioning of management.
+(3) Any shareholder who fails to conduct in the manner provided in this section and as specified by the Commission shall be guilty of an offence under this section and shall be liable to a penalty not exceeding of level 1 on the standard scale.

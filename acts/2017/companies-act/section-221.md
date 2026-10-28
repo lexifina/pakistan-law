@@ -1,0 +1,9 @@
+221. Inspection of books of account by the Commission.—(1) The books of account and books and papers of every company shall be open to inspection by any officer authorised by the Commission in this behalf if, for reasons to be recorded in writing, the Commission considers it necessary so to do.
+(2) It shall be the duty of every director, officer or other employee of the company to produce to the person making inspection under sub-section (1) all such books of account and books and papers of the company in his custody or under his control, and to furnish him with any such statement, information or explanation relating to the affairs of the company, as the said person may require of him within such time and at such place as he may specify.
+(3) It shall also be the duty of every director, officer or other employee of the company to give to the person making inspection under this section all assistance and facilitation in connection with the inspection which the company may be reasonably expected to give.
+(4) The officer making the inspection under this section may, during the course of inspection—
+(a) make or cause to be made copies of books of account and other books and papers; or
+(b) place or cause to be placed by marks of identification thereon in token of the inspection having been made;
+(c) take possession of such documents and retain them for thirty days if there are reasonable grounds for believing that they are evidence of the commission of an offence.
+(5) Where an inspection of the books of account and books and papers of the company has been conducted under this section, by an officer authorised by the Commission, such officer shall make a report to the Commission.
+(6) Any officer authorised to make an inspection under this section shall have all the powers that the Commission has under this Act in relation to the making of inquiries.

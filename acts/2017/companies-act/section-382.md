@@ -1,0 +1,1 @@
+382. Effect of petition for winding up subject to supervision.—A petition for the continuance of a voluntary winding up subject to the supervision of the Court shall, for the purpose of giving jurisdiction to the Court over suits and another legal proceedings, be deemed to be a petition for winding up by the Court.

@@ -1,0 +1,2 @@
+459. Quota for persons with disabilities in the public interest companies.— Every public interest company, employing one hundred or more employees shall ensure special quota for employment of persons with disabilities of two percent or such higher percentage as may be specified or required under the applicable Federal and Provincial law:
+Provided that in case of any conflict between this Act and any other Federal or Provincial law for persons with disabilities, the later shall apply.

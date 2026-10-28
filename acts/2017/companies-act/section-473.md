@@ -1,0 +1,2 @@
+473. Supply of documents, information, notices to the members electronically.— (1) After a date notified by the Commission, the information, notices and accounts or any other document to be provided by the company to its members under this Act, shall only be provided electronically on the email address provided by the members.
+(2) A member requiring the supply of any of the document mentioned in sub-section (1) in physical form shall bear the cost as fixed by the company.

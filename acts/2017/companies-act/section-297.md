@@ -1,0 +1,1 @@
+297. Nature of liability of contributory.—The liability of a contributory shall create a debt accruing due from him at the time when his liability commenced, but payable at the time specified in calls made on him for enforcing the liability.

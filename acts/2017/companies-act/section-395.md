@@ -1,0 +1,2 @@
+395. Avoidance of certain attachments, executions.—(1) Where any company is being wound up by or subject to the supervision of the Court, any attachment, distress or execution put in force without leave of the Court against the estate or effects or any sale held without leave of the Court of any of the properties of the company after the commencement of the winding up shall be void.
+(2) Nothing in this section applies to proceedings by the Government.

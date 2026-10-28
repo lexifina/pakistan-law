@@ -1,0 +1,4 @@
+214. Contracts by agents of company in which company is undisclosed principal.— (1) Every officer or other agent of a company, other than a private company, not being the subsidiary company of a public company, who enters into a contract for or on behalf of the company in which contract the company is an undisclosed principal shall, at the time of entering into the contract, make a memorandum in writing of the terms of contract, and specify therein the person with whom it has been made.
+(2) Every such officer or other agent shall forthwith deliver the memorandum aforesaid to the company and its directors which shall be laid before next meeting of the board.
+(3) If any such officer or other agent makes default in complying with the requirements of this section—
+(a) the contract shall, at the option of the company, be void as against the company; and (b) such officer or other agent shall be liable to a penalty of level 1 on the standard scale.

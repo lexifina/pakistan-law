@@ -1,0 +1,1 @@
+148. Punishment for default in complying with provisions of section 147.—If any person makes default in holding a meeting of the company in accordance with section 147 or in complying with any directions of the Commission, shall be liable to a penalty of level 3 on the standard scale.

@@ -1,0 +1,2 @@
+374. Notice by liquidator of his appointment.—(1) Every liquidator shall, within fourteen days after his appointment, publish in the official Gazette, and deliver to the registrar for registration, a notice of his appointment in the form specified.
+(2) If the liquidator fails to comply with the requirements of sub-section (1), he shall be liable to a daily penalty of level 1 on the standard scale.

@@ -1,0 +1,2 @@
+168. Validity of acts of directors.—The acts of a person acting as a director are valid notwithstanding that it is afterwards discovered that there was a defect in his appointment; or he was disqualified from holding office; or he had ceased to hold such office:
+Provided that, as soon as any such defect has come to notice, the director shall not exercise the right of his office till the defect has been removed.

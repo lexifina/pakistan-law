@@ -1,0 +1,4 @@
+231. Financial Statements of modaraba company to include modaraba accounts.—(1) There must be attached to the financial statements of a modaraba company, the annual accounts and other reports circulated in pursuance of the provisions of section 14 of the Modaraba Companies and Modaraba (Floatation and Control) Ordinance, 1980 (XXXI of 1980), made out—
+(a) as at the end of the financial year of the modaraba where such financial year coincides with the financial year of the modaraba company; and
+(b) as at the end of the financial year of the modaraba last before that of the modaraba company, where the financial year of the modaraba does not coincide with that of the modaraba company.
+(2) The provisions of sub-section (8) of section 228 shall apply to any person who is a party to the default in complying with any of the provisions of this section.

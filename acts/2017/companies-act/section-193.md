@@ -1,0 +1,1 @@
+193. Penalty.—Any contravention or default in complying with requirements of sections 186 to 192 shall be an offence liable to a penalty of level 2 on the standard scale and may also be debarred by the authority which imposes the penalty from becoming a director or chief executive of a company for a period not exceeding five years.

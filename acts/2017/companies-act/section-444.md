@@ -1,0 +1,2 @@
+444. Penalties.—(1)If any foreign company fails to comply with any of the provisions of this Part, except section 439, the company, and every officer or agent of the company who authorises or permits the default, shall be liable to a penalty of level 1 on the standard scale.
+(2) If a foreign company or any of its directors or other persons as referred in section 439 fails to comply with the provisions of said section, shall be liable to a penalty of level 2 on the standard scale.

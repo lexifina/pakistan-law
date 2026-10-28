@@ -1,0 +1,1 @@
+318. Style and title of official liquidator.—The official liquidator shall be described by the style of “the official liquidator” of the particular company in respect of which he acts, and in no case he shall be described by his individual name.

@@ -1,0 +1,1 @@
+289. Claim for damages inadmissible.— Where an order of the Court made under section 286 terminates, sets aside, or modifies an arrangement, the order shall not give rise to any claim whatever against the company by any person for damages or for compensation for loss of office or in any other respect, either in pursuance of the agreement or otherwise.

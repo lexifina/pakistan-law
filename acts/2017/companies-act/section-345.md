@@ -1,0 +1,1 @@
+345. Order made by any Court to be enforced by other Courts.−Any order made by a Court for, or in the course of, winding up of a company shall be enforceable in any place in Pakistan, and in the same manner in all respects as in such order had been made by a Court having jurisdiction in respect of that company or a Court to whom the Court refers the order for enforcement.

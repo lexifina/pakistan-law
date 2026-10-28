@@ -1,0 +1,3 @@
+161. Term of office of directors.—(1) A director elected under sections 159 or 162 shall hold office for a period of three years unless he earlier resigns, vacates office due to fresh election required under section 162 as the case may be, becomes disqualified from being a director or otherwise ceases to hold office:
+Provided that the term of office of directors of a company limited by guarantee and not having share capital may be a period of less than three years as provided in the articles of association of a company.
+(2) Any casual vacancy occurring among the directors may be filled up by the directors and the person so appointed shall hold office for the remainder of the term of the director in whose place he is appointed.

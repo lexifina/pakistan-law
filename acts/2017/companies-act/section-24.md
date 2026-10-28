@@ -1,0 +1,5 @@
+[^6][23. * * * * * * *]
+24. Penalties for non-publication of name.—(l) If a company does not display its name in the manner provided for by this Act, it shall be liable to a penalty not exceeding level 1 on the standard scale and every officer of the company who authorises or permits the default shall be liable to the like penalty.
+(2) If any officer of a limited company issues or authorises the issue of any bill-head, letter paper, document, notice or other official publication of the company, or signs or authorises to be signed on behalf of the company any bill of exchange, promissory note, endorsement, cheque or order for money or goods, or issues or authorises to be issued any bill of parcels, invoice, receipt or letter of credit of the company, wherein its name is not mentioned in the manner aforesaid, he shall be liable to a penalty not exceeding of level 1 on the standard scale and shall further be personally liable to the holder of any such bill of exchange, promissory note or order for money or goods, for the amount thereof unless the same is duly paid by the company.
+
+[^6]: Omitted. by Act No. XXXVII of 2021, s.6.

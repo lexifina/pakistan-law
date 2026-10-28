@@ -1,0 +1,9 @@
+117. Power of Court to fix remuneration of receiver or manager.— (1) The Court may, on an application made to it by the receiver or manager of the property, by order fix the amount to be paid by way of remuneration to any person who, under the power contained in an instrument, has been appointed as receiver or manager of the company’s property:
+Provided that the amount of remuneration shall not exceed such limits as may be specified.
+(2) The power of the Court under sub-section (1) shall, where no previous order has been made with respect thereto—
+(a) extend to fixing the remuneration for any period before the making of the order or the application therefore;
+(b) be exercisable notwithstanding that the receiver or manager had died or ceased to act before the making of the order or the application therefore; and
+(c) where the receiver or manager has been paid or has retained for his remuneration for any period before the making of the order any amount in excess of that so fixed for that period, extend to requiring him or his representative to account for the excess or such part thereof as may be specified in the order:
+Provided that the power conferred by clause (c) shall not be exercised as respects any period before the making of the application or the order unless in the opinion of the Court there are special circumstances making it proper for the power to be so exercised.
+(3) The Court may from time to time, on an application made either by the liquidator or by the receiver or manager, or by the registrar, vary or amend an order made under sub-section (1) and issue directions to the receiver respecting his duties and functions or any other matter as it may deem expedient:
+Provided that an order made under sub-section (1) shall not be varied so as to increase the amount of remuneration payable to any person.

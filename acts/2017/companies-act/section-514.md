@@ -1,0 +1,2 @@
+514. Former registration offices and registers continued.—(1) The offices existing at the commencement of this Act for registration of companies shall be continued as if they had been established under this Act.
+(2) Any books of account, book or paper, register or document kept under the provisions of any previous law relating to companies shall be deemed part of the books of accounts, book or paper, register or document to be kept under this Act.

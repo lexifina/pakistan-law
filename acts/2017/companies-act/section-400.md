@@ -1,0 +1,6 @@
+400. Penalty for fraud by officers of companies which have gone into liquidation.— (1) If any person, being at the time of the commission of the alleged offence an officer of a company which is subsequently ordered to be wound up by the Court or which subsequently passes a resolution for voluntary winding up—
+(a) has, by false pretenses or by means of any other fraud, induced any person to give credit to the company; or
+(b) with intent to defraud creditors of the company, has made or caused to be made any gift or transfer of or charge on, or has caused or connived at the levying of any execution against, the property of the company; or
+(c) with intent to defraud creditors of the company, has concealed or removed any part of the property of the company since, or within sixty days before, the date of any unsatisfied judgment or order for payment of money obtained against the company;
+he shall be punishable with imprisonment for a term which may extend to three years, and shall also be liable to a fine which may extend to one million rupees.
+(2) Where the Court has passed an order of winding up of a company and prima facie concludes that any of the offence provided in sub-section (1) has been committed, the Court may send a reference for adjudication of offence under sub-section (1) to the court as provided under section 482.

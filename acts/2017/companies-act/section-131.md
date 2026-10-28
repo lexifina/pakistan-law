@@ -1,0 +1,23 @@
+## MEETINGS AND PROCEEDINGS
+131. Statutory meeting of company.—(1) Every public company having a share capital shall, within a period of one hundred and eighty days from the date at which the company is entitled to commence business or within nine months from the date of its incorporation whichever is earlier, hold a general meeting of the members of the company, to be called the “statutory meeting”:
+Provided that in case first annual general meeting of a company is decided to be held earlier, no statutory meeting shall be required.
+(2) The notice of a statutory meeting shall be sent to the members at least twenty-one days before the date fixed for the meeting along-with a copy of statutory report.
+(3) The statutory report shall state—
+(a) the total number of shares allotted, distinguishing shares allotted other than in cash, and stating the consideration for which they have been allotted;
+(b) the total amount of cash received by the company in respect of all the shares allotted;
+(c) an abstract of the receipts of the company and of the payments made there out up to a date within fifteen days of the date of the report, exhibiting under distinctive headings the receipts of the company from shares and debentures and other sources, the payments made there out, and particulars concerning the balance remaining in hand, and an account or estimate of the preliminary expenses of the company showing separately any commission or discount paid or to be paid on the issue or sale of shares or debentures;
+(d) the names, addresses and occupations of the directors, chief executive, secretary, auditors and legal advisers of the company and the changes, if any, which have occurred since the date of the incorporation;
+(e) the particulars of any contract the modification of which is to be submitted to the meeting for its approval, together with the particulars of the modification or proposed modification;
+(f) the extent to which underwriting contracts, if any, have been carried out and the extent to which such contracts have not been carried out, together with the reasons for their not having been carried out; and
+(g) the particulars of any commission or brokerage paid or to be paid in connection with the issue or sale of shares to any director, chief executive, secretary or officer or to a private company of which he is a director;
+and certified by the chief executive and at least one director of the company, and in case of a listed company also by the chief financial officer.
+(4) The statutory report shall also contain a brief account of the state of the company’s affairs since its incorporation and the business plan, including any change or proposed change affecting the interest of shareholders and business prospects of the company.
+(5) The statutory report shall, so far as it relates to the shares allotted by the company, the cash received in respect of such shares and to the receipts and payments of the company, be accompanied by a report of the auditors of the company as to the correctness of such allotment, receipt of cash, receipts and payments.
+(6) The directors shall cause a copy of the statutory report, along-with report of the auditors as aforesaid, to be delivered to the registrar for registration forthwith after sending the report to the members of the company.
+(7) The directors shall cause a list showing the names, occupations, nationality and addresses of the members of the company, and the number of shares held by them respectively, to be produced at the commencement of the meeting and to remain open and accessible to any member of the company during the continuance of the meeting.
+(8) The members of the company present at the meeting shall be at liberty to discuss any matter relating to the formation of the company or arising out of the statutory report, whether previous notice has been given or not, but no resolution of which notice has not been given in accordance with the articles may be passed.
+(9) The meeting may adjourn from time to time, and at any adjourned meeting any resolution of which notice has been given in accordance with the articles, either before or after the original meeting, may be passed, and an adjourned meeting shall have the same powers as an original meeting.
+(10) The provisions of this section shall not apply to a public company which converts itself from a private company after one year of incorporation.
+(11) Any contravention or default in complying with requirement of this section shall be an offence liable—
+(a) in case of a listed company, to a penalty of level 2 on the standard scale; and
+(b) in case of any other company, to a penalty of level 1 on the standard scale.

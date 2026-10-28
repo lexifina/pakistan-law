@@ -1,0 +1,5 @@
+418. Books of accounts and other proceedings to be kept by liquidators.—(1) Every liquidator shall maintain at the registered office proper books of accounts in the manner required in the case of companies under section 220 and the provisions of that section shall apply mutatis mutandis to companies being wound up.
+(2) Every liquidator shall also keep at the registered office proper books and papers in the manner required under section 338.
+(3) Any creditor or contributory may, subject to the control of the Court, inspect any books and papers kept by the liquidator under sub-section (l) and (2).
+(4) The concerned Minister-in-Charge of the Federal Government may alter or add to any requirements of this section by a general or special order in which case the provisions so altered or added shall apply.
+(5) If any liquidator contravenes any provisions of this section, he shall be punishable with imprisonment for a term, which may extend to two years and with fine, which may extend to five hundred thousand rupees.

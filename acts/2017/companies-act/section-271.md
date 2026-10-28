@@ -1,0 +1,1 @@
+271. Inspector’ s report to be evidence.—A copy of any report of any inspector or inspectors appointed under sections 256, 257 or 258 authenticated in such manner, if any, as may be specified, shall be admissible in any legal proceedings as evidence of the opinion of the inspector or inspectors in relation to any matter contained in the report.

@@ -1,0 +1,6 @@
+112. Company’s register of mortgages and charges. —(1) Every company shall maintain a register of mortgages and charges requiring registration under this Part, in such form and in such manner as may be specified and any violation under this section shall be an offence punishable under this Act.
+(2) The register of charges maintained under this section and the copies of instrument creating any mortgage and charge or modification thereof, kept in pursuance of this part shall be open to inspection of-
+(a) any member or creditor of the company without fee; and
+(b) any other person on payment of such fee as may be fixed by the company for each inspection.
+(3) The refusal of inspection of the said copies or the register shall be an offence under this section and any person guilty of an offence under this section shall be liable to a penalty of level 1 on the standard scale, and every officer of the company who knowingly authorises or permits the refusal shall incur the like penalty, and in addition to the above penalty, the registrar may by order compel an immediate inspection of the copies or register.
+(4) If any officer of the company authorises or permits the omission of any entry required to be made in pursuance of sub-section (1), shall be liable to a penalty of level 1 on the standard scale.

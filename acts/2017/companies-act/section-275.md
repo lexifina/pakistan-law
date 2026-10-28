@@ -1,0 +1,1 @@
+275. Application of sections 254 to 274 to liquidators and foreign companies.—The provisions of sections 254 to 274 shall apply mutatis mutandis to companies in the course of winding up, their liquidators and foreign companies.

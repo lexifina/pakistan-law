@@ -1,0 +1,8 @@
+477. Complaint to the court by the Commission, registrar, member or creditor in case of certain offences.—(1) Offences provided in the Eighth Schedule under this Act which is alleged to have been committed by any company or any officer or auditor or any other person shall not be taken cognizance by the court, except on the complaint in writing of___
+(a) the Commission through its authorised officer or the registrar; or
+(b) in the case of a company having a share capital, by a member or members holding not less than five percent of the issued share capital of the company or a creditor or creditors of the company having interest equivalent in amount to not less than five percent of the issued share capital of the company; or
+(c) in the case of a company not having a share capital, by any member or creditor entitled to present a petition for winding up of the company:
+Provided that nothing in this sub-section shall apply to a prosecution by a company of any of its officers or employees:
+Provided further that the complaint filed under this section shall not require formal procedure as provided under section 38 of the Securities and Exchange Commission of Pakistan Act, 1997 (XLII of 1997) and such complaint shall be taken cognizance by the court in accordance with Chapter XVI of Code of Criminal Procedure, 1898 (Act V of 1898).
+(2) Sub-section (1) shall not apply to any action taken by the liquidator of a company in respect of any offence alleged to have been committed in respect of any of the matters included in Part-X or in any other provision of this Act relating to the winding up to companies.
+(3) A liquidator of a company shall not be deemed to be an officer of the company within the meaning of sub-section (1).

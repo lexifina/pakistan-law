@@ -1,0 +1,2 @@
+## POWERS OF COURT HEARING APPLICATION
+307. Court may grant injunction.—The Court may, at any time after presentation of the petition for winding up a company under this Act, and before making an order for its winding up, upon the application of the company itself or of any its creditors or contributories, restrain further proceedings in any suit or proceeding against the company, upon such terms as the Court thinks fit.

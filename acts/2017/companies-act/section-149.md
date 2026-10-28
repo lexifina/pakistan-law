@@ -1,0 +1,5 @@
+149. Passing of resolution by the members through circulation.—(1) Except for the businesses specified under sub-section (2) of section 134 to be conducted in the annual general meeting, the members of a private company or a public unlisted company (having not more than fifty members), may pass a resolution (ordinary or special) by circulation signed by all the members for the time being entitled to receive notice of a meeting.
+(2) Any resolution passed under sub-section (1), shall be as valid and effectual as if it had been passed at a general meeting of the company duly convened and held.
+(3) A resolution shall not be deemed to have been duly passed, unless the resolution has been circulated, together with the necessary papers, if any, to all the members.
+(4) A members’ agreement to a written resolution, passed by circulation, once signified, may not be revoked.
+(5) A resolution under sub-section (1) shall be noted at subsequent meeting of the members and made part of the minutes of such meeting.

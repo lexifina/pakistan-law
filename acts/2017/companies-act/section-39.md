@@ -1,0 +1,2 @@
+39. Copies of memorandum and articles to be given to members.— (1) Each company shall send to every member, at his request and within fourteen days thereof, on payment of such sum, as the company may fix, a copy of the memorandum and the articles, if any.
+(2) If a company makes default in complying with the requirements of sub-section (1), it shall be liable to a penalty not exceeding of level 1 on the standard scale.

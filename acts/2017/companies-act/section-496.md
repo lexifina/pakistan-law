@@ -1,0 +1,13 @@
+496. Penalty for false statement, falsification, forgery, fraud, deception.—(1) Notwithstanding anything contained in the Criminal Procedure Code, 1898, (V of 1898) or any other law, whoever in relations to affairs of the company or body corporate___
+(a) makes a statement or submit any document in any form, which is false or incorrect in any material particular, or omits any material fact, knowing it to be material, in any return, report, certificate, statement of financial position, profit and loss account, income and expenditure account, offer of shares, books of account, application, information or explanation required by or for the purposes of any of the provisions of this Act or pursuant to an order or direction given under this Act with an intention to defraud, or cheat the Commission or to obtain incorporation or to avoid any penal action for an offence under this Act or administered legislation;
+(b) makes any false entry or omits or alter any material particular from books, paper or accounts with an intent to defraud, destroy, alter or falsifies any books of account belonging to or in his possession shall commit an offence of falsification of account;
+(c) submit, present or produce any forged or fabricated document, knowingly to be forged or fabricated, to the Commission for the purposes of cheating or cheating by personation or to obtain any wrongful gain or wrongful loss or to avoid any penal action for an offence under this Act or administered legislation; or
+(d) employ any scheme, artifice or practice in the course of business of the company to defraud or deceive general public;
+shall be punishable with imprisonment which shall not be less than one year but which may extend to seven years and shall also be liable to fine which shall not be less than the amount involved in the fraud but may extend to three times the amount involved in the offence:
+Provided further that in case of offence involves public interest, the term of imprisonment under this section shall not be less than three years along with fine.
+Explanation.—For the purpose of this section___
+(i) “fraud” in relation to affairs of the company or body corporate shall mean doing a thing with an intent to defraud other person;
+(ii) “wrongful gain” means the gain by unlawful means of property to which the person gaining is not legally entitled;
+(iii) “wrongful loss” means the loss by unlawful means of property to which the person losing is legally entitled.
+(iv) “cheating, cheating by personation, falsification of accounts or forgery or forgery for the purposes of cheating” shall have the same meanings as assign to it in Pakistan Penal Code, 1860 (XLV of 1860).
+(2) All offences under this section shall be non-bailable and non- compoundable.

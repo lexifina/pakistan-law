@@ -1,0 +1,3 @@
+75. Board not to refuse transfer of shares.—The board shall not refuse to transfer any shares or securities unless the transfer deed is, for any reason, defective or invalid:
+Provided that the company shall within fifteen days or, where the transferee is a central depository, within five days from the date on which the instrument of transfer was lodged with it notify the defect or invalidity to the transferee who shall, after the removal of such defect or invalidity, be entitled to re-lodge the transfer deed with the company:
+Provided further that the provisions of this section shall, in relation to a private company, be subject to such limitations and restrictions as may have been imposed by the articles of such company.

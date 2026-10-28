@@ -1,0 +1,12 @@
+## TRANSFER OF SHARES AND OTHER SECURITIES
+74. Transfer of shares and other securities.—(1) An application for registration of transfer of shares and other transferable securities along with proper instrument of transfer duly stamped and executed by the transferor and the transferee may be made to the company either by the transferor or the transferee, and subject to the provisions of this section, the company shall within fifteen days after the application for the registration of the transfer of any such securities, complete the process and—
+(a) ensure delivery of the certificates to the transferee at his registered address; and
+(b) enter in its register of members the name of the transferee:
+Provided that in case of conversion of physical shares and other transferable securities into book-entry form, the company shall, within ten days after an application is made for the registration of the transfer of any shares or other securities to a central depository, register such transfer in the name of the central depository:
+Provided further that nothing in this section shall apply to any transfer of shares or other securities pursuant to a transaction executed on the securities exchange.
+(2) Where a transfer deed is lost, destroyed or mutilated before its lodgment, the company may on an application made by the transferee and bearing the stamp required by an instrument of transfer, register the transfer of shares or other securities if the transferee proves to the satisfaction of the board that the transfer deed duly executed has been lost, destroyed or mutilated:
+Provided that before registering the transfer of shares or other securities, the company may demand such indemnity as it may think fit.
+(3) All references to the shares or other securities in this section, shall in case of a company not having share capital, be deemed to be references to interest of the members in the company.
+(4) Every company shall maintain at its registered office a register of transfers of shares and other securities and such register shall be open to inspection by the members and supply of copy thereof in the manner stated in section 124.
+(5) Nothing in sub-section (1) shall prevent a company from registering as shareholder or other securities holder a person to whom the right to any share or security of the company has been transmitted by operation of law.
+(6) Any violation of this section shall be an offence liable to a penalty of level 2 on the standard scale.

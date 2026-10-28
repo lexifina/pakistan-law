@@ -1,0 +1,2 @@
+143. Demand for poll.—(1) Before or on the declaration of the result of the voting on any resolution on a show of hands, a poll may be ordered to be taken by the chairman of the meeting of his own motion, and shall be ordered to be taken by him on a demand made in that behalf by the members present in person or through video-link or by proxy, where allowed, and having not less than one-tenth of the total voting power.
+(2) The demand for a poll may be withdrawn at any time by the members who made the demand.

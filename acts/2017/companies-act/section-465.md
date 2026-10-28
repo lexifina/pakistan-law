@@ -1,0 +1,4 @@
+465. Special return to rectify the data.—(1) The Commission or the registrar may at any time, by a general or specific order, require a company or class of companies or all the companies to file a special return signed by all the directors to rectify the record.
+(2) The information provided in the special return filed under this section shall be a conclusive evidence of all the relevant facts and shall not be called in question by any of the person who has signed it.
+(3) The persons who have signed the special return shall be responsible for the loss caused to any person on account of incorrect information provided in the return filed under this section.
+(4) A company shall inform the registrar about any change of more than twenty five percent in its shareholding or membership or voting rights in a manner as may be specified by the Commission.

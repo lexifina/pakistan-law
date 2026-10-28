@@ -1,0 +1,3 @@
+298. Contributories in case of death of member.—If a contributory dies, whether before or after being placed on the list of contributories of a company:
+(a) his legal representatives shall be liable, in due course of administration, to contribute to the assets of the company in discharge of his liability, and shall be contributories accordingly; and
+(b) if the legal representatives make default in paying any money ordered to be paid by them, proceedings may be initiated for administering the property of the deceased contributory, and of compelling payment of the money due, out of assets of the deceased.

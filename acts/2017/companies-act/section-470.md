@@ -1,0 +1,1 @@
+470. Power to specify fees chargeable by companies.—The maximum limits of fees to be paid to or charged by companies and liquidators from members, creditors or other persons for supply of copies of documents, inspection of records and other services as are required to be provided under this Act shall be such as may be specified.

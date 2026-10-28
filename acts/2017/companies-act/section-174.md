@@ -1,0 +1,3 @@
+174. Prohibition on assignment of office by directors.—(1) A director of any company shall not assign his office to any other person and any such appointment shall be void ab-initio.
+(2) Notwithstanding anything contained in sub-section (1), the appointment by a director, with the approval of the board, of an alternate or substitute director to act for him during his absence from Pakistan of not less than ninety days, shall not be deemed to be an assignment of office.
+(3) The alternate director appointed under sub-section (2) shall ipso facto vacate office if and when the director appointing him returns to Pakistan.

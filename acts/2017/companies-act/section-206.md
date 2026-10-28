@@ -1,0 +1,2 @@
+206. Interest of officers.__(1) Save as provided in section 205 in respect of directors, no other officer of a company who is in any way, directly or indirectly, concerned or interested in any proposed contract or arrangement with the company shall, unless he discloses the nature and extent of his interest in the transaction and obtains the prior approval of the board, enter into any such contract or arrangement.
+(2) Any contravention or default in complying with requirement under this section shall be an offence liable to a penalty of level 1 on the standard scale.

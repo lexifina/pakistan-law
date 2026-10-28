@@ -1,0 +1,1 @@
+334. Power to exclude creditors not proving in time.−The Court may fix a time or times within which creditors are to prove their debts or claims, or to be excluded from the benefit of any distribution made before those debts are proved.

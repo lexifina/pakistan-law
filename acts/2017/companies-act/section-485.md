@@ -1,0 +1,1 @@
+485. Recovery of penalty.—Any sum adjudged, penalty imposed by the Commission or the registrar in exercise of powers under this Act or any rules or any regulations made thereunder or directed to be paid, shall be recovered in accordance with section 42B of the Securities and Exchange Commission of Pakistan Act, 1997(XLII of 1997).

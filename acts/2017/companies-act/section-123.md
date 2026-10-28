@@ -1,0 +1,4 @@
+123. Index of debenture-holders.—(1) Every company having more than fifty debenture-holders shall keep an index of the names of the debenture-holders of the company, unless the register of debenture-holders is in such a form as to constitute in itself an index and any contravention or default in complying with requirement of this section shall be an offence punishable under this Act.
+(2) The company shall make any necessary alteration in the index within fourteen days after the date on which any alteration is made in the register of debenture-holders.
+(3) The index shall contain, in respect of each debenture-holder, a sufficient indication to enable the account of that debenture-holder in the register to be readily found.
+(4) A person guilty of an offence under this section shall be liable to a penalty of level 1 on the standard scale.

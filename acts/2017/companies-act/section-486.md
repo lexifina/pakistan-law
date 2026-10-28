@@ -1,0 +1,1 @@
+486. Prosecution of offences by the Commission.—All prosecution conducted by the Commission under this Act shall be made in the manner as provided in section 38 of Securities and Exchange Commission of Pakistan Act, 1997(XLII of 1997).

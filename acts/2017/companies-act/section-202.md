@@ -1,0 +1,3 @@
+202. Execution of bills of exchange, promissory notes and deeds.— (1) A bill of exchange or promissory note shall be deemed to have been made, drawn, accepted or endorsed on behalf of a company if made, drawn, accepted or endorsed in the name of, or on behalf of or on account of, the company by any person acting under its authority, express or implied.
+(2) A company may, by writing, authorise any person, either generally or in respect of any specified matters, as its attorney to execute deeds on its behalf in any place either in or outside Pakistan.
+(3) A deed signed by such an attorney on behalf of the company and under his seal shall bind the company and have the effect as if it was made by the company itself.

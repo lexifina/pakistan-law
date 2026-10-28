@@ -1,0 +1,3 @@
+373. Power of Court to appoint and remove liquidator in voluntary winding up.—(1) If from any cause whatever, there is no liquidator acting, the Court may appoint a liquidator in accordance with the provisions of section 315 who shall have the same powers, as are exercisable by an official liquidator under sub-section (1) of section 337.
+(2) The Court may, on cause shown, replace a liquidator on the application of any creditor or contributory or the registrar or a person authorised by the Commission.
+(3) The remuneration to be paid to the liquidator appointed under sub-section (1) or sub-section (2) shall be fixed by the Court subject to the provisions of section 364.

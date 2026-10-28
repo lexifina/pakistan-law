@@ -1,0 +1,1 @@
+252. Penalty for non-compliance with provisions by companies.—Any contravention or default in complying with requirements of sections 246, 247, 248 and 250 shall be an offence liable to a penalty of level 3 on the standard scale.

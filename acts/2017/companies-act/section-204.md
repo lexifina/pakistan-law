@@ -1,0 +1,9 @@
+204. Duties of directors.—(1) Subject to the provisions of this Act, a director of a company shall act in accordance with the articles of the company.
+(2) A director of a company shall act in good faith in order to promote the objects of the company for the benefit of its members as a whole, and in the best interests of the company, its employees the shareholders the community and for the protection of environment.
+(3) A director of a company shall discharge his duties with due and reasonable care, skill and diligence and shall exercise independent judgment.
+(4) A director of a company shall not involve in a situation in which he may have a direct or indirect interest that conflicts, or possibly may conflict, with the interest of the company.
+(5) A director of a company shall not achieve or attempt to achieve any undue gain or advantage either to himself or to his relatives, partners, or associates and if such director is found guilty of making any undue gain, he shall be liable to pay an amount equal to that gain to the company.
+(6) A director of a company shall not assign his office and any assignment so made shall be void.
+(7) In addition to the preceding sub-sections, the Commission may provide for the extent of duties and the role of directors as may be specified.
+(8) Any breach of duty, default or negligence by a director in contravention of the articles of the company or any of its policy or decision of the board may be ratified by the company through a special resolution and the Commission may impose any restriction as may be specified.
+(9) Without prejudice to any other action that may be taken under this Act or any other law, any contravention or default in complying with requirements of this section shall be an offence liable to a penalty of level 1 on the standard scale.

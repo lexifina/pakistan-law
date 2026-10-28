@@ -1,0 +1,2 @@
+510. Power to issue directives, circulars, guidelines.—(1) The Commission may issue such directives, prudential requirements, codes, guidelines, circulars or notifications as are necessary to carry out the purposes of this Act and the rules and regulations made under this Act.
+(2) Any person, who obstructs or contravenes or does not comply with any directive, prudential requirements, codes, circulars or notifications, given under this section shall be liable to a penalty of level 3 on the standard scale.

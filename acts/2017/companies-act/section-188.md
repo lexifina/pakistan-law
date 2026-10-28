@@ -1,0 +1,3 @@
+188. Terms of appointment of chief executive.—(1) Save as provided in sub-section (2), the terms and conditions of appointment of a chief executive shall be determined by the board or the company in general meeting in accordance with the provisions in the company’s articles.
+(2) The terms and conditions of appointment of a chief executive nominated under section 186 or 187 shall be determined by the Government, in such manner as may be specified.
+(3) The chief executive shall if he is not already a director of the company, be deemed to be its director and be entitled to all the rights and privileges, and subject to all the liabilities, of that office.

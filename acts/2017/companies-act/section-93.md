@@ -1,0 +1,3 @@
+93. Registration of order of reduction.—(1) The registrar on the filing with him of a certified copy of order of the Court confirming the reduction of the share capital of the company, shall register the same.
+(2) A resolution for reducing share capital as confirmed by an order of the Court registered under sub-section (1) shall take effect on such registration and not before.
+(3) The registrar shall certify under his hand the registration of the order and his certificate shall be conclusive evidence that all the requirements of this Act with respect to reduction of share capital have been complied with, and that the share capital of the company is such as is stated in the order.

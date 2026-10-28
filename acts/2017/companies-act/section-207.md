@@ -1,0 +1,8 @@
+207. Interested director not to participate or vote in proceedings of board.__ (1) No director of a company shall, as a director, take any part in the discussion of, or vote on, any contract or arrangement entered into, or to be entered into, by or on behalf of the company, if he is in any way, whether directly or indirectly, concerned or interested in the contract or arrangement, nor shall his presence count for the purpose of forming a quorum at the time of any such discussion or vote; and if he does vote, his vote shall be void:
+Provided that a director of a listed company who has a material personal interest in a matter that is being considered at a board meeting shall not be present while that matter is being considered.
+(2) If majority of the directors are interested in, any contract or arrangement entered into, or to be entered into, by or on behalf of the company, the matter shall be laid before the general meeting for approval.
+(3) Sub-section (1) shall not apply to—
+(a) a private company which is neither a subsidiary nor a holding company of a public company;
+(b) any contract of indemnity or insurance coverage executed by the company in favour of interested director against any loss which he may suffer or incur by reason of becoming or being a surety for the company or while undertaking any transaction on behalf of the company:
+Provided that for the purpose of clause (b), a company shall only insure the liability of interested director where such liability arises out of a transaction validly approved by the board or the members of the company as the case may be.
+(4) Any contravention or default in complying with requirements under this section shall be an offence liable to a penalty of level 1 on the standard scale.

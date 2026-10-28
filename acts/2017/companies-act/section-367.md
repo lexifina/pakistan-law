@@ -1,0 +1,1 @@
+367. Application of section 356 to a creditors voluntary winding up.—The provisions of section 356 shall apply in the case of a creditors voluntary winding up as in the case of member’s voluntary winding up with the modification that the powers of the liquidator under the said section shall not be exercised except with the sanction of the Court.

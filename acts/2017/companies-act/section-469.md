@@ -1,0 +1,4 @@
+469. Fees.—(1) There shall be paid in respect of the several matters mentioned in the Seventh Schedule the several fees therein, for the time being, specified fees as the Commission may direct:
+Provided that, in the case of resolutions to which section 150 applies, not more than one fee shall be required for the filing of more resolutions than one passed in the same meeting if such resolutions are filed with the registrar at the same time.
+(2) All fees paid in pursuance of this Act shall be accounted for to the Commission.
+(3) Any document required or authorised by this Act to be filed by a company with the registrar shall not be deemed to have been so filed until the fee payable in respect thereof has been duly paid and either the original receipt or other proof acceptable to the registrar has been furnished to him.

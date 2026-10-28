@@ -1,0 +1,2 @@
+331. Power to order payment into bank.—(1) The Court may order any contributory, purchaser or other person from whom any money is due to the company to pay the same into the account of the official liquidator in a scheduled bank instead of to the official liquidator, and any such order may be enforced in the same manner as if it had directed payment to the official liquidator.
+(2) Information about the amount deposited shall be sent by the person paying it to the official liquidator within three days of the date of payment.
