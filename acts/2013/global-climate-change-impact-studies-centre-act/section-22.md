@@ -1,0 +1,1 @@
+22. Indemnity.—No suit, prosecution or other legal proceedings shall lie against the Centre, the Board, the Chairman or any member, officer, staff, adviser or consultant of the Centre in respect of anything done or intended to be done in good faith under this Act or the rules made thereunder.

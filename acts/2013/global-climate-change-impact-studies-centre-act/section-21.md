@@ -1,0 +1,1 @@
+21. Validity of proceedings.—No act or proceeding of the Centre or the Board shall be invalid by reason only of the existence of a vacancy in, or defect in constitution of, the Centre or the Board, as the case may be.
