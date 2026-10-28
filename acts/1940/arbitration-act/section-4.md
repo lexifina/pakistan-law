@@ -1,0 +1,1 @@
+4. Agreement that arbitrators be appointed by third party. The parties to an arbitration agreement may agree that any reference thereunder shall be to an arbitrator or arbitrators to be appointed by a person designated in the agreement either by name or as the holder for the time being of any office or appointment.

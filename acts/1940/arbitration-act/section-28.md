@@ -1,0 +1,2 @@
+28. Power to Court only to enlarge time for making award.—(1) The Court may, if it thinks fit, whether the time for making the award has expired or not and whether the award has been made or not, enlarge from time to time the time for making the award.
+(2) Any provisions in an arbitration agreement whereby the arbitrators or umpire may, except with the consent of all the parties to the agreement, enlarge the time for making the award, shall be void and of no effect.

@@ -1,0 +1,3 @@
+46. Application of Act to statutory arbitrations. The provisions of this Act, except sub-section (1) of section 6 and section 7, 12, [^8][,36] and 37, shall apply to every arbitration under any other enactment for the time being in force, as if the arbitration were pursuant to an arbitration agreement and as if that other enactment were an arbitration agreement, except in so far as this Act is inconsistent with that other enactment or with any rules made thereunder.
+
+[^8]: Subs. by the Central Laws (Statute Reform) Ordinance, 1960 (21 of 1960), s. 3 and 2nd Sch. (with effect from the 14th October, 1955), for “the Provinces and the Capital of the Federation” which had been subs. by A.O., 1949, for “British India”
