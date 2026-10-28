@@ -1,0 +1,2 @@
+6. The Chairman.—(1) The Federal Government shall appoint one of the Commissioners to be the Chairman of the Commission, and no Commissioners shall be appointed Chairman for more than two consecutive terms.
+(2) The Chairman shall be the chief executive officer of the Commission and shall, together with the other Commissioners, be responsible for the day to day administration of the affairs of the Commission and shall, subject to the regulations made by the Commission, be assisted by the other Commissioners in carrying out the functions of the Commission.

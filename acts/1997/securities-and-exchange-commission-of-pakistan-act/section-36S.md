@@ -1,0 +1,2 @@
+36S. Annual report.—(1) AOB shall, within six months on the close of its financial year or such later time as allowed by the Federal Government, submit to the Federal Government and publish an annual report including its performance and future plans and such contents and information as may be prescribed.
+(2) AOB shall ensure that the annual report is accompanied by such other information and statements as may be prescribed.

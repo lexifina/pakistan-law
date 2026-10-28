@@ -1,0 +1,1 @@
+36Y. Registration and supervision fees.—AOB shall specify fee for the registration of auditors of public interest companies, supervision fee for the public interest companies and such others as specified.

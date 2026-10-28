@@ -1,0 +1,1 @@
+36AA. Power to give directions, circulars, code, guidelines etc.—AOB may issue such directives, circular, code, guidelines or policy statements as it considers appropriate to carry out the purposes of this Part.

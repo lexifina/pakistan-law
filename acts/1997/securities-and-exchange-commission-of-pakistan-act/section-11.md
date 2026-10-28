@@ -1,0 +1,1 @@
+11. The Commission to furnish information. The Commission shall furnish to the Federal Government or the Board such information with respect to the policy it is pursuing or proposes to pursue in the performance of any of its functions under this Act as the Federal Government or the Board may, from time to time, require.
