@@ -1,0 +1,4 @@
+28. Private wharves, etc., prohibited.— (1) Save as hereinafter provided, no person except the Board shall make, erect or fix below high-water mark within the Port area any wharf, dock, quay, stage, jetty, pier, erection or mooring.
+(2) Any matter or thing so made, erected or fixed may be removed by the Board and the person who has so made, erected or fixed any such matter or thing shall be punished with fine, [^17][as fixed by the Board from time to time, an initial fine and recurring fine] for every day during which such mater or thing has been permitted to remain so made, erected or fixed after notice to remove the same has been given to him, and shall also be liable to pay all expenses which may have been incurred by the Board in removing such matter or thing.
+
+[^17]: Subs. by the ord. 43 of 2002, s.7.

@@ -1,0 +1,1 @@
+53. Indemnity. No suit, prosecution or other legal proceedings shall lie against the Authority, the Board, the Chairman, any member, officer or servant of the Authority in respect of anything in good faith done or intended to be done under this Act.

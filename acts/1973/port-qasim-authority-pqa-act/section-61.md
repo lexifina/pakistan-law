@@ -1,0 +1,1 @@
+61. Cognizance of offences.— No Court shall take cognizance of any offence punishable under this Act except on a complaint in writing made by the Authority or by an officer authorised for the purpose by the Authority.

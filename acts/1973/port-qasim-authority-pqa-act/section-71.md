@@ -1,0 +1,5 @@
+71. Transfer of Phitti Creek Project Cell to the Authority.— (1) Notwithstanding anything to the contrary in any contract or agreement or in the conditions of service, the [^27][division concerned] may, subject to the provisions of sub-section (2), transfer persons in the service of Pakistan serving in the Phitti Creek Project Cell, hereinafter referred to as the Cell, under the department of the Government headed by the Director-General, Ports and Shipping, immediately before the commencement of this Act to the Authority on the same terms and conditions to which they were entitled immediately before such commencement.
+(2) Notwithstanding anything in sub-section (1), only such persons serving in the Cell shall be transferred to the Authority as opt for service in the Authority.
+(3) No person in the service of Pakistan who is transferred to the Authority under sub-section (1), shall, notwithstanding anything contained in any law for the time being in force, be entitled to any compensation because of such transfer.
+
+[^27]: Ins. new sections ss. 71A-71C by Ord. 43 of 2002, s. 10.

@@ -1,0 +1,3 @@
+36. Compensation for damage. Where any damage is caused to any land in consequence of anything done in pursuance of section 35, there shall be paid compensation, the amount of which shall be determined in the manner and in accordance with the provisions hereinafter set out, that is to say,
+(a) where the amount of compensation can be fixed by agreement, it shall be fixed in accordance with such agreement; and
+(b) where no such agreement can be reached, it shall be fixed by the Deputy Commissioner.

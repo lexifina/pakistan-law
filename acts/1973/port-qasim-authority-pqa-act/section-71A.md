@@ -1,0 +1,5 @@
+[^27][71A. Responsibilities of Master, regarding damages and declaration, etc. The Master, agent, and owner of a vessel, shall, severally, and jointly, be responsible for:
+(a) any damage caused to the property and servants of the Port, whether within Ports’s limits or in the approaches, by their vessel or servants. Such vessel shall be detained by the Authority till such time the cost of the damage as determined by the Authority is paid; (b) any mis-declaraton of particulars of a vessel and for disobeying the parameters specified for handling of vessels in Port Qasim Harbour, and shall be liable to a penalty as determined and notified by the Authority from time to time; and
+(c) the sinking or grounding of any vessel or causing damage to any other vessel in the port limits or approaches, caused by their vessel of their servants, and for removal of the sunk, ground or damaged vessel at their own risk and cost, failing which, the Authority may salvage or remove such vessel out of the port’s limits and the cost of such removal shall be recoverable from the sale proceeds of such vessel.
+
+[^27]: Ins. new sections ss. 71A-71C by Ord. 43 of 2002, s. 10.

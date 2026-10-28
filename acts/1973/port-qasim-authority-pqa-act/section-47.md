@@ -1,0 +1,1 @@
+47. Authority to give direction. The Authority may give directions to the Deputy Commissioner in respect of the exercise of his powers and the discharge of his functions under this Chapter and the Deputy Commissioner shall be guided, and act in accordance with, such directions.
