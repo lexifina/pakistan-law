@@ -1,0 +1,1 @@
+31. Members and officers to be public servants.— Every member of the Commission and every officer appointed or authorized by the Commission to exercise functions under this Act shall he deemed to be a public servant within the meaning of section 21 of the Pakistan Penal Code, 1860 (Act XLV of 1860).

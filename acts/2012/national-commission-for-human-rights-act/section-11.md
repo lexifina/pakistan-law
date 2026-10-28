@@ -1,0 +1,2 @@
+11. Advisory Committee.—The Commission may constitute an advisory committee consisting of human rights activists, civil society organizations, members of bar associations, members of press clubs and such other representatives of the Federal and Provincial Governments as may be concerned with the functions of the Commission:
+Provided that the members of the advisory committee shall perform their functions in an honorary capacity to assist the Commission in their areas of competence and expertise.

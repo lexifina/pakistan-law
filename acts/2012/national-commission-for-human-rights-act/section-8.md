@@ -1,0 +1,2 @@
+8. Terms and conditions of service of members including Chairperson.—The salaries and allowances payable to, and terms and conditions of service of the members, other than ex-officio member, shall be such as may be prescribed by the Federal Government in consultation with the Commission:
+Provided that neither the salary and allowances nor the terms and conditions of service of a member shall be varied to his disadvantage after his appointment.

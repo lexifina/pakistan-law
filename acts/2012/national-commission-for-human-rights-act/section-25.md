@@ -1,0 +1,1 @@
+25. Power to obtain finances and receive grants.—The Commission may, from time to time, obtain and receive unconditional grants or contributions from donors and non-governmental organizations in a transparent manner. No contribution from any foreign source, private or governmental, shall be acceptable except after the approval of the Federal Government.

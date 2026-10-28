@@ -1,0 +1,1 @@
+6. Removal of the Chairperson and members.—The Chairman and members may be removed from office on the grounds and in the manner provided for in Article 209 of the Constitution of the Islamic Republic of Pakistan.

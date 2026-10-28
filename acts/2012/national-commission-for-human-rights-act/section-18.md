@@ -1,0 +1,6 @@
+18. Steps after inquiry.—The Commission may take any of the following, amongst other, steps upon the completion of an inquiry held under this Act, namely:—
+(a) where the inquiry discloses the commission of violation of human rights or negligence in the prevention of violation of human rights by a public servant, it may recommend to the concerned Government or authority the initiation of proceedings for prosecution or such other action as the Commission may deem fit against the concerned person or persons;
+(b) recommend to the concerned Government or authority for the grant of such immediate interim relief to the victim or the members of his family as the Commission may consider necessary;
+(c) provide a copy of the inquiry report to the complainant or his representative;
+(d) the Commission shall send a copy of its inquiry report together with its recommendations to the Government or authority which shall, within a period of one month or such further time as the Commission may allow, submit its reply indicating the action taken or proposed to be taken to implement the recommendations or reasons why these cannot or should not be implemented; and
+(e) the Commission shall publish its inquiry report together with its recommendations and the reply of the Government or authority thereto.
