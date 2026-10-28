@@ -1,0 +1,5 @@
+7. Revision and appeal.__ (1) Any person feeling aggrieved by an order passed by Government or by any officer or authority under section 3 or section 4, may, within thirty days of the date of the order, apply to Government for a revision of the order.
+(2) Any person feeling aggrieved by an order passed by the Director under section 4 may, within thirty days of the date of the order, prefer an appeal to Government.
+(3) If in any case it shall appear to Government that any order passed by Government or the Director, as the case may be, be set aside or modified, Government may pass such order thereon as may be deemed fit:
+Provided that no such order shall be passed unless, in the case of an appeal, the appellant and in any other case the party to be affected adversely, has been given a reasonable notice to appear and be heard.
+(4) Subject to any order passed by Government under the last preceding sub-section the order passed by Government or the Director under section 3 or section 4, as the case may be, shall be final.

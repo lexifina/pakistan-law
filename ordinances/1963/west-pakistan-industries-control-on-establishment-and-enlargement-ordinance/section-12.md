@@ -1,0 +1,1 @@
+12. Ordinance to over-ride other laws.– The provisions of this Ordinance and the rules and orders made thereunder shall have effect notwithstanding anything to the contrary contained in any other law, contract, instrument or document for the time being in force.
