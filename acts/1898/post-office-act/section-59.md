@@ -1,0 +1,2 @@
+59. Penalty for contravention of section 5.___(1) Whoever, in contravention of the provisions of section 5, carries, receives, tenders or delivers letters, or collects letters, shall be punishable with fine which may extend to fifty rupees for every such letter.
+(2) Whoever, having already been convicted of an offence under this section, is again convicted thereunder, shall, on every such subsequent conviction, be punishable with fine which may extend to five hundred rupees.

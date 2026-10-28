@@ -1,0 +1,5 @@
+67. Penalty for detaining mails or opening mail bag. Whoever, except under the authority of this Act [^127][or of any other Act for the time being in force] or in obedience to the order in writing of the [^125][Federal Government] or the direction of a competent Court, detains the mails or any postal article in course of transmission by post, or on any pretence opens a mail bag in course of transmission by post, shall be punishable with fine which may extend to two hundred rupees:
+Provided that nothing in this section shall prevent the detention of an officer of the Post Office carrying the mails or any postal article in course of transmission by post, on a charge of having committed an offence declared to be cognizable by the Code of Criminal Procedure, 1898 (V of 1898), or any other law for the time being in force.
+
+[^125]: Subs. by F.A.O., 1975, Art. 2 and Table, for “Central Government”, which had been subs. by A.O., 1937, for “G. G. in C”.
+[^127]: Ins. by the Indian Post Office (Amendment) Act, 1921 (15 of 1921) s.4.

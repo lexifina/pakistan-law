@@ -1,0 +1,1 @@
+72. Authority for prosecutions under certain sections of Act. No Court shall take cognizance of an offence punishable under any of the provisions of sections 51, 53, 54, clauses (a) and (b), 55, 56, 58, 59, 61,64,65, 66 and 67 of this Act, unless upon complaint made by order of, or under authority from, the Director General or a Post Master General.

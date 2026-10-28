@@ -1,0 +1,2 @@
+50. Penalty for voluntary withdrawal from duty, without permission or notice, of person
+employed to carry or deliver mail bags or postal articles. Whoever, being employed to carry or deliver any mail bag or any postal article in course of transmission by post, voluntarily withdraws from the duties of his office without, permission or without having given one month’s previous notice in writing, shall be punishable with imprisonment which may extend to one month, or with fine which may extend to fifty rupees, or with both.

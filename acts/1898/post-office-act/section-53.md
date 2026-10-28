@@ -1,0 +1,4 @@
+53. Penalty for opening, detaining or delaying postal articles. Whoever, being an officer of the Post Office, contrary to his duty, opens, or causes or suffers to be opened, any postal article in course of transmission by post, or wilfully detains or delays, or causes or suffers to be detained or delayed, any such postal article, shall be punishable with imprisonment for a term which may extend to two years, or with fine, or with both:
+Provided that nothing in this section shall extend to the opening, detaining or delaying of any postal article under the authority of this Act or in obedience to the order in writing of the [^115][Federal Government] or the direction of a competent Court.
+
+[^115]: Subs. by F.A.O., 1975, Art, 2 and Table for “Central Government”, which had been subs, by A.O ,., 1937 for “G.G in C”
