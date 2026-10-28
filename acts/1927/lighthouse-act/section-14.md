@@ -1,0 +1,1 @@
+14. Refusal of port‑clearance. The officer whose duty it is to grant a port‑clearance for any ship shall not grant the port‑clearance until the amount of all light‑dues, expenses and costs payable in respect of the ship under this Act and of any fines imposed thereunder has been paid, or until security for the payment thereof has been given to his satisfaction.
