@@ -1,0 +1,8 @@
+6. Regulation of wages and conditions of service. ___(1) The [^18][Federal Government] [^19]* * *, may make rules[^20] regulating or empowering a specified authority to regulate the wages and other conditions of service of persons or of any class of persons engaged in any employment or class of employment declared under section 3 to be an employment or class of employment to which this Act applies.
+[^21][(1A) Notwithstanding any provision in any such rules or directions regulating wages and other conditions of service, including any rules made or directions given before the commencement of the Pakistan Essential Services (Maintenance) (Amendment) Ordinance, 1978, as to the day on which they shall come into force, the Federal Government may direct that they shall be deemed to have taken effect on such day, not preceding the day on which such rules were made or direction were given, as the Federal Government may specify.]
+(2) When any such rules have been made or when any directions regulating wages or conditions of service have been given by an authority empowered by such rules to give them, any person failing to comply therewith is guilty of an offence under this Act.
+
+[^18]: Subs. by F.A.O., 1975 Art, 2 and Table.
+[^19]: The original words “or Provincial or State Government” omitted by the Essential Services Maintenance (Adaptation Order, 1956 (P.O. No. 13 of 1956), Art. 2 and Sch.
+[^20]: For the Pakistan Essential Services (Maintenance) Rules, 1962, see Gaz. of P., 1962, Ext., p. 1153a.
+[^21]: Added by the Pakistan Essential Services (Maintenance (Amdt.) Ordinance 1978 (36 of 1978.) (s. 2, (w.e.f. 25-1-1978).
