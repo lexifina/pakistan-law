@@ -1,0 +1,1 @@
+27. Appointment of committees by certain authorities.—The Board of trustees, Board, the Executive Committee, the Academic Council and other authorities may, from time to time, appoint such standing, special or advisory committees, as they may deem fit, and may place on such committee persons who are not members of the authorities appointing the committees.
