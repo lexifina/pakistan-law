@@ -1,0 +1,2 @@
+9. Penalty for contravention of this Ordinance by an employer and application of fine in payment of compensation.—(1) If any employer contravenes any provision of this Ordinance, he shall be liable to a fine which may extend to five hundred rupees.
+(2) Whenever a Count imposes a fine under this section or confirms in appeal, revision or otherwise such a sentence, it may, when passing judgment order the whole or any part of compensation the fine recovered to be applied in the payment of compensation to the woman concerned for any loss or damage caused to her
