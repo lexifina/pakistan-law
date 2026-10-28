@@ -1,0 +1,1 @@
+6. Penalty for gaming in private places, etc. Whoever is found gaming in any house, room, tent, enclosure, vehicle, vessel or other place shall be punishable with imprisonment for a term which may extend to two years, or with fine which may extend to one thousand rupees, or with both.

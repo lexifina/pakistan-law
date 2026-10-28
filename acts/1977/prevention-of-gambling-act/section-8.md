@@ -1,0 +1,6 @@
+8. Power to enter and search. If a District Magistrate, Sub-divisional Magistrate, Magistrate of the first class upon information and after such inquiry as he thinks necessary, has reason to believe that any place is used as a common gaming-house, or that an offence under section 6 is being committed at or in any place, he may—
+(a) enter such place at any time with such assistance as he may require and using such force as may be necessary:
+Provided that, if such place is in the actual occupancy of a woman who, according to custom, does not appear in public, the officer so entering such place shall give notice to her that she is at liberty to withdraw and, after allowing reasonable time for her to withdraw and giving her reasonable facility for withdrawing, may enter the place;
+(b) search such place for any instruments of gaming kept or concealed therein, and also the person of all those who are found in that place, except the women;
+(c) seize and take possession of gaming moneys and securities for money and articles of value reasonably suspected to have been used or intended to be used for the purpose of gaming which are found therein or upon any person found therein; and
+(d) take into custody all persons, except women, found in that place, whether or not then actually gaming.
