@@ -1,0 +1,2 @@
+32. Removal of difficulties (1) Subject to sub-section (2), if any difficulty arises in giving effect to any of the provisions of this ordinance, the federal government may make such order, not inconsistent with the provisions of this ordinance, as may appear to it to be necessary for the purpose of removing the difficulty.
+(2) No order under sub-section (1) shall be made after expiry of two years from the commencement of this Ordinance.

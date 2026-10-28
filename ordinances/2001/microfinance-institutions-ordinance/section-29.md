@@ -1,0 +1,1 @@
+29. Indemnity.___ No suit or other legal proceeding shall lie against the federal by government, the state bank or nay officer of the federal government or the state bank for anything which is in good faith done, or intended to be done, under this ordinance or of any rules, regulations or orders made there under.

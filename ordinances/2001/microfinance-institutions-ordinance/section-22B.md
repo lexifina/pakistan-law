@@ -1,0 +1,6 @@
+22B. Power of the state Bank to supersede Board of Directors of microfinance banks.___ (1) Where the state Bank is satisfied that__
+(a) the association of the Board of Directors, by whatever name called, of a microfinance bank, is or is likely to be detrimental to the interests of the microfinance bank or its depositors or otherwise undesirable; or
+(b) for all or any of the reasons mentioned in sub-section (1) of section 22A, it is necessary so to do, the State Bank may, for reasons to be recorded in writing, by order, supersede the Board of Directors of a microfinance bank with effect from such date and for such period as may be specified in the order.
+(2) The period of supersession specified in an order under sub-section (1) may from time to time be extended by the State Bank and the total period of supersession shall in no case exceed three years.
+(3) All orders and duties of the Board of Directors shall, during the period of supersession, be exercised and performed by such persons as the State Bank may from time to time appoint in this behalf
+(4) The provisions of sub-sections (2), (3), (4), and (5) of section 22A shall, apply to an order made under sub-section (1) or sub-section (3).

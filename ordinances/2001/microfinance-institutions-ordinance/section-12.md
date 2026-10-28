@@ -1,0 +1,10 @@
+## LICENSING
+[^8][12. Existing microfinance institutions.___ (1) Any person performing the functions of a non-deposit taking microfinance institution may make an application to the state bank on such forms accompanying such information and fee, as may be prescribed, for issuance of a license to set up microfinance bank and take deposits.
+(2) The State Bank may, on receipt of the application, make such enquiries as it considers necessary and either grant a license as for a specified area as permissible under this ordinance, subject to such conditions as the State Bank may think fit to impose or for reasons to be recorded in writing, reject the application for the license.
+(3) Before granting the license, the State Bank shall satisfy itself by an inspection of the books of the microfinance institution, programme, project or otherwise, etc, that—
+(a) the micro finance institution, project or programme, etc., enjoys a good financial health and is and will be in a position to meet its liabilities; and
+(b) the affairs of the microfinance institution are not being, and are not likely to be, conducted in a manner detrimental to the interests of its members and present or future customers.
+(4) Where an application of a non-deposit taking microfinance institution for grant of license to take deposits is rejected, the concerned microfinance institutions may continue operations as a non-deposit taking micro finance institution.
+(5) If the State Bank rejects such an application for grant of licence to take deposits, the applicant may, within thirty days from the date of the order of the State Bank, prefer an appeal to the Central Board of the State Bank and the order passed by the Central Board in this respect shall be final.]
+
+[^8]: Sub by the Finance Act, 2006 (3 of 2006), s.18 for “section 12”.
