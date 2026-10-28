@@ -1,0 +1,1 @@
+120. Estoppel against denying original validity of instrument. No maker of a promissory note, and no drawer of a bill of exchange or cheque, and no acceptor of a bill of exchange for the honour of the drawer, shall, in a suit thereon by a holder in due course, be permitted to deny the validity of the instrument as originally made or drawn.

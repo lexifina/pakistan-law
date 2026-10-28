@@ -1,0 +1,2 @@
+106. Reasonable time of giving notice of dishonour. If the holder and the party to whom notice of dishonour is given carry on business or live (as the case may be) in different places, such notice is given within a reasonable time if it is despatched by the next post or on the day next after the day of dishonour.
+If the said parties carry on business or live in the same place, such notice is given within a reasonable time if it is despatched in time to reach its destination on the day next after the day of dishonour.

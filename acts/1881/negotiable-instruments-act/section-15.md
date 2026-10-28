@@ -1,0 +1,1 @@
+15. Indorsement. When the maker or holder of a negotiable instrument signs the same, otherwise than as such maker, for the purpose of negotiation, on the back or face thereof or on a slip of paper annexed thereto, or so signs for the same purpose a stamped paper intended to be completed as a negotiable instrument, he is said to indorse the same, and is called the “indorser.”

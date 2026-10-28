@@ -1,0 +1,1 @@
+29C. Stranger signing instrument presumed to be indorser. A person placing his signature upon a negotiable instrument otherwise than as maker, drawer or acceptor is pre-sumed to be an indorser unless he clearly indicates by appropriate words his intention to be bound in some other capacity.]

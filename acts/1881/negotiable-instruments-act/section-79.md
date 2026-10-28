@@ -1,0 +1,14 @@
+[^65][79. Interest or return in any other form when rate specified or not specified. Subject to the provisions of any law for the time being in force relating to the relief of debtors, and without prejudice to the provisions of section 34 of the Code of Civil Procedure, 1908, (Act V of 1908)—
+(a) when interest [^66][or return in any other form] at a specified rate is expressly made payable on a promissory note or bill of exchange and no date is fixed from which interest [^66][or return in any other form] is to be paid, interest [^66][or return in any other form] shall be calculated at the rate specified, on the amount of the principal money due thereon, from the date of the note, or, in the case of a bill, from the date on which the amount becomes payable, until tender or realisation of such amount, or until the date of the institution of a suit to recover such amount;
+(b) when a promissory note or bill of exchange is silent as regards interest or does not specify the rate of interest,
+on the amount of the principal money due thereon shall, notwithstanding any collateral agreement relating to interest between any parties to the instrument, be allowed and calculated at the rate of six per centum per annum from the date of the note, or, in the case of a bill, from the date on which the amount becomes payable, until tender or realization of the amount due thereon, or until the date of the institution of a suit to recover such amount [ : ][^67]
+[^68][Provided that in the case of an amount due on an instrument where the return is on bases other than interest, the return on the amount due, when no rate of return is specified in the instrument, shall be calculated at the following rate :—
+(i) in the case of return on the basis of mark-up in price, lease, hire-purchase or service charges, at the contracted rate of mark-up, rental, hire or service charges, as the case may be; and
+(ii) in the case of return on the basis of participation in profit and loss, at such rate as the Court may consider just and reasonable in the circumstances of the case, keeping in view the profit-sharing agreement entered into between the banking company and the judgement debtor when the loan was contracted;]
+[^69][(c) notwithstanding the provisions of clauses (a) and (b), return on an amount due on an instrument where the return is on bases other than interest shall be allowed from the date it becomes due till the date it is actually paid.]
+
+[^65]: Subs. by the Negotiable Instruments (Amdt.) Ordinance 1962 (49 of 1962). s. 38, for the original section 79.
+[^66]: Ins. by the Negotiable Instruments (Amdt.) Ordinance, 1980 (61 of 1980), s. 3.
+[^67]: Subs by the Negotiable Instruments (Amdt.) Ordinanee, 1980 (61 of 1980), s, 3. for full stop.
+[^68]: Proviso added ibid.
+[^69]: Clause (c) ins. ibid.

@@ -1,0 +1,1 @@
+95. Party receiving must transmit notice of dishonour. Any party receiving notice of dishonour must, in order to render any prior party liable to himself, give notice of dishonour to such party within a reasonable time, unless such party otherwise receives due notice as provided by section 93.

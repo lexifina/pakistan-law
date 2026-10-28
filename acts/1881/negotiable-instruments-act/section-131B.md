@@ -1,0 +1,3 @@
+[^102][131B. Protection to banker crediting cheque crossed “account payee”. Where a cheque is delivered for collection to a banker which does not at the time of such delivery appear to be crossed “account payee”, or to have had a crossing “account payee” which has been obliterated or altered, the banker, in good faith and without negligence collecting payment of the cheque and crediting the proceeds thereof to a customer, shall not incur any liability by reason of the cheque having been crossed “account payee”, or of such crossing having been obliterated or altered, and of the proceeds of the cheque having been credited to a person who is not the payee thereof.
+
+[^102]: Sections 131B and 131C ins. by Ord. 49 of 1962, s. 49.

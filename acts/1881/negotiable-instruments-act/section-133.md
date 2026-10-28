@@ -1,0 +1,1 @@
+133. Holder of first acquired part entitled to all. As between holders in due course of different parts of the same set he who first acquired title to his part is entitled to the other parts and the money represented by the bill.

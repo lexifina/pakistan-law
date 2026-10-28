@@ -1,0 +1,1 @@
+131H. Holder’s right of recourse against drawer and indorsers. Subject to the provisions of this Act, when a bill of exchange is dishonoured by non-acceptance, an immediate right of recourse against the drawer and indorsers accrues, to the holder, and no presentment for payment is necessary.

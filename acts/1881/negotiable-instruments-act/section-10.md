@@ -1,0 +1,1 @@
+10. “Payment in due course”. “Payment in due course” means payment in accordance with the apparent tenor of the instrument in good faith and without negligence to any person in possession thereof under circumstances which do not afford a reasonable ground for believing that he is not entitled to receive payment of the amount therein mentioned.

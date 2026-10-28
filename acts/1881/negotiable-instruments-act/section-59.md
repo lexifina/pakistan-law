@@ -1,0 +1,6 @@
+59. Instrument acquired after dishonour or when overdue. The holder of a negotiable instrument, who has acquired it after dishonour, whether by non-acceptance or nonpayment, with notice thereof, or after maturity, has only, as against the other parties, the rights thereon of his transferor [^47][and is subject to the equities to which the transferor was subject at the time of acquisition by such holder]:
+Accommodation note or bill. Provided that any person who, in good faith and for consi-deration, becomes the holder, after maturity, of a promissory note or bill of exchange made, drawn or accepted without consideration, for the purpose of enabling some party thereto to raise money thereon, may recover the amount of the note or bill from any prior party.
+Illustration
+The acceptor of a bill of exchange, when he accepted it, deposited with the drawer certain goods as a collateral security for the payment of the bill, with power to the drawer to sell the goods and apply the proceeds in discharge of the bill if it were not paid at maturity. The bill not having been paid at maturity, the drawer sold the goods and retained the proceeds, but indorsed the bill to A. A’s title is subject to the same objection as the drawer’s title.
+
+[^47]: Ins. ibid.,s.32.

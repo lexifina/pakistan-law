@@ -1,0 +1,1 @@
+39. Suretyship. When the holder of an accepted bill of exchange enters into any contract with the acceptor which, under section 134 or 135 of the Contract Act, 1872 (IX of 1872), would discharge the other parties, the holder may expressly reserve his right to charge the other parties, and in such case they are not discharged.

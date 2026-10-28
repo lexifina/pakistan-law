@@ -1,0 +1,1 @@
+66. Presentment for payment of instrument payable after date or sight. A promissory note or bill of exchange, made payable at a specified period after date or sight thereof, must be presented for payment at maturity.

@@ -1,0 +1,1 @@
+112. When acceptor for honour may be charged. An acceptor for honour cannot be charged unless the bill has at its maturity been presented to the drawee for payment, and has been dishonoured by him, and noted or protested for such dishonour.

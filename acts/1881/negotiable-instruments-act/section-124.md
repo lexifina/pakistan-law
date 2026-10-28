@@ -1,0 +1,1 @@
+124. Cheque crossed specially. Where a cheque bears across its face an addition of the name of a banker, either with or without the words “not negotiable”, that addition shall be deemed a crossing, and the cheque shall be deemed to be crossed specially, and to be crossed to that banker.
