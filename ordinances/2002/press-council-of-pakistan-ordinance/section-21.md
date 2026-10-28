@@ -1,0 +1,1 @@
+21. Members, etc., to be public servants.__ Every member of the Council and the Commission and every officer or other employee appointed by the Council shall be deemed to be a public servant within the meaning of section 21 of the Pakistan Penal Code, 1860 (XLV of 1860).
