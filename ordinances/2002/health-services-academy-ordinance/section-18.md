@@ -1,0 +1,1 @@
+18. Power to make rules:__ The Federal Government may, by notification in the official Gazette, make rules for carrying out the purposes of this Ordinance, including rules to regulate the financial and administrative matters related to the Academy.

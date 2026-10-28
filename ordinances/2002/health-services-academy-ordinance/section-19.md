@@ -1,0 +1,1 @@
+19. Power to make regulations:__ The Executive Committee may, with the approval of the Board, by notification in the official Gazette, make regulations, not inconsistent with this Ordinance and the rules, providing for all matters for which provision is necessary or expedient for giving effect to this ordinance and efficient conduct of the affairs of the Academy.
