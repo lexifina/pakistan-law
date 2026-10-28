@@ -1,0 +1,5 @@
+13. Gaming and setting birds and animals to fight in public streets. A police-officer may apprehend without warrant any person found playing for money or other valuable thing with cards, dice, counters or other instruments of gaming, used in playing any game not being a game of mere skill in any public street, place or thoroughfare situated within the limits aforesaid, or
+any person setting any birds or animals to fight in any public street, place or thoroughfare situated within the limits aforesaid, or
+any person there present aiding and abetting such public fighting of birds and animals.
+Such person when apprehended shall be brought without delay before a Magistrate, and shall be liable to a fine not exceeding fifty rupees, or to imprisonment, either simple or rigorous for any term not exceeding one calendar month;
+Destruction of instruments of gaming found in public streets. and such police-officer may seize all instruments of gaming found in such public place or on the person of those whom he shall so arrest, and the Magistrate may on the conviction of the offender order such instruments to be forthwith destroyed.
