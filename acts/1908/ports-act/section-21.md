@@ -1,0 +1,12 @@
+21. Improperly discharging ballast.— (1) No ballast or rubbish, and no other thing likely to form a bank or shoal or to be detrimental to navigation, shall, without lawful excuse, be cast or thrown into any such port or into or upon any place on shore from which the same is liable to be washed into any such port, either by ordinary or high tides, or by storms or land-floods [^48][and no oil or water mixed with oil shall be discharged in or into [^49][, or in any place from which the same is liable to be washed as aforesaid into,] any such port, to which any rules made under clause (ee) of sub-section (1) of section 6 apply, otherwise than in accordance with such rules].
+(2) Any person who by himself or another so casts or throws any ballast or rubbish or any such other thing [^48][or so discharges any oil or water mixed with oil], and the master of any vessel from which the same is so cast, [^50][thrown or discharged], shall be punishable with fine which may extend to [^51][fifty thousand] rupees, and shall pay any reasonable expenses which may be incurred in removing the same.
+(3) If, after receiving notice from the conservator of the port to desist from so casting or throwing any ballast or rubbish or such other thing [^44][or from so discharging any oil or water mixed with oil], any master continues so to cast, [^50][throw or discharge the same], he shall [^51][be punishable with a further fine which may extend to two thousand rupees for each day after the receipt of such notice and also be liable to simple imprisonment for a term which may extend to six months].
+(4) Nothing in this section applies to any case in which the ballast or rubbish or such other thing is cast or thrown into, [^52][or the oil or water mixed with oil is discharged in or into,] any such port with the consent in writing of the conservator, or within any limits within which such act may be authorized by the [^53][Government].
+
+[^44]: The original words “the Secretary of State for India in Council” were first subs. by A.O., 1937 and then amended by A.O., 1961, Art. 2 (with effect from the 23rd March, 1956) to read as above.
+[^48]: Subs. by Act 39 of 1923, s, 3. for “or thrown”,
+[^49]: Subs. by Act 28 of 1975, s. 2, for “five hundred”,
+[^50]: Subs. by Act 39 of 1923, s. 3. for “or throw it”,
+[^51]: Subs. by Act 28 of 1975, s. 2, for “also be liable to simple imprisonment for a term which may extend to two months”.
+[^52]: Ins. by the Indian Ports (Amdt.) Act, 1923 (39 of 1923), s. 3.
+[^53]: Subs.. by A.O..1987. for “L. G.”.

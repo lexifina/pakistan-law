@@ -1,0 +1,2 @@
+26. Leaving out warp or hawser after sunset.— (1) A master of a vessel shall not, cause or suffer any warp or hawser attached to his vessel to be left out in any port subject to this Act after sunset in such a manner as to endanger the safety of any other vessel navigating in the port.
+(2) A master offending against sub-section (1) shall be punishable for every such offence with fine which may extend to two hundred rupees.

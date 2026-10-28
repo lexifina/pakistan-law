@@ -1,0 +1,6 @@
+63. Foreign deserters. Any Magistrate, upon an application being made to him by the Consul of any Foreign Power to which section 238 of the Merchant Shipping Act, 1894 (57 & 58 Viet. c. 60), has, by an Order in Council [^117][or order], been, or shall hereafter be, declared to be applicable, or by the representative of such Consul, and upon complaint on oath of the desertion of any seaman, not being a slave, from any vessel of such Foreign Power, may, until a revocation of such order in Council
+[^118][or order] has been publicly notified, issue his warrant for the apprehension of any such deserter, and, upon due proof of the desertion, may order him to be conveyed on board the vessel to which he belongs, or, at the instance of the Consul, to be detained in custody until the vessel is ready to sail, or, if the vessel has sailed, for a reasonable time not exceeding one month:
+Provided that a deposit be first made of such sure as the Magistrate deems necessary for the subsistence of the deserter during the detention and that the detention of the deserter shall not be continued beyond twelve weeks.
+
+[^117]: Ins. by A. O., 1961, Art. 2 and Sch. (with effect from 23rd March, 1956)
+[^118]: Ins. by A.O., 1961, Art. 2 and Sch. (with effect from the 23rd March, 1956).
