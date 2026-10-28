@@ -1,0 +1,2 @@
+38. Fund and functions of the Provincial Co-operative Federation.―(1) A Provincial Co-operative Federation shall have a fund to which shall be credited the contributions received by it from the District Co-operative Federations and out of which shall be defrayed its office and other expenses.
+(2) The functions of the Provincial Co-operative Federation shall be to deal with matters of mutual interest to the societies in the Province and make recommendations to the Co-operative Council on matters with which the Provincial Government is concerned.

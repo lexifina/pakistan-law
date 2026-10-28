@@ -1,0 +1,5 @@
+29. Effect of winding up.―When a society is wound up―
+(a) the standing crop of the co-operative farm shall be harvested and the produce income distributed in accordance with the provisions of this Act ;
+(b) the land comprising the co-operative farm shall revert to the members together with improvements, if any, made by the society and subject to the encumbrances, if any, created thereon by the society and subject to payment by each member of the cost of such improvements on his land as at the time of the winding up ;
+(c) after all the liabilities of the society have been met, the assets of the society, including the Reserve Fund, shall, subject to clause (d), be divided amongst the members in proportion to the value of the land pooled by them ; and
+(d) the hospitals, schools and other social institutions, if any, established by the society shall stand transferred to, and vest in, the District Co-operative Federation and shall be managed by it in accordance with schemes prepared by it and approved by the Provincial Co-operative Federation.

@@ -1,0 +1,1 @@
+2. Act to override other laws.―The provisions of this Act and the rules shall have effect notwithstanding anything contained in the Co-operative Societies Act, 1925 (Act VII of 1925), or in any other law for the time being in force relating to the rights of landlords and tenants.

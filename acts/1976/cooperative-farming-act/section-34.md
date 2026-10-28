@@ -1,0 +1,1 @@
+34. Recoveries of dues.―Every award made under section 32, every order passed in appeal under that section, and every order passed under section 5 shall be deemed to be a decree of a civil court and shall be executed in the same manner as a decree of such court.

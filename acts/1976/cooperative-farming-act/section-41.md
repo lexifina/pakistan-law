@@ -1,0 +1,3 @@
+41. Provincial Co-operative Council.―(1) There shall be formed in each Province a Provincial Co-operative Council which shall consist of all the Secretaries to the Provincial Government in the nation-building departments and five representatives of the Provincial Co-operative Federation.
+(2) The Provincial Minister dealing with the matters relating to co-operation shall be the ex-officio Chairman of the Provincial Co-operative Council and the Secretary of the department dealing with such matters shall be the ex-officio Secretary of the Council.
+(3) The Provincial Co-operative Council may make bye-laws relating to its meetings and procedure and the performance of its functions.

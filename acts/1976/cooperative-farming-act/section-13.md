@@ -1,0 +1,4 @@
+13. Evaluation of land, etc.―(1) The land pooled by each member for a co-operative farm shall be evaluated by the Managing Committee according to its quality and area on the basis of produce index units.
+(2) If any land pooled by a member for a co-operative farm contains orchards, ponds or any other immovable structures, the value of the orchards, ponds and other structures shall be assessed by the Managing Committee and added to the shares of such member :
+Provided that trees other than orchards shall continue to be the property of the member and the value thereof shall not be assessed or added to his share :
+Provided further that, if the committee decides to remove such trees or structures standing on any land, such trees or structures shall be removed on payment to the owner of such land of such compensation as may be determined by the committee.

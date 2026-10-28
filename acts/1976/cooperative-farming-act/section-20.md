@@ -1,0 +1,5 @@
+20. Audit and accounts.―(1) The accounts of a society shall be maintained in the prescribed manner, shall be audited every year by an auditor or auditors appointed at each Annual General Meeting out of a list of auditors prepared by the Registrar and shall be laid before the Annual General Meeting for adoption.
+(2) An auditor appointed under sub-section (1) shall have power—
+(a) to summon at the time of audit any officer, agent, servant and member, past or present, of the society whom he has reason to believe can give material information in regard to any transaction of the society or the management of its affairs ; and
+(b) to require the production of a book or document relating to the affairs of, or any cash or security belonging to, the society, by the officer, agent, servant or member believed by the auditor to be in possession of such book, document, cash or security.
+(3) An auditor appointed under sub-section (1) shall hold office until the next Annual General Meeting and shall paid such fees as may be determined by the Annual General Meeting.

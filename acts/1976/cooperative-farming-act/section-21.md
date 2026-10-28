@@ -1,0 +1,1 @@
+21. Transfer of interest on death of a member.―On the death of a member, the rights, interests and liabilities of the member shall devolve on the legal heirs or successors of the member and such legal heirs or successors shall become the members of the society in place of the deceased member.
