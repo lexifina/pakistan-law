@@ -1,0 +1,1 @@
+6[29. Sending fabricated or obscene messages.—any person transmits or causes to be transmitted by telegraph a message which he knows or has reason to believe to be false or fabricated, or a message which is indecent or obscene, he shall be punished with imprisonment for a term which may extend to three years, or with fine, or with both.]
