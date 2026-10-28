@@ -1,0 +1,3 @@
+27. Validation of actions etc.—Anything done, actions taken, orders passed, instruments made, proceedings initiated, processes or communications issued, powers conferred, assumed, exercised by the Federal Government, Provincial Government, Cell or any of its officers, on and after the 29th November, 2015 and before the commencement of this Act, shall be deemed to have been validly done, made, issued, taken, initiated, conferred, assumed, and exercised and the provisions of this Act shall have, and shall be deemed always to have had, effect accordingly.
+_________________
+RGN Date: 31-07-2024 _______________________________________________________________________________

@@ -1,0 +1,1 @@
+26. Removal of difficulty.—If any difficulty arises in giving effect to any of the provisions of this Act, the President may make an order, not inconsistent with the provisions of this Act, for the purposes of removing the difficulty.
