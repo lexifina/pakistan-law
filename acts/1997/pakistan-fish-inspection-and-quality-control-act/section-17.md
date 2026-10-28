@@ -1,0 +1,1 @@
+17. Delegation of powers.—The Federal Government may, by notification in the official Gazette, delegate to the Inspection Committee or the Fishery Officer or any officer or authority, its powers under this Act.
