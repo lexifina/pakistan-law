@@ -1,0 +1,2 @@
+30. Indemnity, etc.⎯ (1) Nothing in this Act shall be construed as imposing upon the Authority, either directly or indirectly, any duty enforceable by proceedings before any court.
+(2) No suit, prosecution or other legal proceedings shall lie against the Authority, the Chairman or any Member, officer, servant, expert, or consultant of the Authority in respect of any damage caused or likely to be caused or anything done or intended to be done in good faith under this Act or the rules or regulations.
