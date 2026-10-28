@@ -1,0 +1,1 @@
+11F. Finality of order. An order passed by a Magistrate under section 11D or section 1 IE shall be final and no court or authority shall entertain any plea as to the jurisdiction of the Magistrate or as to the legality or propriety of the order or allow such an order to be called in question in any manner whatsoever.]
