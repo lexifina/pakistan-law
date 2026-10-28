@@ -1,0 +1,1 @@
+9. Other service matters. Except as otherwise provided in this Ordinance, the terms and conditions of service of persons appointed under section 3 shall be governed by the Civil Servants Act, 1973 (LXXI of 1973) and the rules made or deemed to have been made thereunder.

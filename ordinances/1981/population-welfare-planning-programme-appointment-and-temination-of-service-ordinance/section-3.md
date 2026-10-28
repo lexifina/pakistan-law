@@ -1,0 +1,2 @@
+3. Appointment.— (1) The appointing authority may appoint an employee to a post in the Population Programme under the Population Division on the recommendations of the Commission or, as the case may be, the Departmental Selection Committee, in accordance with section 4.
+(2) The employees appointed under sub-section (1) shall be deemed to be civil servants within the meaning of the Civil Servants Act, 1973 (LXXI of 1973)

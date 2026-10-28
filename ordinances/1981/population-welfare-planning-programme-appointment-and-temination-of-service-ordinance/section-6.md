@@ -1,0 +1,1 @@
+6. Termination of service. Notwithstanding anything contained in his terms and conditions of service, the services of an employee who 1[is not selected for appointment under section 3 or cannot be appointed] for want of a vacancy may be terminated by the appointing authority from such date as the appointing authority may in the public interest direct.
