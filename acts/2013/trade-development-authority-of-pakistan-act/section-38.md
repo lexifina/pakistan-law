@@ -1,0 +1,1 @@
+38. Removal of difficulties.—If any difficulties arise in giving effect to any provision of this Act, the Federal Government may make such order, not inconsistent with the provisions of this Act, as may be necessary to remove the difficulty.

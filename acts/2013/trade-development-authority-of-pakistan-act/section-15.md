@@ -1,0 +1,2 @@
+15. Committees of the Board.—(1) Subject to sub-section (2), the Chairman may constitute such number of committees of the Board as it considers necessary or expedient to assist it in the performance of its functions under this Act.
+(2) Any committee constituted under sub-section (1) shall act in accordance with the regulations made by the Board and shall include at least one officer of the Authority nominated by the Chief Executive or in his absence by the Secretary.

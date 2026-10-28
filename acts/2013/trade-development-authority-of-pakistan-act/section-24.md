@@ -1,0 +1,1 @@
+24. Budget.—The Authority shall, in respect of each financial year, prepare its own budget and submit it after obtaining approval from the Board to the Federal Government, through the Ministry of Commerce, at least four months, before the commencement of every financial year.
