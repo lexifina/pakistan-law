@@ -1,0 +1,1 @@
+7. Audit. The accounts of the Foundation shall be audited annually by the Auditor- General of Pakistan and the balance-sheet and statements of assets and liabilities shall be duly considered by the Board of Governors.

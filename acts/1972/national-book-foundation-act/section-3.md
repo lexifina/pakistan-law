@@ -1,0 +1,2 @@
+3. Establishment of the Foundation.—(1) As soon as may be after the commencement of this Act, the Federal Government may, for the purpose of making books available at moderate prices, by notification in the official Gazette, establish a National Book Foundation, hereinafter referred to as the Foundation.
+(2) The Foundation shall be a body corporate having perpetual succession and a common seal with power to acquire, hold and dispose of property, both movable and immovable.

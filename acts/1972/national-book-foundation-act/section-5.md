@@ -1,0 +1,1 @@
+5. Managing Director. The Managing Director shall be the chief executive officer of the Foundation and shall, subject to the general supervision of the Chairman of the Board of Governors, be responsible for carrying out the objects of the Foundation as laid down by the Board from time to time.
