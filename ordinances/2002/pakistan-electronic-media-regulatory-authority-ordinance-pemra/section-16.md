@@ -1,0 +1,3 @@
+16. Accounts and Audit.⸺ (1) The Authority shall maintain complete and accurate books of accounts of its actual expenses and receipts in such form as the Federal Government may, in consultation with the Auditor General of Pakistan, determine.
+(2) The Authority shall cause to be carried out audit of its accounts by one or more auditors who are chartered accountants within the meaning of the Chartered Accountants Ordinance, 1961 (X of 1961).
+(3) Notwithstanding the audit provided in sub-section (2) the Auditor-General shall have the power to audit or cause to be audited the accounts of the Authority.

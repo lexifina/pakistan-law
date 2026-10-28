@@ -1,0 +1,1 @@
+9. Remuneration, of Chairman and members.__ (1)The Chairman and members shall be paid such emoluments as the President of Pakistan may determine and shall not be varied to their disadvantage during their term of office.

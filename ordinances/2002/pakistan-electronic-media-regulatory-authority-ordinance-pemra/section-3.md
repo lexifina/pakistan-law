@@ -1,0 +1,4 @@
+3. Establishment of the Authority.⸺ (1) As soon as may be, after the commencement of this Ordinance, the Federal Government shall, by notification in the official Gazette, establish an authority to be known as the Pakistan Electronic Media Regulatory Authority (PEMRA) for carrying out the purposes of this Ordinance.
+(2) The Authority shall be a body corporate having perpetual succession and a common seal with powers subject to the provision of this Ordinance to hold and dispose of property by the said name, sue and be sued.
+(3) The principal office of the Authority shall be at Islamabad and it may set up offices at such place or places in the country as it may deem appropriate.
+(4) No act or proceeding of the Authority shall be invalid by reason only of the existence of a vacancy in, or defect in the constitution of, the Authority.

@@ -1,0 +1,1 @@
+12. Officers, etc. deemed to be public servants.__ The Chairman, members, members of its staff, other officers and employees of the Authority shall be deemed to be public servants within the meaning of section 21 of the Pakistan Penal Code (Act XLV of 1860).
