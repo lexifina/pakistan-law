@@ -1,0 +1,4 @@
+11. Effect of demutualization.—(1) From the date of demutualization, notwithstanding anything to the contrary contained in any other law for the time being in force or any agreement, award, judgment, decree or other instrument for the time being in force, the demutualization of the stock exchange shall become binding on all persons and authorities having any contractual or statutory, right, power, obligation or liability in connection with the stock exchange.
+(2) The demutualization shall not adversely affect the registration of the stock exchange under section 5 of the Securities Ordinance.
+(3) A shareholder may or may not be a TRE certificate holder of the stock exchange after demutualization.
+(4) A TRE certificate holder may or may not be a shareholder of the stock exchange after demutualization.

@@ -1,0 +1,6 @@
+15. Listing of shares.—(1) The shares of a stock exchange shall be listed, on any such stock exchange and within any such time as the Commission may prescribe in consultation with the board of directors of the stock exchange which is to be listed.
+(2) Where the shares of a stock exchange are listed on itself, the Commission shall act as the front line regulator of such stock exchange for such listing, and notwithstanding anything contained in any other law, shall have the necessary powers and authority to regulate and administer all the laws, rules and regulations prescribed for such matter.
+(3) The self-listing of the stock exchanges under this section shall be administered and managed by the Commission in such manner as may be prescribed.
+(4) A stock exchange shall make an application for the listing of its shares on itself in the manner and form, and subject to such conditions, as the Commission may prescribe.
+(5) Upon receipt of an application under sub-section (4), the Commission may if it is satisfied, after making such inquiry and receiving such further information as it may consider necessary, that the application fulfils the prescribed conditions for listing, order the listing of the shares.
+(6) Willful failure of a stock exchange to comply with any prescribed condition or direction of the Commission shall be an offence under this Act.

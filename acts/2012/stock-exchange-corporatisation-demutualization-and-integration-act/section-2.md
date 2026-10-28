@@ -1,0 +1,30 @@
+2. Definitions.—(1) In this Act, unless there is anything repugnant in the context or subject,—
+(i) “assets” means all immovable and movable properties (whether actual or contingent, tangible or intangible) and include all land, building, machinery and equipment, shares, securities, deposits, cash, bank balances, profits, dividends, fees, commissions, receivables, claims, contracts, licenses, privileges, reserve funds, investments and all other rights and interests in and arising out of such property in the ownership, possession, power or control of a stock exchange at any given time;
+(ii) “blocked account” means a CDC account established by a stock exchange in accordance with clause (c) of sub-section (1) of section 5;
+(iii) “CDC” means the Central Depository Company established in pursuance of the Central Depository Companies (Establishment and Regulation) Rules, 1996;
+(iv) “Commission” means the Securities and Exchange Commission of Pakistan established under the Securities and Exchange Commission of Pakistan Act, 1997 (XLII of 1997);
+(v) “Committee” means the demutualization committee of members of the stock exchange ratified under section 3 by the members of the stock exchange;
+(vi) “Companies Ordinance” means the Companies Ordinance, 1984 (XLVII of 1984);
+(vii) “Connected Person” means in relation to a natural person, a spouse, real, step or half sibling, lineal ascendant or descendant of such person, a partner, promoter or substantial shareholder of an undertaking, company or body corporate of which such person is also a partner, promoter or substantial shareholder or an undertaking, company or body corporate in which such person is a partner, promoter, substantial shareholder or director;in relation to a legal person a Connected person means an undertaking, company or body corporate which is a holding, subsidiary or associated company of such legal person;
+(viii) “corporatisation” means the conversion of a stock exchange from a company limited by guarantee to a public company limited by shares;
+(ix) “date of corporatisation” means the date on which the Registrar issues a certificate of re-registration to the stock exchange as evidence of its change in status from a company limited by guarantee to a public company limited by shares;
+(x) “date of demutualization” means the date on which the Registrar issues a certificate of re-registration to the stock exchange in accordance with the provisions of section 6;
+(xi) “demutualization” means the segregation of the majority ownership of a stock exchange from the right to trade on such stock exchange;
+(xii) “financial institution” includes foreign or local commercial banks development financial institutions, non-banking finance companies, insurance companies, stock exchanges, commodity exchanges, derivative exchanges or any such other entity which has been notified by the Commission as a financial institution for the purposes of this Act;
+(xiii) “first directors” mean directors of the stock exchange nominated by a stock exchange or the Commission as the case may be and who take the office of director on the date of corporatisation and hold such office until elections of the directors are held in accordance with this Act;
+(xiv) “initial shareholders” means the legal owners of the shares of a stock exchange on the date of corporatisation;
+(xv) “integration” means the merger of two or more stock exchanges;
+(xvi) “liabilities” means all borrowings, financial obligations, debts, claims, or potential losses of every description (Whether actual or contingent) of a stock exchange at any given date;
+(xvii) “member” means a member of a stock exchange prior to its corporatisation under this Act;
+(xviii) “prescribe or prescribed” means prescribed by the regulations made by the Commission;
+(xix) “scheme of integration” means a scheme of arrangement for the integration of two or more stock exchanges;
+(xx) “Securities Ordinance” means the Securities and Exchange Ordinance, 1969 (XVII of 1969);
+(xxi) “security” means a security as defined in clause (1) of sub-section (1) of section 2 of the Securities Ordinance;
+(xxii) “shareholders” means the legal owners of the shares of a stock exchange at any given time and include the initial shareholders;
+(xxiii) “stakeholders” means the employees of the stock exchange, the TRE certificate holders, the issuers of securities listed on a stock exchange, creditors, if any, of such stock exchange and the Government of Pakistan;
+(xxiv) “stock exchange” means a stock exchange registered under section 5 of the Securities Ordinance at the time of commencement of this Act and includes a stock exchange after corporatisation, demutualization or integration as the case may be; (xxv) “strategic investor” means a stock exchange, depository company, a derivative exchange or a clearing house which has been approved by the Commission in accordance with the prescribed criteria, for the purposes of acquiring shares of a stock exchange in pursuance of section 12;
+(xxvi) “substantial shareholder” means a person who directly or indirectly controls, beneficially owns or holds not less than twenty per cent of the voting rights of an undertaking, company or body corporate;
+(xxvii) “trading right entitlement certificate or TRE certificate” means a certificate issued by a stock exchange evidencing right of the TRE certificate holder to apply for registration as a broker in accordance with the Broker and Agent Registration Rules, 2001 as amended from time to time;
+(xxviii)“trading right entitlement certificate holder or TRE certificate holder” means a person who is issued a TRE certificate under section 5, or purchases or acquires such TRE certificate under section 16 or is issued afresh TRE certificate in accordance with the provisions of this Act; and
+(xxix) “undertaking” means any trade or business of a stock exchange.
+(2) The words and expressions used, but not defined in this Act, but which are defined in the Companies Ordinance or the Securities Ordinance shall have the same meaning as are assigned to them in these Ordinances.
