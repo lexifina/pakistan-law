@@ -1,0 +1,4 @@
+12. Controller may determine fair rent in certain cases. ___In any of the following cases, the Controller may fix the fair rent at such amount as, having regard to the provisions of this Act and the circumstances of the case, he deems just___
+(a) where, by reason of any premises having been let at one time as a whole and at another time in parts or where a tenant has sublet or sublets a part of any premises let to him, or for any other reason, any difficulty arises in giving effect to this Act, or
+(b) where in the case of any premises let furnished, it is necessary to distinguish for the purpose of giving, effect to this Act, the amount payable as rent from the amount payable as hire of furniture; or
+(c) where, any premises have been or are let rent-free or at a nominal rent or for some consideration in addition to rent.

@@ -1,0 +1,1 @@
+26. Effect of provisions inconsistent with other enactments. ____The provisions of this Act shall have effect notwithstanding anything inconsistent therewith contained in any enactment for the time being in force.
