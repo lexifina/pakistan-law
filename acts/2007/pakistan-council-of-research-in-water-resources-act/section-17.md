@@ -1,0 +1,4 @@
+17. Budget and accounts.—(1) The Chairman shall, in respect of each financial year, submit for the approval of the Board, a statement showing all the expenditures incurred during the year along with estimated receipts and expenditures for the next financial year.
+(2) The Council shall, by such date and in such from as may be prescribed by rules, submit to the Federal Government for approval its budget for each financial year showing the estimated receipts and expenditure and the sums which are likely to be required from the Federal Government during the financial year.
+(3) The accounts of the Council shall be maintained in such form and manner as the Federal Government may determine in consultation with the Controller General of Pakistan.
+(4) The accounts of the Council shall be audited by the Auditor General of Pakistan.

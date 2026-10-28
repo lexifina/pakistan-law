@@ -1,0 +1,2 @@
+20. Directives from the Federal Government. (1) In the performance or its functions, the Council shall be guided on questions of policy by the instructions, if any, given to it by the Federal Government which shall be sole judge as to whether a question is a question of policy, provided that reasons for issuing such a directive are conveyed in writing.
+(2) The Federal Government may dissolve and reconstitute the Board, if deemed necessary in public interest.

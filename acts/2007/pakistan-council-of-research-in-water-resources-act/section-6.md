@@ -1,0 +1,1 @@
+6. Board of Governors. The overall control, direction and superintendence of the affairs of the Council shall vest in a Board of Governors which may exercise all powers, perform all functions and do all acts and things which may be exercised, performed or done by the Council.

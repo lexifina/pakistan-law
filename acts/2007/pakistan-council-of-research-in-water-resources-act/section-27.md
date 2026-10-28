@@ -1,0 +1,1 @@
+27. Ordinance XCI of 2002, not to apply to the Council. Nothing contained in the Industrial Relations Ordinance, 2002 (XCI of 2002), shall apply to or in relation to the Council or any of the officers, advisers and employees appointed by it.
