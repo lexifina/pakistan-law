@@ -1,0 +1,1 @@
+14. Powers and procedure of the Board. Subject to any rules of procedure which may be prescribed, the Board may, for the purpose of fixing rates of wages, exercise the same powers and follow the same procedure, so far as may be and with the necessary modifications, as the Commission may exercise or follow for the purpose of adjudicating an industrial dispute under the Ordinance.

@@ -1,0 +1,2 @@
+6. Hours of work.— Subject to the Factories Act, 1934 (XXV of 1934), and any rules that may be made, or deemed to have been made under this Act, no newspaper employee shall be required to work in any newspaper establishment for more than forty-two hours in a week, exclusive of the time for meals.
+Explanation.―For the purposes of this section, ‘week’ means a period of seven days beginning at mid-night on Saturday.
