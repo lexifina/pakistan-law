@@ -1,0 +1,1 @@
+12. Penalty for contraventions. ___Any person who acts in contravention of any of the provisions of this Act or the rules made thereunder or of any order made, direction given or condition imposed under this Act shall be punished with imprisonment of either description for a term which may extend to six months or with fine or with both.

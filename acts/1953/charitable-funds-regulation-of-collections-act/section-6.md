@@ -1,0 +1,5 @@
+6. Maintenance and audit of accounts.___ (1) Every promoter, collector and recipient of every fund or donation to which this Act applies shall maintain or cause to be maintained a true and proper account in the prescribed manner of the fund or donation collected.
+(2) The accounts of all charitable funds shall be audited and submitted to the sanctioning authority in the prescribed manner and at prescribed times or intervals.
+(3) The sanctioning authority may at any time for reasons to be stated in writing require by order any accounts of any charitable fund to be audited or re-audited by a specified auditor at the cost of any particular individual or individuals.
+(4) The sanctioning authority may at any time inspect or cause to be inspected any accounts maintained under this section.
+(5) Any person who dishonestly or frequently tampers with, conceals or destroys any records pertaining to the collection of any fund to which this Act applies shall be deemed to have contravened this Act and be punishable accordingly.
