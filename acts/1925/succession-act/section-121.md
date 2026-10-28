@@ -1,0 +1,3 @@
+121. Vesting of interest in bequest to such members of a class as shall have attained
+particular age. Where a bequest is made only to such members of a class as shall have attained a particular age, a person who has not attained that age cannot have a vested interest in the legacy.
+Illustration A fund is bequeathed to such of the children of A as shall attain the age of 18, with a direction that, while any child of A shall be under the age of 18, the income of the share, to which it may be presumed he will be eventually entitled, shall be applied for his maintenance and education. No child of A who is under the age of 18 has a vested interest in the bequest.

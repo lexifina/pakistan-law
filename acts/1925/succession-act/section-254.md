@@ -1,0 +1,4 @@
+254. Appointment as administrator, of person other than one who, in ordinary
+circumstances, would be entitled to administration.___(1) When a person has died intestate, or leaving a will of which there is no executor willing and competent to act or where the executor is, at the time of the death of such person, resident out of the Province, and it appears to the Court to be necessary or convenient to appoint some person to administer the estate or any part thereof, other than the person who, in ordinary circumstances, would be entitled to a grant of administration, the Court may, in its discretion, having regard to consanguinity, amount of interest, the safety of the estate and probability that it will be properly administered, appoint such person as it thinks fit to be administrator.
+(2) In every such case letters of administration may be limited or not as the Court thinks fit.
+Grants with exception

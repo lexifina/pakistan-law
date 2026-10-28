@@ -1,0 +1,2 @@
+26. Collateral consanguinity.___(1) Collateral consanguinity is that which subsists between two persons who are descended from the same stock or ancestor, but neither of whom is descended in a direct line from the other.
+(2) For the purpose of ascertaining in what degree of kindred any collateral relative stands to a person deceased, it is necessary to reckon upwards from the person deceased to the common stock and then downwards to the collateral relative, a degree being allowed for each person, both ascending and descending.

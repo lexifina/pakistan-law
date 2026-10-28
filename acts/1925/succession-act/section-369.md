@@ -1,0 +1,3 @@
+369. Liability of executor or administrator for neglect to get any part of property. When an executor or administrator occasions a loss to the estate by neglecting to get in any part of the property of the deceased, he is liable to make good the amount.
+Illustrations (i) The executor absolutely releases a debt due to the deceased from a solvent person, or compounds with a debtor who is able to pay in full. The executor is liable to make good the amount.
+(ii) The executor neglects to sue for a debt till the debtor is able to plead that the claim is barred by limitation and the debt is thereby lost to the estate. The executor is liable to make good the amount.

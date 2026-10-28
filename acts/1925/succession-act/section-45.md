@@ -1,0 +1,4 @@
+45. Where intestate’s father is dead and his mother and children of any deceased
+brother or sister living. If the intestate’s father is dead, but the intestate’s mother is living, and the brothers and sisters are all dead, but all or any of them have left children who survived the intestate, the mother and the child or children of each deceased brother or sister shall be entitled to the property in equal shares, such children (if more than one) taking in equal shares only the shares which their respective parents would have taken if living at the intestate’s death.
+Illustration
+A, the intestate, leaves no brother or sister, but leaves his mother and one child of a deceased sister, Mary, and two children of a deceased brother, George. The mother takes one- third, the child of Mary takes one-third, and the children of George divide the remaining one-third equally between them.

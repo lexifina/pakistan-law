@@ -1,0 +1,4 @@
+197. Prohibition of exercise of certain powers by curators.___ (1) Where a certificate has been granted under Part X (VII of 1889),[^74][* * *] or a grant of probate or letters of administration has been made, a curator appointed under this Part shall not exercise any authority lawfully belonging to the holder of the certificate or to the executor or administrator.
+(2) Payment of debts, etc., to curator. All persons who have paid debts or rents to a curator authorised by a Court to receive them shall be indemnified, and the curator shall be responsible for the payment thereof to the person who has obtained the certificate probate or letters of administration, as the case may be.
+
+[^74]: The words “or under the Succession Certificate Act, 1889”, omitted by the Federal Laws (Revision and Declaration) Ordinance, 1981 (27 of 1981), s. 3 and Sch., II.

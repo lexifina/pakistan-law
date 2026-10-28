@@ -1,0 +1,2 @@
+247. Administration pendente lite. Pending any suit touching the validity of the will of a deceased person or for obtaining or revoking any probate or any grant of letters of administration, the Court may appoint an administrator of the estate of such deceased person, who shall have all the rights and powers of a general administrator, other than the right of distributing such estate, and every such administrator shall be subject to the immediate control of the Court and shall act under its direction.
+Grants for special purposes

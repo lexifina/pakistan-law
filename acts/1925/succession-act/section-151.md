@@ -1,0 +1,4 @@
+151. Order of payment when legacy directed to be paid out of fund the subject of specific
+legacy. Where a portion of a fund is specifically bequeathed and a legacy is directed to be paid out of the same fund, the portion specifically bequeathed shall first be paid to the legatee, and the demonstrative legacy shall be paid out of the residue of the fund and, so far as the residue shall be deficient, out of the general assets of the testator.
+Illustration
+A bequeaths to B 1, 000 rupees, being part of a debt due to him from W. He also bequeaths to C 1, 000 rupees to be paid out of the debt due to him from W. The debt due to A from W is only 1,500 rupees of these 1, 500 rupees, 1, 000 rupees belong to B, and 500 rupees are to be paid to C. C is also to receive 500 rupees out of the general assets of the testator.

@@ -1,0 +1,1 @@
+255. Probate or administration, with will annexed, subject to exception. Whenever the nature of the case requires that an exception be made, probate of a will, or letters of administration with the will annexed, shall be granted subject to such exception.

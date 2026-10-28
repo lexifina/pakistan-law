@@ -1,0 +1,5 @@
+269. When and how District Judge to interfere for protection of property.___(1) Until probate is granted of the will of a deceased person, or an administrator of his estate is constituted, the District Judge, within whose jurisdiction any part of the property of the deceased person is situate, is authorised and required to interfere for the protection of such property at the instance of any person claiming to be interested therein, and in all other cases where the Judge considers that the property incurs any risk of loss or damage; and for that purpose, if he thinks fit, to appoint an officer to take and keep possession of the property.
+(2) This section shall not apply when the deceased is a Hindu, [^97][Muslim], Buddhist, Sikh or Jaina or an exempted person, nor shall it apply to any part of the property of [^98][a Pakistan Christian] who has died intestate.
+
+[^97]: Subs. by F.A.O., 1975, Art. 2 and Table, for “Muhammadan”
+[^98]: The original words “an Indian Chiristian” have been amended by the Federal Laws (Revision and Declaration) Act, 1951 (26 of 1951), s. 4 and 3rd Sch. and A. O., 1949, to read as above.

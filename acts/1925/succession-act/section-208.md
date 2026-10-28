@@ -1,0 +1,1 @@
+208. Saving of right to bring suit. Nothing contained in this Part shall be any impediment to the bringing of a suit either by the party whose application may have been rejected before or after the summoning of the party in possession, or by the party who may have been evicted from the possession under this Part.

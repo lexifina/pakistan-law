@@ -1,0 +1,9 @@
+105. In what case legacy lapses.___(1) If the legatee does not survive the testator, the legacy cannot take effect, but shall lapse and form part of the residue of the testator’s property, unless it appears by the will that the testator intended that it should go to some other person.
+(2) In order to entitle the representatives of the legatee to receive the legacy, it must be proved that he survived the testator.
+Illustrations
+(i) The testator bequeaths to B “500 rupees which B owes me”. B dies before the testator; the legacy lapses.
+(ii) A bequest is made to A and his children. A dies before the testator, or happens to be dead when the will is made. The legacy to A and his children lapses.
+(iii) A legacy is given to A, and, in case of his dying before the testator, to B. A dies before the testator. The legacy goes to B.
+(iv) A sum of money is bequeathed to A for life, and after his death to B. A dies in the lifetime of the testator; B survives the testator. The bequest to B takes effect.
+(v) A sum of money is bequeathed to A on his completing his eighteenth year, and in case he should die before he completes his eighteenth year, to B. A completes his eighteenth year, and dies in the lifetime of the testator. The legacy to A lapses, and the bequest to B does not take effect.
+(vi) The testator and the legatee perished in the same ship-wreck. There is no evidence to show which died first. The legacy lapses.

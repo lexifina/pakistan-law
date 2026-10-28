@@ -1,0 +1,3 @@
+236. To whom administration may not be granted. Letters of administration cannot be granted to any person who is a minor or is of unsound mind, 1[nor to any association of individuals unless it is a company which satisfies the conditions prescribed by rules to be made by the [^90][Provincial Government] in this behalf].
+
+[^90]: Added by the Indian Succession (Amdt.) Act, 1931 (17 of 1931), s. 2. The words “nor, unless the deceased was a Hindu, Muhammadan, Buddhist, Sikh or Jaina or an exempted person, to a married woman without the consent of her husbnand” which originally occurred at the end of this section had been rep. by the Indian Succession (Amdt.) Act, 1927 (18 of 1927), s. 2.

@@ -1,0 +1,1 @@
+315. Powers of married executrix or administratrix. When a grant of probate or letters of administration has been made to a married woman, she has all the powers of an ordinary executor or administrator.

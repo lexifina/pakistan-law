@@ -1,0 +1,3 @@
+21. Effect of marriage between person domiciled and one not domiciled in Pakistan. If a person whose domicile is in [^21][Pakistan] marries in [^21][Pakistan] a person whose domicile is not in [^21][Pakistan], neither party acquires by the marriage any rights in respect of any property of the other party not comprised in a settlement made previous to the marriage, which he or she would not acquire thereby if both were domiciled in [^21][Pakistan] at the time of the marriage.
+
+[^21]: Subs. by the Central Laws (Statute Reform) (Ordinance, 1960) (21 of 1960), s. 3 and 2nd Sch. (with effect from the 14th October, 1955), for “the Provinces and the Capital of the Federation” which had been subs. A. O., 1949, for “British India”.

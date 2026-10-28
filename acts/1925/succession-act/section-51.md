@@ -1,0 +1,4 @@
+51. Division of a male intestate’s property among his widow, children and parents.___(1) Subject to the provisions of sub-section (2), the property of which a male Parsi dies intestate shall be divided―
+(a) where he dies leaving a widow and children, among the widow and children, so that the share of each son and of the widow shall be double the share of each daughter, or
+(b) where he dies leaving children but no widow, among the children, so that the share of each son shall be double the share of each daughter.
+(2) Where a male Parsi dies leaving one or both parents in addition to children or a widow and children, the property of which he dies intestate shall be divided so that the father shall receive a share equal to half the share of a son and the mother shall receive a share equal to half the share of a daughter.

@@ -1,0 +1,8 @@
+182. Testator’s belief as to his ownership immaterial. The provisions of sections 180 and 181 apply whether the testator does or does not believe that which he professes to dispose of by his will to be his own.
+Illustrations
+(i) The farm of Sultanpur was the property of C. A bequeathed it to B, giving a legacy of 1,000 rupees to C. C has elected to retain his farm of Sultanpur, which is worth 800 rupees. C forfeits his legacy of 1, 000 rupees, of which 800 rupees goes to B, and the remaining 200 rupees falls into the residuary bequest, or devolves according to the rules of intestate succession, as the case may be.
+(ii) A bequeaths an estate to B in case B’s elder brother (who is married and has children) shall leave no issue living at his death. A also bequeaths to C a jewel, which belongs to B. B must elect to give up the jewel or to lose the estate.
+(iii) A bequeaths to B 1,000 rupees, and to C an estate which will under a settlement, belong to B if his elder brother (who is married and has children) shall leave no issue living at his death. B must elect to give up the estate or to lose the legacy.
+(iv) A, a person of the age of 18, domiciled in [^71][Pakistan] but owning real property in England, to which C is heir at law, bequeaths a legacy to C and, subject thereto, devises and bequeaths to B “all my property whatsoever and wheresoever”, and dies under 21. The real property in England does not pass by the will. C may claim his legacy without giving up the real property in England.
+
+[^71]: Subs. by the Central Laws (Statute Reform) Ordinance, 1960 (21 of 1960), s. 3 and 2nd Sch. (with effect from the 14th October, 1955), for “the Provinces and the Capital of the Federation” which had been subs. by A.O., 1949, for “British India”.

@@ -1,0 +1,5 @@
+215. Effect on certificate of subsequent probate or letters of administration.___(1) A grant of probate or letters of administration in respect of an estate shall be deemed to supersede any certificate previously granted under Part X [^84][Sind Regulation No. VIII of 1827], in respect of any debts or securities included in the estate.
+(2) When at the time of the grant of the probate or letters any suit or other proceeding instituted by the holder of any such certificate regarding any such debt or security is pending, the person to whom the grant is made shall, on applying to the Court in which the suit or proceeding is pending, be entitled to take the place of the holder of the certificate in the suit or proceeding:
+Provided that, when any certificate is superseded under this section, all payments made to the holder of such certificate in ignorance of such supersession shall be held good against claims under the probate or letters of administration.
+
+[^84]: The words “or under the Succession Certificate Act, 1889”, omitted ibid.,

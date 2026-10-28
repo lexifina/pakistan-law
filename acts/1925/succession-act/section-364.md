@@ -1,0 +1,2 @@
+364. Limit to refunding of one legatee to another. The refunding of one legatee to another shall not exceed the sum by which the satisfied legacy ought to have been reduced if the estate had been properly administered. Illustration
+A has bequeathed 240 rupees to B, 480 rupees to C, and 720 rupees to D. The assets are only 1, 200 rupees and, if properly administered, would give 200 rupees to B, 400 rupees to C and 600 rupees to D. C and D have been paid their legacies in full, leaving nothing to B. B can oblige C to refund 80 rupees, and D to refund 120 rupees.

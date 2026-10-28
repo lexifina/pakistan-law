@@ -1,0 +1,3 @@
+103. Property to which residuary legatee entitled. Under a residuary bequest, the legatee is entitled to all property belonging to the testator at the time of his death, of which he has not made any other testamentary disposition which is capable of taking effect.
+Illustration
+A by his will bequeaths certain legacies, of which one is void under section 118, and another lapses by the death of the legatee. He bequeaths the residue of his property to B. After the date of his will A purchases a zamindari, which belongs to him at the time of his death. B is entitled to the two legacies and the zamindari as part of the residue.

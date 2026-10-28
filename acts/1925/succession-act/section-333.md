@@ -1,0 +1,7 @@
+333. Effect of executor’s assent to specific legacy.___(1) The assent of the executor or administrator to a specific bequest shall be sufficient to divest his interest as executor or administrator therein, and to transfer the subject of the bequest of the legatee, unless the nature or the circumstances of the property require that it shall be transferred in a particular way.
+(2) This assent may be verbal, and it may be either express or implied from the conduct of the executor or administrator. Illustrations
+(i) A horse is bequeathed. The executor requests the legatee to dispose of it, or a third party proposes to purchase the horse from the executor, and he directs him to apply to the legatee. Assent to the legacy is implied.
+(ii) The interest of a fund is directed by the will to be applied for the maintenance of the legatee during his minority. The executor commences so to apply it. This is an assent to the whole of the bequest.
+(iii) A bequest is made of a fund to A and after him to B. The executor pays the interest of the fund to A. This is an implied assent to the bequest to B.
+(iv) Executors die after paying all the debts of the testator, but before satisfaction of specific legacies. Assent to the legacies may be presumed.
+(v) A person to whom a specific article has been bequeathed takes possession of it and retains it without any objection on the part of the executor. His assent may be presumed.

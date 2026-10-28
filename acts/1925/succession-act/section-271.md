@@ -1,0 +1,2 @@
+271. Disposal of application made to Judge of district in which deceased had no fixed
+abode. When the application is made to the Judge of a district in which the deceased had no fixed abode at the time of his death, it shall be in the discretion of the Judge to refuse the application, if in his judgment it could be disposed of more justly or conveniently in another district, or, where the application is for letters of administration, to grant them absolutely, or limited to the property within his own jurisdiction.

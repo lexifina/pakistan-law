@@ -1,0 +1,1 @@
+344. Transfer to residuary legatee of contingent bequest. Where a bequest is contingent, the executor or administrator is not bound to invest the amount of the legacy, but may transfer the whole residue of the estate to the residuary legatee, if any, on his giving sufficient security for the payment of the legacy if it shall become due.

@@ -1,0 +1,3 @@
+43. Where intestate’s father dead but his mother, brothers and sisters living. If the intestate’s father is dead, but the intestate’s mother is living and there are also brothers or sisters of the intestate living, and there is no child living of any deceased brother or sister, the mother and each living brother or sister shall succeed to the property in equal shares.
+Illustration
+A dies intestate, survived by his mother and two brothers of the full blood, John and Henry, and a sister Mary, who is the daughter of his mother but not of his father. The mother takes one-fourth, each brother takes one-fourth and Mary, the sister of half blood, takes one-fourth.

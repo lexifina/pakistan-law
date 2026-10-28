@@ -1,0 +1,3 @@
+92. Implied gift to objects of power in default of appointment. Where property is bequeathed to or for the benefit of certain objects as a specified person may appoint or for the benefit of certain objects in such proportions as a specified person may appoint, and the will does not provide for the event of no appointment being made; if the power given by the will is not exercised, the property belongs to all the objects of the power in equal shares.
+Illustration
+A, by his will, bequeaths a fund to his wife, for her life, and directs that at her death it shall be divided among his children in such proportions as she shall appoint. The widow dies without having made any appointment. The fund will be divided equally among the children.

@@ -1,0 +1,1 @@
+302. Directions to executor or administrator. Where probate or letters of administration in respect of any estate has or have been granted under this Act, the High Court may on application made to it, give to the executor or administrator any general or special directions in regard to the estate or in regard to the administration thereof.

@@ -1,0 +1,2 @@
+296. Surrender of revoked probate or letters of administration.___(1) When a grant of probate or letters of administration is revoked or annulled under this Act, the person to whom the grant was made shall forthwith deliver up the probate or letters to the Court which made the grant.
+(2) If such person wilfully and without reasonable cause omits so to deliver up the probate or letters, he shall be punishable with fine which may extend to one thousand rupees, or with imprisonment for a term which may extend to three months, or with both.

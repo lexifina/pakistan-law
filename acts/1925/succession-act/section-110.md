@@ -1,0 +1,1 @@
+110. Bequest to A for benefit of B does not lapse by A’s death. Where a bequest is made to one person for the benefit of another, the legacy does not lapse by the death, in the testator’s lifetime, of the person to whom the bequest is made.

@@ -1,0 +1,4 @@
+80. Extrinsic evidence admissible in cases of patent ambiguity. Where the words of a will are unambiguous, but it is found by extrinsic evidence that they admit of applications, one only of which can have been intended by the testator, extrinsic evidence may be taken to show which of these applications was intended.
+Illustrations
+(i) A man, having two cousins of the name of Mary, bequeaths a sum of money to “my cousin Mary”. It appears that there are two persons, each answering the description in the will. That description, therefore, admits of two applications, only one of which can have been intended by the testator. Evidence is admissible to show which of the two applications was intended.
+(ii) A, by his will, leaves to B “my estate called Sultanpur Khurd”. It turns out that he had two estates called Sultanpur Khurd. Evidence is admissible to show which estate was intended.

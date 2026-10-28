@@ -1,0 +1,4 @@
+70. Revocation of unprivileged will or codicil. No unprivileged will or codicil, nor any part thereof, shall be revoked otherwise than by marriage, or by another will or codicil, or by some writing declaring an intention to revoke the same and executed in the manner in which an unprivileged will is hereinbefore required to be executed, or by the burning, tearing or otherwise destroying the same by the testator or by some person in his presence and by his direction with the intention of revoking the same.
+Illustrations
+(i) A has made an unprivileged will. Afterwards, A makes another unprivileged will which purports to revoke the first. This is a revocation.
+(ii) A has made an unprivileged will. Afterwards, A, being entitled to make a privileged will, makes a privileged will, which purports to revoke his unprivileged will. This is a revocation.

@@ -1,0 +1,2 @@
+275. Conclusiveness of application for probate or administration if properly made and
+verified. The application for probate or letters of administration, if made and verified in the manner hereinafter provided, shall be conclusive for the purpose of authorising the grant of probate or administration; and no such grant shall be impeached by reason only that the testator or intestate had no fixed place of abode or no property within the district at the time of his death, unless by a proceeding to revoke the grant if obtained by a fraud upon the Court.

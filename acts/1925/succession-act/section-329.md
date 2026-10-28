@@ -1,0 +1,2 @@
+329. Right under demonstrative legacy when assets sufficient to pay debts and necessary
+expenses. Where there is a demonstrative legacy, and the assets are sufficient for the payment of debts and necessary expenses, the legatee has a preferential claim for payment of his legacy out of the fund from which the legacy is directed to be paid until such fund is exhausted and if, after the fund is exhausted, part of the legacy still remains unpaid, he is entitled to rank for the remainder against the general assets as for a legacy of the amount of such unpaid remainder.

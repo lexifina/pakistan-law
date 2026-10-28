@@ -1,0 +1,2 @@
+362. When legatee, not satisfied or compelled to refund under section 361, cannot oblige
+one paid in full to refund. If the assets were sufficient to satisfy all the legacies at the time of the testator’s death, a legatee who has not received payment of his legacy, or who has been compelled to refund under section 361, cannot oblige one who has received payment in full to refund, whether the legacy were paid to him with or without suit, although the assets have subsequently become deficient by the wasting of the executor.

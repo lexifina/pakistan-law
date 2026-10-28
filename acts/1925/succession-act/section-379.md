@@ -1,0 +1,3 @@
+379. Mode of collecting Court-fees on certificates.___(1) Every application for a certificate or for the extension of a certificate shall be accompanied by a deposit of a sum equal to the fee payable under the Court-fees Act, 1870, (VII of 1970), in respect of the certificate or extension applied for.
+(2) If the application is allowed, the sum deposited by the applicant shall be expended, under the direction of the Judge, in the purchase of the stamp to be used for denoting the fee payable as aforesaid.
+(3) Any sum received under sub-section (1) and not expended under sub-section (2) shall be refunded to the person who deposited it.

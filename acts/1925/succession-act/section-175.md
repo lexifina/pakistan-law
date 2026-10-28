@@ -1,0 +1,1 @@
+175. Abatement of annuity. Where an annuity is bequeathed, but the assets of the testator are not sufficient to pay all the legacies given by the will, the annuity shall abate in the same proportion as the other pecuniary legacies given by the will.

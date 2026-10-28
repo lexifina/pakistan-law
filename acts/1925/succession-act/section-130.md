@@ -1,0 +1,3 @@
+130. When second bequest not to take effect on failure of first. Where the will shows an intention that the second bequest shall take effect only in the event of the first bequest failing in a particular manner, the second bequest shall not take effect, unless the prior bequest fails in that particular manner.
+Illustration
+A makes a bequest to his wife, but in case she should die in his lifetime, bequeaths to B that which he had bequeathed to her. A and his wife perish together, under circumstances which make it impossible to prove that she died before him; the bequest to B does not take effect.

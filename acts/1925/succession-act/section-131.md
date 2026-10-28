@@ -1,0 +1,9 @@
+131. Bequest over conditional upon happening or not happening of specified uncertain
+event.___(1) A bequest may be made to any person with the condition super- added that, in case a specified uncertain event shall happen, the thing bequeathed shall go to another person, or that in case a specified uncertain event shall not happen, the thing bequeathed shall go over to another person.
+(2) In each case the ulterior bequest is subject to the rules contained in sections 120, 121, 122, 123, 124, 125, 126, 127, 129 and 130.
+Illustrations
+(i) A sum of money is bequeathed to A, to be paid to him at the age of 18, and if he shall die before he attains that age, to B. A takes a vested interest in the legacy subject to be divested and to go to B in case A dies under 18.
+(ii) An estate is bequeathed to A with a proviso that if A shall dispute the competency of the testator to make a will, the estate shall go to B. A disputes the competency of the testator to make a will. The estate goes to B.
+(iii) A sum of money is bequeathed to A for life, and, after his death, to B; but if B shall then be dead, leaving a son, such son is to stand in the place of B. B takes a vested interest in the legacy, subject to be divested if he dies leaving a son in A’s lifetime.
+(iv) A sum of money is bequeathed to A and B, and if either should die during the life of C, then to the survivor living at the death of C. A and B die before C. The gift over cannot take effect, but the representative of A takes one-half of the money, and the representative of B takes the other half.
+(v) A bequeaths to B the interest of a fund for life, and directs the fund to be divided at her death equally among her three children, or such of them as shall be living at her death. All the children of B die in B’s lifetime. The bequest over cannot take effect, but the interests of the children pass to their representatives.
