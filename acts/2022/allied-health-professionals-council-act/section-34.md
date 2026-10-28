@@ -1,0 +1,3 @@
+34. Annual report, accounts and audit.—(1) Within ninety days from the end of each financial year, the Council shall cause a report to be prepared on the activities of the Council including inquiries made by the Council during that financial year and submit to the Federal Government and make it available to the public.
+(2) The Council shall cause the statement of accounts to be audited by third party auditors, appointed by the Council, who shall be a firm of registered chartered accountants.
+(3) The accounts of the Council shall be maintained and audited in the prescribed manner and be audited by the Auditor General of Pakistan in respect of public grants and funds provided to the Council.

@@ -1,0 +1,2 @@
+24. Prohibition of employment of and practice by un-registered AHP.— (1) No health care establishment or part of it that is maintained or run or aided by a public or private organization or authority or local or international non-Governmental organization or any other such authority shall employ therein any person as an AHP according to his category unless he is registered with the Council.
+(1) No person may carry out any allied health functions or practice in any discipline defined under this act as an Allied Health discipline unless licensed and registered by the Council.

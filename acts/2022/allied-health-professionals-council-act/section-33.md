@@ -1,0 +1,1 @@
+33. Bank accounts.—The Council may open and maintain accounts in rupees or in any foreign currency, at such scheduled banks as it may from time to time determine in accordance with the relevant law for the time being in force.

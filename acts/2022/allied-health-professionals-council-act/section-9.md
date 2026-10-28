@@ -1,0 +1,3 @@
+9. Advisory Committees of the Council.— (1) The Council shall constitute advisory committees for each discipline mentioned in Schedule-1 or any other discipline recognized by Council.
+(2) Each advisory committee shall consist of five reputable registered members in the relevant discipline including one from each Province and one from ICT to be nominated by the respective health departments in the Provinces and Division concerned to the extent of the ICT.
+(3) Each advisory committee shall elect a chairman by majority vote amongst its members in its first meeting which shall be called by the president of the Council.

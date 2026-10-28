@@ -1,0 +1,2 @@
+38. Power to make rules.—(1) The Federal Government may, by notification in the official Gazette, make rules for giving effect to the provisions of this Act.
+(2) The power to make rules conferred by this section shall be subject to the condition of previous publication and, before making any rule, the draft thereof shall be published in the official Gazette for eliciting public opinion thereon within a period of not less than fifteen days from the date of publication.

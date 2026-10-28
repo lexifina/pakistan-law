@@ -1,0 +1,1 @@
+20. Maintenance of the register.— The Council shall, for the purpose of registration of AHP maintain a register in which shall be entered such particulars related to the persons registered and licensed as may be prescribed under this Act.
