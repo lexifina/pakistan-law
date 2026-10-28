@@ -1,0 +1,3 @@
+2. Validation. Notwithstanding any order or decision of any court, any order passed by the Chairman or by a Member of the Federal Land Commission at any time before the commencement of this Ordinance and purporting to be in exercise of the authority conferred on the Chairman and Members of the Commission by an order of the Federal Government under paragraph 29 of the Land Reforms Regulation 1972, shall be deemed to have been validly passed and shall have, and shall be deemed always to have had, effect accordingly.
+___________
+Date: 13-09-2024 _________________________________________________________________________________________________________________________
