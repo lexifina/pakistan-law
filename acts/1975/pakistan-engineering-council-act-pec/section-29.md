@@ -1,0 +1,1 @@
+29. Power to exempt.⎯ If the Council so recommends, the Federal Government may, by notification in the official Gazette, exempt any person or class of persons, or any professional engineering work or class of such works, from the operation of the provisions of section 27, subject to such conditions, if any, as may be specified in the notification.

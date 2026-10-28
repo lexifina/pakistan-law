@@ -1,0 +1,2 @@
+11. Accreditation of foreign engineering qualifications.⎯ (1) The engineering qualifications granted by engineering institutions outside Pakistan which are included in the Second Schedule shall be accredited engineering qualifications for the purposes of this Act.
+(2) Any engineering qualification granted by an engineering institution outside Pakistan not included in the Second Schedule may be accredited by the Council and council may, by notification in the official Gazette, amend the Second Schedule so as to include such qualification therein.]
