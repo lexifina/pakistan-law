@@ -1,0 +1,3 @@
+19. Cost of obtaining administration, etc., may, on revocation, be ordered to be paid to
+Administrator General out of assets.___If any letters of administration granted to the Administrator General in accordance with the provisions of this Act are revoked, the Court may order the costs of obtaining such letters of administration, and the whole or any part of any fees which would otherwise have been payable under this Act, together with the costs of the Administrator General in any proceedings taken to obtain such revocation, to be paid to or retained by the Administrator General out of the estate:
+Provided that nothing in this section shall affect the provisions of clause (c) of sub-section (2) of section 11.

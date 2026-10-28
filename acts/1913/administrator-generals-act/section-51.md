@@ -1,0 +1,1 @@
+51. False evidence.___Whoever, during any examination authorised by this Act, makes upon oath a statement which is false and which he either knows or believes to be false or does not believe to be true, shall be deemed to have intentionally given false evidence in a stage of a judicial proceeding.

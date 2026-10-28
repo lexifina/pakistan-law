@@ -1,0 +1,2 @@
+36. Surrender of revoked certificate.___(1) When a certificate is revoked in accordance with the provisions of section 35, the holder thereof shall, on the requisition of the Administrator General, deliver it up to such Administrator General, but shall not be entitled to the refund of any fee paid thereon.
+(2) If such person wilfully and without reasonable cause omits to deliver up the certificate, he shall be punishable with imprisonment which may extend to three months, or with fine which may extend to one thousand rupees, or with both.

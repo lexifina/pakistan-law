@@ -1,0 +1,2 @@
+49. Power of person beneficially interested to inspect Administrator General’s accounts,
+etc., and take copies.___Any person interested in the administration of any estate, which is in the charge of the Administrator General shall, subject to such conditions and restrictions as may be prescribed, be entitled at all reasonable times to inspect the accounts relating to such estate and the reports and certificates of the auditor, and on payment of the prescribed fee, to copies thereof and extracts therefrom.
