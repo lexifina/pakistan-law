@@ -1,0 +1,5 @@
+3. Establishment of the Press Council.___(1) There shall be established a Council by the name of the Press Council of Pakistan to implement the Ethical Code of Practice, as set out in the Schedule to this Ordinance and to perform such other functions as are assigned to it under this Ordinance or the rules and regulations made thereunder.
+(2) The Council shall be body corporate having perpetual succession and a common seal with power to acquire, hold and dispose of property, both movable and immovable and shall, by the said name sue and be sued.
+(3) The head office of the Council shall be at Islamabad. The sub-offices of the Council, may be established one in each provincial capital. The Federal Government shall arrange buildings and other facilities to establish the head office, the four provincial sub-offices and any other such offices as may be required by the Council and the Commission.
+(4) The Council shall have its own ancillary professional and secretarial staff to be appointed on such terms and conditions as may be prescribed.
+(5) The Council shall make decisions through a majority vote. In case of a tie, the Chairman shall have a casting vote.

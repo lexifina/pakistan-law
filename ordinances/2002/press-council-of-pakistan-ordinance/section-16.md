@@ -1,0 +1,1 @@
+16. Committees of the Council.__(1) For the purpose of performing its functions under this Ordinance, the Council may constitute from among its members such committees for general or special purposes as it may deem necessary and every committee so constituted shall perform such functions as are assigned to it by the Council.

@@ -1,0 +1,4 @@
+15. Action in case of violation of directions of the Commission or Council.___ Whoever publishes or circulates any matter in contravention of the Ethical Code of Practice or directions of the Commission or Council may:
+(a) require him to publish an apology promptly on the page specified by the Commission or the Council, as the case may be;
+(b) issue him a warning to be carried or circulated by the newspaper or news agency concerned promptly and prominently; and
+(c) ask other newspapers to publish or news agencies to circulate the decision, in case of non-compliance of the decision by concerned newspaper or news agency and recommend to the competent authority to suspend the publication for a specific period not exceeding seven issues or recommend cancellation of the declaration in the event of persistent non-compliance.

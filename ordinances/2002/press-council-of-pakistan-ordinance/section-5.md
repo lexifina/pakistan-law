@@ -1,0 +1,3 @@
+5. Funds of the Council.___ (1) All sums received by the Council as fees, grants, donations or subscriptions shall form part of a fund which shall be managed, administered and utilized in such manner as may be prescribed by rules.
+(2) The Council shall cause to be maintained such books of accounts and other books in such form and manner as may be prescribed by regulations.
+(3) The Council shall appoint an auditor who is a Chartered Accountant within the meaning of the Chartered Accountants Ordinance, 1961 (X of 1961). The accounts of the Council shall also be audited by the Auditor General of Pakistan before the thirtieth day of June each year.

@@ -1,0 +1,1 @@
+22. Indemnity.____ No suit or legal proceedings shall lie against the Council or Commission, or any member or employee thereof or any authority or person, in respect of anything done or intended to be done in good faith under this Ordinance or the rules or regulations made thereunder.
