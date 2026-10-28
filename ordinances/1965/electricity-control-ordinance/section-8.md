@@ -1,0 +1,1 @@
+8. Effect of provisions inconsistent with other enactments.—The provisions of this Ordinance or any order made thereunder shall have effect notwithstanding anything inconsistent therewith contained in any other law.
