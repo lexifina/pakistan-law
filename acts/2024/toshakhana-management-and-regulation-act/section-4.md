@@ -1,0 +1,2 @@
+4. Management and regulation of Toshakhana.—(1) The division to which business of this Act stands allocated shall be responsible for management and regulation of Toshakhana and to take measures in the prescribed manner.
+(2) Notwithstanding anything contained in any other law for the time being in force, the information in respect of Toshakhana shall be open to inspection subject to such conditions, limitations and restrictions as may be prescribed.

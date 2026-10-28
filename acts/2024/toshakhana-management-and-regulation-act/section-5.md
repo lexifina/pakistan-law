@@ -1,0 +1,1 @@
+5. Offence.Whoever contravenes or attempts to contravene or abets in contravention of section-3 or any rules made thereunder shall be punishable with fine equal to five times the assessed market value of the gift. In case of Government servant, he will be liable to the departmental proceedings also as per the respective laws/ rules.

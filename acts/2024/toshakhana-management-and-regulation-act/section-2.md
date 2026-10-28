@@ -1,0 +1,12 @@
+2. Definitions.In this Act, unless there is anything repugnant in the subject or context,
+(a) “gift includes non-perishable items received by public office holder or private member of an official delegation from a local or foreign dignitary or company other than the gift of cash given to employees in BPS-1 to BPS-4 as tips;
+(b) “Government” means the Federal Government;
+(c) “Toshakhana” means repository of gifts maintained by the division to which business of this Act stands allocated;
+(d) “public office holder” means a person, his spouse or children who—
+(i) is President of Pakistan or the Governor of a Province;
+(ii) is the Prime Minister, Chairman Senate, Speaker of the National Assembly, Deputy Chairman Senate, Deputy Speaker National Assembly, Federal Minister, Minister of State, Attorney General, Advocate General and such other law officers appointed under the Central Law Officers Ordinance, 1970 (VII of 1970), Federal Prosecutor General and Such other law officers, Adviser to the Prime Minister, Special Assistant to the Prime Minister, Federal Parliamentary Secretary, Member of Parliament, Auditor General Political Secretary, and a person who holds a post or office with the rank or status of a Federal Minister or Minister of State;
+(iii) is the Chief Minister, Speaker Provincial Assembly, Deputy Speaker Provincial Assembly; Provincial Minister, Adviser to the Chief
+Minister, Special Assistant to the Chief Minister, Provincial Parliamentary Secretary, Member of Provincial Assembly, Advocate General, Provincial Prosecutor General or such other law officers, Political Secretary and a person who holds a post or office with the rank or status of a Provincial Minister;
+iv) any person, who draws any or some benefits from public exchequer in any scale or grade or in any office or position and shall include all, whether elected, nominated, selected or under any contractual obligations where public exchequer is wholly or partially involved. It shall include any person who holds office in any service of Pakistan orrenders any service in connection with the affairs of the Federal, Provincial, or the local Governments or in the management of corporations, banks, or any financial institution, firms or any other institutions or organizations established, controlled or administered by the Federal or Provincial Governments, as the case may be. It includes members of the armed forces of Pakistan and in the judiciary;
+(e) “prescribed” means prescribed by rules; and
+(f) “rules” means rules made under this Act.

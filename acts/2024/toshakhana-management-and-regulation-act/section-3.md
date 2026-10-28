@@ -1,0 +1,1 @@
+3. Acceptance of gift and its deposit in Toshakhana.Gift received by public office holder or private person as part of official delegation shall be deposited in the Toshakhana of Government of Pakistan in thirty days or within such time limit and manner as may be prescribed.
