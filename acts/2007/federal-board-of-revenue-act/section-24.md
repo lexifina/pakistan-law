@@ -1,0 +1,2 @@
+24. Removal of difficulties.The Federal Government may, for the purposes of removing any difficulty or for bringing the provisions of this Act into effective operation, by order, direct that provisions of this Act shall, during such period as may be specified in the order, have effect subject to such adaptations whether by way of modification or addition or omission as it may deem to be necessary or expedient:
+Provided that the power under this section shall not be exercised after expiry of three years from the commencement of this Act.”.

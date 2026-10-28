@@ -1,0 +1,4 @@
+16. Properties and assets, etc., to vest in the Board. (1) All properties, assets and records which, before the commencement of this Act, were vested in or belonged or allocated to the Central Board of Revenue shall vest in and become the property of the Federal Board of Revenue from the commencement of this Act.
+(2) The logo, insignia, stationary, printed forms, returns, challans and online communication shall continue to be utilized unless prescribed otherwise under the rules and in any other case as modified by the Board.
+(3) All rights, liabilities and obligations of the Central Board of Revenue, whether arising out of contract or otherwise, shall be the rights, liabilities and obligations of the Board under this Act.
+(4) All intellectual property rights arising from technical or professional report, analysis, or system, written, prepared or developed by the employees of the Central Board of Revenue shall vest in the Federal Board of Revenue.

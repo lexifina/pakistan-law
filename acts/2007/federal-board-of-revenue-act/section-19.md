@@ -1,0 +1,1 @@
+19. Board may impose any fee or charges.The Board may levy any fee or charges for making expenditure on the provision of enhanced facilities for the taxpayers, or direct cost reimbursement of expenses, and reasonable return on investment or profit; where services are provided in the matters relating to or under any fiscal law under public-private partnership.

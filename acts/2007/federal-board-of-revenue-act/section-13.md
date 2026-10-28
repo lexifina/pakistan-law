@@ -1,0 +1,1 @@
+13. Indemnity.No prosecution, suit or other legal proceeding shall lie against the Board, the Chairman, Members, officers and the other employees for anything done in good faith for carrying out the purposes of this Act, rules or regulations or orders made or issued thereunder.

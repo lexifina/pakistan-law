@@ -1,0 +1,1 @@
+20. Act to override other laws.The provisions of sections 4, 5, 11, 13, 16, 18 and 19 shall have effect notwithstanding anything to the Contrary contained in any other law for the time being in force and the rules made thereunder.

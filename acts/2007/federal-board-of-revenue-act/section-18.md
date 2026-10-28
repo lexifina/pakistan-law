@@ -1,0 +1,1 @@
+18. Reference to Central Board of Revenue.Subject to the provisions of this Act, reference to Central Board of Revenue (CBR) wherever occurring in any law or the rules, regulations, orders, statutory rules and order (SROs) or notifications, etc, for the time being in force shall be read as a reference to the Federal Board of Revenue.
