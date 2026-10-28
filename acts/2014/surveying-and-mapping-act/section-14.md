@@ -1,0 +1,5 @@
+14. Correction of erroneous data.___(l) Where it comes to knowledge of Survey of Pakistan that erroneous data is being or was produced by a registered individual, firm or organization, it___
+(a) may nominate an authorized official to inform by notice in writing requiring such data producer to correct the same within the time specified in the notice; and
+(b) shall have the authority to engage another registered surveyor to make the correction if data producer does not comply with the notice. The defaulting data producer shall be i!1formed to this effect through a written notice.
+(2) The data specified in sub-section (1), if not corrected within the time specified therein, shall immediately be forfeited by Survey of Pakistan and shall not be used for any purpose whatsoever.
+(3) Any costs or expenses incurred on work mentioned in sub-section (1) shall, as a debt due to the Government, be recoverable through a court of competent jurisdiction from the registered individual, firm or organization surveyor.
