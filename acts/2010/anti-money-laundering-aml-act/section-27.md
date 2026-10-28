@@ -1,0 +1,5 @@
+27. Letter of request to a contracting State etc.— (l) Notwithstanding anything contained in this Act or the Code of Criminal Procedure, 1898 (Act V of 1898), if, in the course of an investigation into an offence or other proceedings under this Act, the investigating officer or any officer superior in rank to the investigating officer believes that any evidence is required in connection with investigation into an offence or proceedings under this Act and he is of opinion that such evidence may be available in any place in the contracting State, he may, with the prior permission of the head of that investigation agency, issue a letter of request to a court or an authority in the contractingState competent to deal with such request to—
+(a) examine facts and circumstances of the case; and
+(b) take such steps as he may specify in such letter of request.
+(2) The letter of request shall be transmitted in such manner as the Federal Government may specify in this behalf.
+(3) Every statement recorded or document or thing received under sub-section (1) shall be deemed to be the evidence collected during the course of investigation.

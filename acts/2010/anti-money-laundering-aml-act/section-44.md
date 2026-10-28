@@ -1,0 +1,1 @@
+44. Power to make regulations.—Subject to the supervision and control of the National Executive Committee, FMU may, by notification in the official Gazette, make such regulations as may be necessary for carrying out the purposes of this Act.

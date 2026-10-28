@@ -1,0 +1,1 @@
+7E. Anonymous business relationships and transactions.— No reporting entity shall enter into a business relationship or conduct any transaction with a customer who is anonymous or provides a fictitious name.

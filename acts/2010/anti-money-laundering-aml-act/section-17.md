@@ -1,0 +1,7 @@
+17. Retention of property.—(1) Where any property has been seized under section 14 or section 15 and the investigating officer has, on the basis of material in his possession, reason to believe that such property is required to be retained for the purposes of investigation under section 9 such property may be retained for a period not exceeding ninety days from the time such property was seized: Provided that the investigating officer shall duly inform the Court about any peculiar nature of the seized property and, where necessary, seek appropriate directions for its proper care during retention.
+(2) The investigating officer, immediately after he has passed an order for retention of property for purposes of investigation under section 9, shall forward a copy of the order [^24][*******] to the head of the concerned investigating [^24][or prosecuting] agency, in a sealed envelope [^24][*******].
+(3) On the expiry of the period specified under sub-section (1), the property shall be returned to the person from whom such property was seized unless the Court permits retention of such property beyond the said period.
+(4) The Court, before authorizing the retention of such property beyond the period specified in sub-section (1), shall satisfy itself that the property is prima facie[^24][property] involved in money laundering and the property is required for the purposes of investigation undersection 9.
+[^24][(5)*******]
+
+[^24]: Omitted, subs. and inser. by Anti-Money Laundering (Amendment) Act, 2015 (Act No. XXIII of 2015), Ss. 15 and 16.

@@ -1,0 +1,1 @@
+7F. Risk understanding.—Every reporting entity shall take appropriate steps to identify, assess and understand the risks to which its business is subjected to, in accordance with this Act and as prescribed.

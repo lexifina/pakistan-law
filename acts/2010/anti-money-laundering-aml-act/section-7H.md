@@ -1,0 +1,1 @@
+7H. Policies and procedures.— Every reporting entity shall implement policies and procedures to ensure their compliance with the provisions of this Act and orders, rules or regulations made thereunder that impose TFS obligations upon reporting entities.

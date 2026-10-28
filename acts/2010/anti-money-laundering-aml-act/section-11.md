@@ -1,0 +1,4 @@
+11. Management of forfeited properties.—(1) The Federal Government may, by order published in the official Gazette, appoint as many trustees and receivers as it thinks fit to perform the functions of an Administrator.
+(2) The Administrator appointed under sub-section (1) shall receive and manage the property in relation to which an order has been made under sub-section (6) of section 9 in such manner and subject to such conditions as may be prescribed.
+(3) The Administrator shall also take such measures, as the Federal Government may direct, to dispose of the property which is vested in the Federal Government under section 10:
+Provided that, where the property seized is perishable in nature or subject to speedy and natural decay, or when the expense of keeping it in custody is likely to exceed its value, the Administrator may sell it at once after reasonable notice to the Federal Government.
