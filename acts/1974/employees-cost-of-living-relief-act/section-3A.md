@@ -1,0 +1,3 @@
+[^16][3A. Cost of living allowance in addition to that admissible under section 3. In addition to the cost of living allowance admissible under section 3, if any, every employee shall, in respect of his employment on or after the first day of December, 1990, whether on time-work or piece-work basis, be paid by his employer a cost of living allowance at such rate and in such area or areas, as the Federal Government may, from time to time, by notification in the official Gazette, specify.]
+
+[^16]: New section 3A ins. by the Employees’ Cost of Living (Relief) (Amdt.) Act, 1992 (27 of 1992), s. 2 (w.e.f. 1-12-90).

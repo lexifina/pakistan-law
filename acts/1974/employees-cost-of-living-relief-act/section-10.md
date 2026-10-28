@@ -1,0 +1,2 @@
+10. Cognizance of offences. No Court shall take cognizance of any offence under this Act save on a complaint made by an aggrieved employee or by an officer of a registered trade union of which such employee is a member, or by any person authorised in this behalf by the Provincial Government.
+11. [Repeal] Omitted by the Federal Laws (Revision and Declaration) Ordinance, 1981 (XXVII of 1981), s. 3 and Sch., II.

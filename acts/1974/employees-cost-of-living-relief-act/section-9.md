@@ -1,0 +1,1 @@
+9. Penalty. Any employer who contravenes any provision of this Act shall be punishable with simple imprisonment for a term which may extend to six months, or with fine which may extend to two thousand rupees, or with both.
