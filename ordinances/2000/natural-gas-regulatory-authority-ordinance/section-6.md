@@ -1,0 +1,2 @@
+6. Delegation of powers :___ (1) The Authority may, by general or special order, delegate to any officer of the Authority to exercise on behalf of the Authority any of its powers, duties or functions wider this Ordinance abject to such conditions as it may think fit to Impose.
+(2) Notwithstanding the provisions of sub-section (1). the powers specified in clauses (a), (b) and (n) of sub-section (2).of section 4 shall only be exercised in a meeting of the Authority.
