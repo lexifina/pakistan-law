@@ -1,0 +1,2 @@
+12. Outstanding liability and entitlement of obligor:___ (1) In case the decretal amount is not satisfied after the sale of the collateral or industrial undertaking, the obligor shall remain liable for the amount remained unsatisfied under the decree.
+(2) In case the amount received from the sale of the collateral is in excess of the decretal amount, such excess shall be returned to the obligor after deducting necessary expenses and subject to any restriction imposed under any other law for the time being in force.

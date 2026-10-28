@@ -1,0 +1,1 @@
+16. Cognizance of offences:___ The High Court may, sua moto or on a complaint filed by the Corporation or by a person authorised by it in writing, take cognizance of any offence under this Ordinance or CIRC Ordinance and try the same as provided in this Ordinance.
