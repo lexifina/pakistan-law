@@ -1,0 +1,4 @@
+2. Definitions.― In this Act, unless there is anything repugnant in the subject or context,―
+(a) “appointed day” means the 30th day of June, 1972, or such earlier date as the President may, by notification in the official Gazette, specify to be the appointed day for the purposes of this Act;
+(b) “Corporation” means the West Pakistan Small Industries Corporation established under the West Pakistan Small Industries Corporation Ordinance, 1965 (W.P. Ord. XXX of 1965);
+(c) “Projects, undertaking and properties” includes assets, rights, authorities, powers privileges, properties, both movable and immovable, including lands, mines, leases, leaseholds, shares, book-debts, and all rights, interests and benefits in assignable contracts and chose in action; and (d) “Provinces” means the Provinces constituted under the Province of West Pakistan (Dissolution) Order, 1970 (P.O. No. 1 of 1970).

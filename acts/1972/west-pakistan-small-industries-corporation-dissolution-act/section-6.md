@@ -1,0 +1,1 @@
+6. Supplemental powers.― Without prejudice to the provisions of this Act, the President may, in such manner as he may consider necessary or expedient, provide for the removal of difficulties arising out of, or in connection with, the dissolution of the Corporation or for effectively carrying out the purposes of this Act.
