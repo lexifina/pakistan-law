@@ -1,0 +1,2 @@
+17. Annual Report.—(1) The annual report of the Foundation, which shall, among other things, clearly bring out the benefits accruing to the nation as a result of the activities sponsored by the Foundation, shall be prepared by the Chairman and submitted, through the Board, to the Federal Government alongwith the audited accounts of the Foundation.
+(2) The annual report alongwith the audited accounts of the Foundation shall be laid before the National Assembly.

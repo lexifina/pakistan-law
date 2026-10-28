@@ -1,0 +1,2 @@
+16. Appointments of officers and servants.—(1) The Foundation may appoint such officers and servants, and engage such consultants or experts, as it may consider necessary for the efficient performance of its Functions, on such terms and conditions as it may deem fit.
+(2) In fixing the terms and conditions of service of its officers and servants, the Foundation shall as nearly as may be conform to the scales of pay, allowances and conditions of service applicable to the corresponding class of employees of the Federal Government.
