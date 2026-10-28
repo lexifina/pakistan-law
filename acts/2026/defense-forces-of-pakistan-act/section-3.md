@@ -1,0 +1,3 @@
+3. Establishment of the Defense Forces Headquarters.__ (1) There shall be established a Defense Forces Headquarters, which shall be the headquarters of the Armed Forces.
+(2) The Defense Forces Headquarters shall function under the command and authority of the Chief of the Defense Forces, who shall be the principal military advisor to the Prime Minister on national security, defense and all matters relating to the Armed Forces.
+(3) The Chief of the Defense Forces shall have the operational command and control of the Armed Forces, and shall be responsible to the Federal Government for all matters relating to such command and control.

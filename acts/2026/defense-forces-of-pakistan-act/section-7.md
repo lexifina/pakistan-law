@@ -1,0 +1,1 @@
+7. Removal of difficulties.__ If any difficulty arises in giving effect to the provisions of this Act and to remove any inconsistency between this Act and any other law, for the time being in force, the President may, by an order, remove such difficulty.

@@ -1,0 +1,1 @@
+6. Power to issue instructions etc.__ The Chief of the Defense Forces may, from time to time, issue instructions and orders for carrying into effect the provisions of this Act and the rules and regulations made hereunder.
