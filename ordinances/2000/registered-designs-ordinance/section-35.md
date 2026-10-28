@@ -1,0 +1,1 @@
+35. Instructions from the Federal Government.___ In the exercise of his powers and the discharge of his functions, the Registrar shall be guided on questions of policy by the instructions, if any, given to him from time to time by the Federal Government which shall be the sole judge as to whether a question is a question of policy.

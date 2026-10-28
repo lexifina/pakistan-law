@@ -1,0 +1,2 @@
+14. Certificate or registration.___ (1) The Registrar shall grant a certificate of registration in the prescribed form to the registered proprietor of a design when the design is registered.
+(2) The Registrar may, in a case where he is satisfied that the certificate of registration has been lost or destroyed, or in any other case in which he thinks it expedient, furnish one or more copies of the certificate.

@@ -1,0 +1,3 @@
+8. Infringement.___ (1) If any person infringes a registered proprietor's right, the registered proprietor may bring a suit against him for the recovery of damages and for an injunction against the continuation of the infringement:
+Provided that, for the purposes of grant of a temporary injunction, the registered proprietor must show that he has a prima facie case and that his design is valid and that it has been infringed by the defendant.
+(2) When the Court makes a decree in a suit under this Ordinance, it shall send a copy of the decree to the Registrar who shall cause an entry thereof to be made in the register.
