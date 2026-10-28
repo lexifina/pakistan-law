@@ -1,0 +1,2 @@
+24. Common seal.⸻(1) The Authority shall have a common seal and such seal shall be kept by the Managing Director or such other person as the Chairperson may authorise.
+(2) The seal shall be authenticated in the same manner as may be prescribed by regulation and any document purported to be sealed with the seal so authenticated shall be receivable as evidence of the particular stated in the document.

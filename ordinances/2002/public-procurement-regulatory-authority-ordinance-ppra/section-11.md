@@ -1,0 +1,1 @@
+11. Power to obtain finances and receive grants.⸻ The Authority may, from time to time and with the approval of the Federal Government, accept grants from entities both domestic and international, including multilateral agencies for meeting any of its obligations or performing of any of its functions.

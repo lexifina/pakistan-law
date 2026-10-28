@@ -1,0 +1,3 @@
+## CHAPTER V.-REGULATORY AND OTHER PROVISIONS.
+16. Information.⸻(1) The Authority may call for any information required by it for carrying out the purposes of this Ordinance, from any person or any institution in public procurement activities and any such person or institution shall provide the required information called by the Authority.
+(2) The Authority shall furnish to the Federal Government such information with respect to the policies and procedures it is pursuing or proposes to pursue in the performance of any of its functions under this Ordinance as the Federal Government may, from time to time, require.
