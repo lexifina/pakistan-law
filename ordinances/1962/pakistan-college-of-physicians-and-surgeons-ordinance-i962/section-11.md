@@ -1,0 +1,2 @@
+11. The Executive Committee.___(1) There shall be an Executive Committee of the Council consisting of the President, the Vice-President, the Treasurer, the Secretary and two members elected by the members of the Council from amongst themselves.
+(2) The Executive Committee shall exercise and perform such powers and functions of the Council in the management and conduct of the affairs of the College as may be entrusted to it by resolution of the Council or as the President may, in the case of emergency, require the Executive Committee to exercise and perform.

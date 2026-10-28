@@ -1,0 +1,1 @@
+14. Accounts and audit.___The Council shall maintain in the prescribed manner the accounts of all receipt and expenditure of the College and such account shall be audited annually by such auditors as may be appointed by it in this behalf.

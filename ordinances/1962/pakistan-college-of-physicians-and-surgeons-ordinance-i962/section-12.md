@@ -1,0 +1,2 @@
+12. Funds.___(1) All receipts of the College from any source whatever shall constitute the College Fund which shall be applied, subject to any rules made in this behalf, by the Council to meet all expenditure for the administration and management of the affairs of the College.
+(2) The Council shall make disbursment of College Funds by cheques signed by the Treasurer and the Secretary or by one member of the Executive Committee and the Secretary or by any two members of the Executive Committee.

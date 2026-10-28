@@ -1,0 +1,1 @@
+13. Common Seal.___The common seal of the College shall be deposited at the office of the Council and shall not be used except by the authority of the Executive Committee and in the presence of two members of the Executive Committee and the Secretary each of whom shall append his signature to the documents on which the common seal is affixed.
