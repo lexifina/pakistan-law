@@ -1,0 +1,1 @@
+26. Jurisdiction of Civil Court barred as regard matter arising under this Ordinance. No Civil Court shall entertain any suit or application to obtain a decision or order in respect of any matter which Government or the Board of Revenue or any officer is, by this Ordinance, empowered to determine, decide or dispose of.

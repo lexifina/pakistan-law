@@ -1,0 +1,4 @@
+10. Publication of scheme, settlement of objections thereto and its confirmation. (1) The Consolidation Officer shall, before approving any scheme, publish it in such manner as may be prescribed.
+(2) Where objections are lodged by any person interested in the area covered by the scheme, the Consolidation Officer shall endeavour to bring about an amicable settlement.
+(3) If no objections are lodged, or where lodged the Consolidation Officer succeeds in bringing about an amicable settlement, he shall pass an order confirming the scheme of consolidation.
+(4) If the Consolidation Officer fails to bring about an amicable settlement, he shall submit the scheme with his recommendations to the Collector, who after giving notice to the persons concerned and hearing them if they so desire, may, after further enquiry by himself or any Consolidation Officer, or without such enquiry, as he may deem fit, reject the scheme or confirm it with or without modifications.
