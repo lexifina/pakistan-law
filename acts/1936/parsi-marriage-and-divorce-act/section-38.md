@@ -1,0 +1,2 @@
+38. No suit to be brought to enforce marriage or contract arising out of marriage when
+husband is under sixteen or wife under fourteen years. Notwithstanding anything hereinbefore contained, no suit shall be brought in any Court to enforce any marriage or any contract connected with or arising out of any marriage, if, at the date of the institution of the suit, the husband shall not have completed the age of sixteen years, or the wife shall not have completed the age of fourteen years.

@@ -1,0 +1,2 @@
+46. Determination of questions of law and procedure and of fact. In suits under this Act all questions of law and procedure shall be determined by the presiding judge; but the decision on the facts shall be the decision of the majority of the delegates before whom the case is tried:
+Provided that, where such delegates are equally divided in opinion, the decision on the facts shall be the decision of the presiding judge.

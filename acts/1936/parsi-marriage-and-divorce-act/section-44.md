@@ -1,0 +1,1 @@
+44. Validity of trial. Notwithstanding anything contained in section 19 or section 20, where in the case of a trial in a Parsi Matrimonial Court not less than five delegates have attended throughout the proceedings, the trial shall not be invalid by reason of the absence during any part thereof of the other delegates.

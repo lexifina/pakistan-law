@@ -1,0 +1,1 @@
+42. Disposal of joint property. In any suit under this Act the Court may make such provisions in the final decree as it may deem just and proper with respect to property presented at or about the time of marriage which may belong jointly to both the husband and wife.

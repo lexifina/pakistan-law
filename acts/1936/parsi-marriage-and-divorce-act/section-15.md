@@ -1,0 +1,1 @@
+15. Penalty for failing to register certificate. Any Registrar failing to enter the said certificate pursuant to section 6 shall be punished with simple imprisonment for a term which may extend to one year, or with fine which may extend to one thousand rupees, or with both.

@@ -1,0 +1,1 @@
+28. Practitioners in Matrimonial Courts. All legal practitioners entitled to practice in a High Court shall be entitled to practice in any Court constituted under this Act, and all legal practitioners entitled to practice in a District Court shall be entitled to practice in any Parsi District Matrimonial Court constituted under this Act.
