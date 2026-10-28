@@ -1,0 +1,1 @@
+3. Protection of foreign currency accounts.___ No person holding a foreign currency account shall be deprived of his right to hold or operate such account or in any manner be restricted temporarily or permanently to lawfully sell, withdraw, remit, transfer, use as security or take out foreign currency there form within or outside Pakistan.
