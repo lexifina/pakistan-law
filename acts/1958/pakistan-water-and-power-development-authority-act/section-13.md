@@ -1,0 +1,13 @@
+13. Powers regarding certain matters. (1) The Authority may take such measures and exercise such powers as it considers necessary or expedient for the carrying out of the purposes of this Act.
+(2) Without prejudice to the generality of the power conferred by the preceding sections and the provisions of sub-section (1) of this section, the Authority may for carrying out the purposes of this Act__
+(a) undertake any works, incur any expenditure, procure plant, machinery and materials required for its use and enter into and perform all such contracts as it may consider necessary or expedient;
+(b) acquire by purchase, lease, exchange or otherwise and dispose of by sale, lease, exchange or otherwise any land or any interest in land;
+(c) place wires, poles, wall brackets, stays, apparatus and appliances for the transmission of electricity, or for the transmission of telegraphic or telephonic communications necessary for the proper execution of a scheme;
+(d) direct the owners of private lands to—
+(i) carry out measures for training of streams;
+(ii) undertake anti-erosion operations, including conservation of forests and re-afforestation;
+(e) restrict or prohibit by general or special order the clearing and breaking up of land in the catchment area of any river;
+(f) direct that any work which has been required to be done by any person under the two preceding clauses, and which remains undone, shall, after due notice to such person and consideration of any objection raised by him, be executed by the Authority and specify the proportion in which the risk and expense of such work shall be borne by such person, or by any other person who, after being given a reasonable notice and after such inquiry as the Authority considers necessary, is held by the Authority to be responsible for the execution of such work in whole or in part; and
+(g) seek and obtain advice and assistance in the preparation or execution of a scheme from any local body or agency of the Government, and such local body or agency shall give the advice and assistance sought by the Authority to the best of its ability, knowledge and judgement:
+Provided that the Authority shall pay the cost of such advice and assistance if the giving of such advice and assistance entails additional expenditure to the local body or the agency.
+(3) The acquisition of any land or any interest in land for the Authority under this section, or for any scheme under this Act, shall be deemed to be an acquisition for a public purpose within the meaning of the Land Acquisition Act, 1894 (I of 1894), and the provisions of the said Act shall apply to all such proceedings.

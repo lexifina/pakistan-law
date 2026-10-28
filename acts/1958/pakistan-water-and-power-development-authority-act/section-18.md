@@ -1,0 +1,1 @@
+18. Recruitment and conditions of service and disciplinary powers. The Authority shall prescribe the procedure for appointment, and terms and conditions of service of its officers and servants, and shall be competent to take disciplinary action against its officers and servants.

@@ -1,0 +1,1 @@
+20. Delegation of powers to Chairman, etc. The Authority may by general or special order delegate to the Chairman, a Member, or officer of the Authority, any of its powers, duties or functions under this Act subject to such conditions as it may think fit to impose.
