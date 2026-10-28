@@ -1,0 +1,9 @@
+[^43][16. Privileges of Government in suits defended by it.___ Whenever any suit is brought in any Court of a Subordinate Judge of the first class [^44][against the Government]or against any Revenue-officer, [^45][and the Government undertakes] the defence thereof, it shall be lawful [^46][for the Provincial Government], by certificate signed by a Secretary thereto, to require that the trial of any such suit shall have precedence over the trial of any other suit or other civil proceeding then pending in the Court of the first class Subordinate Judge, or, if the suit is transferred, in the Court of the District Judge; and the Court shall give effect to every such requirement.
+The privilege conferred [^47][on the Provincial Government] by this section shall, mutatis mutandis, apply to any appeal or special appeal against any decree in any such suit as is described in this section.]
+17. [Revival of section 13 of Bom. Reg. XVIl of 1827. Operation of Bom. Reg. XVII of 1827 in sites of villages and towns. Recovery of certain advances made by Local Government.] Rep. by the Bombay Revenue Jurisdiction Act, 1880 (XV of 1880)[^46].
+
+[^43]: Subs. by the Bombay Revenue Jurisdiction (Amendment) Act, 1929 (Bom. 21 of 1929), s. 2, for the original s. 16.
+[^44]: The original words “against Government” were first subs. by A.O., 1937 and then amended by A.O., 1949, Sch., and A. O., 1961, Art. 2 (with effect from the 23rd March, 1956), to read as above.
+[^45]: The original words “against Govt. undertakes” were first subs . by A. O., 1937 and then amended by A .O., 1949, Sch., and A. O.,1961, Art.2 (with effect from the 23rd March, 1956), to read as above.
+[^46]: Subs, by A.O., 1937, for “for the Govt.”.
+[^47]: Subs. ibid., for “on Govt.”. 6The repeal of the first clause of s. 17 does not operate in any Scheduled District unless and until the Bombay Land Revenue Code, 1879 (Bom. 5 of 1879), has been extended to that district; see Act 15 of 1880, s. 2.
