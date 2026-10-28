@@ -1,0 +1,4 @@
+8. Submission of estimates of receipts and expenditures to the Federal Government.— (1) The Board shall, in the month of November every year, submit, in such manner and form as the [^9][Federal Government] may direct, to the [^9][Federal Government], for making necessary provision in its Budget, a statement of the estimated receipts and expenditure pertaining to the discharge of its functions under this Ordinance in respect of the new financial year together with a statement showing separately the estimated receipts and expenditure in foreign exchange for that year.
+(2) The Board shall not, without the previous sanction of the [^9][Federal Government], incur any expenditure, or undertake any financial liability involving expenditure, in excess of the amount provided for in the Budget.
+
+[^9]: Subs. by F.A.O., 1975 Art. 2 and Table for “Central Government”.
