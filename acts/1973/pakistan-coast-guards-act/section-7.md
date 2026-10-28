@@ -1,0 +1,1 @@
+7. Pay, pension, etc., of officers and members.—The officer and members of the Force shall receive such pay, pension and other remuneration, and shall enjoy such leave and other privileges as may be prescribed from time to time.

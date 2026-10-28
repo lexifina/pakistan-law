@@ -1,0 +1,2 @@
+13. Appeal and revision.—(1) In all cases decided by the Deputy Director General, of the Commandant or any other officer, a person aggrieved may, within thirty days of the order, appeal to the officer higher than the one awarding the punishment.
+(2) A person aggrieved by an order of the Director General awarding any punishment may, within thirty days of the order, apply to the Federal Government for a revision.

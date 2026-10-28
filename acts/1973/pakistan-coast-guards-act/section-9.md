@@ -1,0 +1,1 @@
+9. Consequence of sentence of imprisonment.—A member of the Force who is sentenced to a term of imprisonment for a term which is not less than ninety days shall be deemed to have been dismissed from the Force.

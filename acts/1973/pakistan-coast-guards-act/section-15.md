@@ -1,0 +1,1 @@
+15. Disposal of goods seized by members of the Force.—All goods seized by any officer or member of the Force shall be dealt with in accordance with the provisions of section 169 of the Customs Act, 1969 (IV of 1969), and an officer nominated by the Director General, shall be associated at the time of their final disposal by an appropriate Customs authority under that Act.

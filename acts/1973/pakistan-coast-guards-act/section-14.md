@@ -1,0 +1,3 @@
+## CHAPTER II
+14. Powers of the officers of the Force.—(1) The officers and members of the Force shall perform such functions of officers of customs as may be entrusted to them and exercise such powers under the Customs Act, 1969 (IV of 1969), as may be delegated to them under section 6 of that Act for the purposes of prevention of smuggling along the coastal areas of the Provinces of Sind and Baluchistan, excepting the limits of the various ports in those areas.
+(2) In addition to the powers conferred under sub-section (1), the officers and junior commissioned officers of the Force shall exercise all the powers conferred on the officer in charge of a police station under the Police Act, 1861 (V of 1861), and under the Code of Criminal Procedure, 1898 (Act V of 1898).
