@@ -1,0 +1,6 @@
+5. Registration of marriages.⸺(1) Every marriage solemnized under Muslim Law shall be registered in accordance with the provisions of this Ordinance.
+(2) For the purpose of registration of marriages under this Ordinance, the Union Council shall grant licences to one or more persons, to be called Nikah Registrars, but in no case shall more than on Nikah Registrar be licensed for any one Ward.
+(3) Every marriage not solemnized by the Nikah Registrar shall, for the purpose of registration under this Ordinance, be reported to him by the person who has solemnized such marriage.
+(4) Whoever contravenes the provisions of sub-section (3) shall be punishable with simple imprisonment for a term which may extent to three months, or with fine which may extend to one thousand rupees, or with both.
+(5) The form of nikah nama, the registers to be maintained by Nikah Registrars, the records to be preserved by Union Councils, the manner in which marriages shall be registered and copies of nikah nama shall be supplied to the parties and the fees to be charged thereof, shall be such as may be prescribed.
+(6) Any person may, on payment of the prescribed fee, if any, inspect at the office of the Union Council the record preserved under sub-section (5), or obtain a copy of any entry therein.

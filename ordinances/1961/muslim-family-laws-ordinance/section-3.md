@@ -1,0 +1,2 @@
+3. Ordinance to override other laws, etc.⸺(1) The provisions of this Ordinance shall have effect notwithstanding any law, custom or usage, and the registration of Muslim marriages shall take place only in accordance with those provisions.
+(2) For the removal of doubt, it is hereby declared that the provisions of the Arbitration Act, 1940 (X of 1940), the Code of Civil Procedure 1908 (Act V of 1908), and any other law regulating the procedure of courts shall not apply to any Arbitration Council.
