@@ -1,0 +1,1 @@
+9. Power to receive information. A person shall have the right to provide any information or document, relating to a matter before the Commission, and the Commission may consider such information or document.
