@@ -1,0 +1,3 @@
+[^1]: Short title given by the Short Titles Act, 1897 (14 of 1897). This Act is based on the Bills of Lading Act, 1855 (18 &19 Vict., c.111). It has been declared to be in force in all the Provinces and the Capital of the Federation except the Scheduled Districts, by the Laws Local Extent Act, 1874 (15 of 1874), s. 3. It has been declared, by notification under s. 3(a) of the Scheduled Districts Act, 1874 (14 of 1874), to be in force in the following Scheduled Districts namely:__ Sind .. .. ... See Gazette of India, 1880, Pt. I., p. 672.
+[^2]: The word “Indian” rep. by the Federal Laws (Revision and Declaration) Act, 1951 (26 of 1951), s. 3 and II Sch.
+[^3]: As to stoppage in transit, see the Contract Act, 1872 (9 of 1872), ss. 99-106.
