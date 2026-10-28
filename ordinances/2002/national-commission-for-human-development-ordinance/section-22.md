@@ -1,0 +1,1 @@
+22. Immunity of the Commission.—No suit, prosecution or other legal proceeding shall lie against the Commission, the Chairman, Members, officers, advisors, consultants and other persons and employees of the Commission in respect of anything done or intended to be done in good faith under this Ordinance.

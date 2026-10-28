@@ -1,0 +1,3 @@
+12. Remuneration of officers and staff of the Commission.—(1) The Commission shall, by regulations, determine the terms and conditions of, including salaries, allowances and other benefits for officers and staff commensurate with the economic condition of the country and compatible with other such organizations, including private sector.
+(2) The regulations referred to in sub-section (1) shall include the procedure it inquires and disciplinary action to be taken in result thereof against any employee of the Commission
+Provided that any person in the service of Pakistan employed in the Commission whether on deputation or on transfer, shall be governed by the service rules and regulations applicable to him before his appointment in the Commission.

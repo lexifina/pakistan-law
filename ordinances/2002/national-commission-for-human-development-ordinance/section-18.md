@@ -1,0 +1,2 @@
+18. Annual and other reports.—(1) Within three months of the conclusion of each calendar year, the Chairman shall submit an annual report to the President in respect of activities of the Commission including the status of its existing programmes, projects and future plans formulated in furtherance of its aims and objects.
+(2) In addition to the annual report referred to in sub-section (1), the Chairman shall, from time to time, place before the President such other reports relating to the performance of the Commission or whenever so directed by the President.

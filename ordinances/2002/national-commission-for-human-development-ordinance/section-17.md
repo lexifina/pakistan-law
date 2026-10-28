@@ -1,0 +1,3 @@
+17. Audit and accounts.—(1) The accounts of the Commission shall be audited by a reputable firm of Chartered Accountants to be appointed by the Commission on such remuneration as it may determine.
+(2) The auditors appointed under sub-section (1) shall be provided access to the books, accounts and other documents as may be considered necessary by them for audit of the accounts of the Commission and may examine any Member, officer or member of the staff of the Commission in connection with such audit.
+(3) The auditors shall submit periodical reports to the Commission after audit of the accounts.
