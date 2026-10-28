@@ -1,0 +1,1 @@
+7. Reports.⎯ The Committee shall publish annual report of its activities and such other periodic or special reports relating to its functioning as it deems fit. The reports shall be submitted to the President of Pakistan.
