@@ -1,0 +1,6 @@
+9. Secretary.__ (1) There shall be a Secretary of the Board who shall be a full time officer appointed by the Federal Government on such terms and conditions as it may determine.
+(2) The Secretary shall be the Administrative Officer of the Board and shall ensure subject to the approval of the Chairman that the orders of the Board and the Chairman are carried out and shall execute decisions for and on behalf of the Board. He shall also act as Secretary of the Academic Council.
+(3) The Secretary shall with the approval of the Chairman send notice of a meeting. The notice of the meeting and agenda shall be sent to every member of the Board by registered post or courier.
+(4) The Secretary shall ensure that all funds are spent for the purpose for which they are granted, allocated or authorized and shall prepare and submit annual statement of accounts and budget estimates for the approval of the Board.
+(5) The Secretary shall maintain in minutes of the meetings of the Board and its records and perform such other duties and functions as may be assigned to him by the Board.
+(6) The Secretary shall also act as the Registrar of the Board and shall perform such functions as may be assigned to him in this connection by the Board.
