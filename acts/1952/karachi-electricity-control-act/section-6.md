@@ -1,0 +1,2 @@
+6. Penalty, etc.___(1) If any person contravenes any order made or deemed to be made under section 3 of this Act, he shall be punishable with imprisonment for a term which may extend to six months or with fine or with both.
+(2) Where the person guilty of the contravention is a company or other body corporate, the managing director, manager, secretary, or other principal officer managing its business shall be deemed to be guilty of the contravention and be punishable accordingly.

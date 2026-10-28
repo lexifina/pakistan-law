@@ -1,0 +1,1 @@
+10. Effect of inconsistent provisions with other enactments. Any order made or deemed to be made under the provisions of this Act shall have effect notwithstanding anything inconsistent therewith contained in any other law.

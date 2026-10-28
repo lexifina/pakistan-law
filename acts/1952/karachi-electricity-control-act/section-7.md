@@ -1,0 +1,2 @@
+7. Saving as to orders.___(1) No order made or deemed to be made under section 3 of this Act shall be called in question in any Court.
+(2) Where an order purports to have been made and signed by any officer or authority in exercise of any of the powers conferred by or deemed to be conferred by or under the Sind Electricity Control Act, 1947 (Sind Act III of 1947), or this Act, a Court shall presume that such order was so made and signed by that officer or authority.
