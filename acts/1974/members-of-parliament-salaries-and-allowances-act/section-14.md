@@ -1,0 +1,1 @@
+14. Power to make rules.—After consultation with the Speaker of the Assembly and the Chairman of the Senate, the Federal Government may, by notification in the official Gazette, make rules for carrying out the purposes of this Act.
