@@ -1,0 +1,2 @@
+4. Constitution of the Council, etc.—(1) The Federal Government may, by notification in the official Gazette, constitute a Council to be known as the Pakistan Pre-shipment Inspection Council consisting of such number of members as the Federal Government may determine.
+(2) The Council shall render to the Authority such technical assistance in relation to the execution of the provisions of this Ordinance as may be required of it.

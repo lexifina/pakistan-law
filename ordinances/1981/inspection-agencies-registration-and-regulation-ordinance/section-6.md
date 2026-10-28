@@ -1,0 +1,2 @@
+6. Registration of companies, etc.—(1) Every company carrying on the business of inspection at the commencement of this Ordinance shall, within three months of such commencement, and every company desiring to commence such business after such commencement 1[or within such further time as the Authority may allow] shall, before commencing business, apply to the Authority for registration on payment of such fee as may be prescribed.
+(2) No company shall be registered unless it conforms to the prescribed conditions of registration.
