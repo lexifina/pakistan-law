@@ -1,0 +1,5 @@
+58. Abetment. Any person subject to this Act who abets the commission of any offence before in this Act specified, or of any offence punishable under [^84][* * *] the Pakistan Air Force Act, 1953 (VI of 1953), or the [^85][Pakistan Navy Ordinance,1961 (XXXV of 1961)], such offence being of the same nature as an offence before in this Act specified, shall, on conviction by court martial, be punished with the punishment provided for such offence in this Act (XIV of 1932) [^84][* * *] [^86][or the Pakistan Air Force Act, 1953 (VI of 1953),] or in the [^85][Pakistan Navy Ordinance, 1961 (XXXV of 1961)], as the case may be, or with such less punishment as in this Act mentioned.
+
+[^84]: Omitted by the Federal Laws (Revision and Declaration) Ordinance, 1981 (27 of 1981), s. 3, and 2nd Sch.
+[^85]: Subs. by the Pakistan Army (Amdt.) Ordinance, 1965 (40 of 1965), ss. 5 and 6, for “Pakistan Navy (Discipline) Act, 1934”.
+[^86]: Ins. by the Central Laws (Statute Reform) Ordinance 1960 (21 of 1960), s. 3, and 2nd Sch., (with effect from 14th October, 1955).

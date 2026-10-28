@@ -1,0 +1,2 @@
+169. Privileges of person attending courts martial.__ (1) No president or member of a court martial, no Judge Advocate, no party to any proceedings before a court martial, or his legal practitioner or agent, and no witness acting in obedience to a summons or order to attend a court martial shall, while proceeding to, attending, or returning from, a court martial, be liable to arrest under civil or revenue process.
+(2) If any such person is arrested under any such process, he shall be discharged by order of the court martial.

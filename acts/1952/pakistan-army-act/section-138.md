@@ -1,0 +1,2 @@
+138. Execution of sentence of detention. Where a sentence of detention is passed under this Act, the person on whom that sentence has been passed shall undergo the term of his detention either in a detention barrack or in military custody, or partly in one and partly in the other, but not in a prison.
+139. [Interim custody of offenders sentenced to transportation] Omitted by the Pakistan Army (Amendment) Act, 1976 (51 of 1976), s. 26.

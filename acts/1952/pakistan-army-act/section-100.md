@@ -1,0 +1,1 @@
+100. Persons triable by summary court martial. A summary court martial may try any person subject to this Act and under the command of the officer holding the court, except an officer, junior commissioned officer or warrant officer.

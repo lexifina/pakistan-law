@@ -1,0 +1,2 @@
+175D. Welfare through affiliated entities.— The Pakistan Army may, in the manner as may be prescribed through its affiliated entities, carry out activities that relate to or generate proceeds for, inter alia, welfare and rehabilitation of serving and retired personnel of Pakistan Army, wounded personnel, as well as families of Shuhada:
+Provided that all such activities already undertaken shall always be deemed to have been validly done under this Act.

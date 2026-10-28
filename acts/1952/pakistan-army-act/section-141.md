@@ -1,0 +1,1 @@
+141. Communication of certain orders to civil prison officers. Whenever an order is duly made under this Act setting aside or varying any sentence, order or warrant under which any person is confined in a civil prison, a warrant in accordance with such order shall be forwarded by the prescribed officer to the officer-in-charge of the prison in which such person is confined.

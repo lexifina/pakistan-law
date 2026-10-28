@@ -1,0 +1,4 @@
+95. Power of criminal court to require delivery of offender.__ (1) When a criminal court having jurisdiction is of the opinion that proceedings ought to be instituted before itself in respect of any civil offence, it may, by written notice, require the prescribed officer, at his option, either to deliver over the offender to the nearest magistrate to be proceeded against according to law, or to postpone proceedings pending a reference to the [^134][Federal Government].
+(2) In every such case, the said officer shall either deliver over the offender in compliance with the requisition or shall forthwith refer the question as to the court before which the proceedings are to be instituted for the determination of the [^134][Federal Government], whose order upon such reference shall be final.
+
+[^134]: Subs. by the Pakistan Army (Amdt.) Act, 1973 (51 of 1973), s. 3, for “Central Government”.

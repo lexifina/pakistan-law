@@ -1,0 +1,19 @@
+130. Provision in the case of accused being lunatic.__ (1) Whenever, in the course of a trial by court martial, it appears to the court that the person charged is of unsound mind and consequently incapable of making his defence, or that such person committed the act alleged but was by reason of unsoundness of mind incapable of knowing the nature of the act or that it was wrong or contrary to law, the court shall record a finding accordingly, and the president of the court, or the officer holding the trial as the case may be, shall forthwith report the case to the confirming officer or, in the case of a court martial whose finding does not require confirmation to the prescribed officer.
+(2) The confirming officer to whom a case is reported under sub-section (1) may, if he does not confirm the finding, take steps to have the accused person tried by the same or another court martial for the offence with which he was originally charged
+(3) The prescribed officer to whom a case is reported under sub-section (1) and a confirming officer confirming a finding in any case so reported to him shall order the accused person to be kept in custody in the prescribed manner, and shall report the case for the orders of the [^157][Federal Government].
+(4) On receipt of a report under sub-section (3), the [^157][Federal Government] may order the accused person to be detained in a lunatic asylum or other suitable place of safe custody.
+(5) Where an accused person, having been found by reason of unsoundness of mind to be incapable of making his defence, is in custody or under detention, the prescribed officer may__
+(a) if such person is in custody under sub-section (3), on the report of a medical officer that he is capable of making his defence, or
+(b) if such person is detained in a jail under sub-section (4), on a certificate of the Inspector General of Prisons and if such person is detained in a lunatic asylum under the said sub-section, on a certificate of any two or more of the visitors of such asylum that he is capable of making his defence,
+take steps to have such person tried by the same or another court martial for the offence with which he was originally charged or, provided that the offence is a civil offence, by a criminal court.
+(6) Where any person is in custody under sub-section (3) or under detention under sub-section (4),__
+(a) if such person is in custody under sub-section (3), on the report of a medical officer, or
+(b) if such person is detained under sub-section (4), on a certificate from any of the authorities mentioned in clause (b) of sub-section (5), that, in the judgment of such officer or authority, such person may be released without danger of his doing injury to himself or to any other person, the [^158][Federal Government] may order such person to be released, or to be detained in custody or to be transferred to a public lunatic asylum if he has not already been sent to such an asylum.
+(7) Where any relative or friend of any person who is in custody under sub-section (3) or under detention under sub-section (4) desires that he shall be delivered to his care and custody, the [^158][Federal Government] may, upon the application of such relative or friend and on his giving security to the satisfaction of the [^158][Federal Government] that the person delivered shall__
+(a) be properly taken care of and prevented from doing injury to himself or to any other person, and
+(b) be produced for the inspection of such authority, and at such time and places, as the [^158][Federal Government] may direct,
+order such person to be delivered to such relative or friend.
+(8) A copy of every order made by the prescribed officer under sub-section (5) shall forthwith be sent to the [^158][Federal Government].
+
+[^157]: Subs. by the Pakistan Arm (Amdt.) Act, 1973 (51 of 1973), s. 3, for “Central Government”.
+[^158]: Subs. by the Pakistan Army (Amdt.) Act, 1973 (51 of 1973), s. 3, for “Central Government”.

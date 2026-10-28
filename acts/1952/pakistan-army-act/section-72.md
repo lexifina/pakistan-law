@@ -1,0 +1,1 @@
+72. Period during which a person is deemed to be a prisoner of war. For the purposes of sections 70 and 71 a person shall be deemed to continue to be a prisoner of war until the conclusion of any inquiry into his conduct such as is referred to in section 68 and if he is dismissed from the service in consequence of such conduct, until the date of dismissal.

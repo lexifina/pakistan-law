@@ -1,0 +1,1 @@
+53. Striking or ill-treating person subject to the Act. Any person subject to this Act who strikes or ill-treats any person subject to this Act being his subordinate in rank or position shall, on conviction by court martial, be punished with rigorous imprisonment for a term which may extend to five years or with such less punishment as is in this Act mentioned.
