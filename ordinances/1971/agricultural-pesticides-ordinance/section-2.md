@@ -1,0 +1,1 @@
+2. Application of other laws not barred. The provisions of tins Ordinance shall be in addition to, and not in derogation of the provisions of the Pension Act, 1919 (XII of 1919), and any other law for the time being in force.

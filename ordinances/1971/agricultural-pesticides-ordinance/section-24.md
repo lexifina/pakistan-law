@@ -1,0 +1,5 @@
+24. Entry and seizure.—(1) If an Inspector has reason to believe that an offence punishable under this Ordinance or the rules made thereunder has been, is being or is about to be committed at any time or place, he may enter and search, such place and seize any pesticide, article or thing to which the offence relates found therein.
+(2) Any pesticide, article or thing seized under sub-section (1) shall be disposed of in accordance with the decision of the Court before which the offender is prosecuted for a contravention of any of the provisions of this Ordinance or the rules.
+[^34][(3) An Inspector may apply to the District Magistrate, Additional District Magistrate, Sub- Divisional Magistrate of the District or Sub-Division or Tehsil or Taluka, as the case may be, for police assistance and such Magistrate may direct that an executive Magistrate shall accompany the Inspector alongwith a police party for the purpose of collecting sample for examination.].
+
+[^34]: New sub-section (3) added by the Agricultural Pesticides (Amdt.) Act, 1997 (39 of 1997) s. 8.
