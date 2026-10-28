@@ -1,0 +1,6 @@
+[^80][10A. Power to require from employers statements regarding fatal accidents.—(1) Where a Commissioner receives information from any source that a workman has died as a result of an accident arising out of and in the course of his employment, he may send by registered post a notice to the workman's employer requiring him to submit, within thirty days of the service of the notice, a statement, in the prescribed form, giving the circumstances attending the death of the workman, and indicating whether, in the opinion of the employer, he is or is not liable to deposit compensation on account of the death.
+(2) If the employer is of opinion that he is liable to deposit compensation, he shall make the deposit within thirty days of the service of the notice.
+(3) If the employer is of opinion that he is not liable to deposit compensation, he shall in his statement indicate the grounds on which he disclaims liability.
+(4) Where the employer has so disclaimed liability, the Commissioner, after such enquiry as he may think fit, may inform any of the dependants of the deceased workman that it is open to the dependants to prefer a claim for compensation, and may give them such other further information as he may think fit.
+
+[^80]: Ss. 10A and 10B were ins. by Act 15 of 1933, s. 8.

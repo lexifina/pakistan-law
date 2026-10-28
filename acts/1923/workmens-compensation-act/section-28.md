@@ -1,0 +1,9 @@
+28.Registration of agreements.—(1) Where the amount of any lump sum payable as compensation has been settled by agreement, whether by way of redemption of a half‑monthly payment or otherwise, or where any compensation has been so settled as being payable [^126][to a women or a person under a legal disability] [^127]* * * a memorandum thereof shall be sent by the employer to the Commissioner, who shall, on being satisfied as to its genuineness, record the memorandum in a register in the prescribed manner:
+Provided that
+(a) no such memorandum shall be recorded before seven days after communication by the Commissioner of notice to the parties concerned;
+3* * * * * * * (c) the Commissioner may at any time rectify the register;
+(d) where it appears to the Commissioner that an agreement as to the payment of a lump sum whether by way of redemption of a half‑monthly payment or otherwise, or an agreement as to the amount of compensation payable 2[to a woman or a person under a legal disability] 4* * * ought not to be registered by reason of the inadequacy of the sum or amount, or by reason of the agreement having been obtained by fraud or undue influence or other improper means, he may refuse to record the memorandum of the agreement 5[and may make such order] including an order as to any sum already paid under the agreement, as he thinks just in the circumstances.
+(2) An agreement for the payment of compensation which has been registered under sub‑section (1) shall be enforceable under this Act notwithstanding anything contained in the Contract Act, 1872 (IX of 1872), or in any other law for the time being in force.
+
+[^126]: Subs. by the Workmen’s Compensation (Amdt.) Act, 1929 (5 of 1929), section 6 (w.e.f. 29­3­1929), for “to a person under a legal disability”.
+[^127]: The words “or to a dependent” omitted by the Repealing and Amending Act, 1924 (7 of 1924), s. 3 and Sch. II (w.e.f. 15-3-1924).

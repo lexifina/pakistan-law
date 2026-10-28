@@ -1,0 +1,1 @@
+10D. Fixation of abstracts of the Act or rules at the entrance of the premises.—There shall be affixed in some conspicuous place near the main entrance of every place where workmen are employed, in English and in the language of the majority of the workmen, such abstracts of this Act and of the rules made thereunder as may be prescribed.]

@@ -1,0 +1,3 @@
+25. Method of recording evidence. The Commissioner shall make a brief memorandum of the substance of the evidence of every witness as the examination of the witness proceeds, and such memorandum shall be written and signed by the Commissioner with his own hand and shall form part of the record:
+Provided that, if the Commissioner is prevented from making such memorandum, he shall record the reason of his inability to do so and shall cause such memorandum to be made in writing from his dictation and shall sign the same, and such memorandum shall form part of the record:
+Provided further that the evidence of any medical witness shall be taken down as nearly as may be word for word.

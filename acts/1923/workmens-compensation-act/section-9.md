@@ -1,0 +1,1 @@
+9. Compensation not to be assigned, attached or charged.—Save as provided by this Act, no lump sum or half-monthly payment payable under this Act shall in any way be capable of being assigned or charged or be liable to attachment or pass to any person other than the workman by operation of law, nor shall any claim be set off against the same.

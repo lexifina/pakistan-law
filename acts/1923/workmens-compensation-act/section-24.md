@@ -1,0 +1,3 @@
+24. Appearance of parties. Any appearance, application or act required to be made or done by any person before or to a Commissioner (other than an appearance of a party which is required for the purpose of his examination as a witness) may be made or done on behalf of such person by a legal practitioner or [^124][by an official of an Insurance Company or registered Trade Union authorized in writing by such person or, with the permission of the Commissioner, by any other person so authorized].
+
+[^124]: Subs. by the Workmen’s Compensation (Amdt.) Act, 1938 (9 of 1938), section 10 (w.e.f. 5­4­1938), for “other person authorized in writing by such person”.

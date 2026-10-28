@@ -1,0 +1,3 @@
+18. Proof of age.— Where any question arises as to the age of a person injured by accident arising out of and in the course of his employment in a factory, [^101][a valid certificate granted in respect of such person under section 12 or section 52 of the Factories Act, 1934 (XXV of 1934)], before the occurrence of the injury shall be conclusive proof of the age of such person.
+
+[^101]: Subs. by the Workmen’s Compensation (Amdt.) Act, 1938 (9 of 1938), section 7 (w.e.f 5-4­1938), for “a certificate granted in respect of such person under section 7 or section 8 of the Indian Factories Act, 1911”.
