@@ -1,0 +1,1 @@
+4. Method of collection and recovery of cess. The cess shall be collected and recovered in the manner prescribed from time to time for the collection and recovery of the land revenue or the urban immovable property tax, as the case may be.
