@@ -1,0 +1,1 @@
+15. Sale by description.___Where there is a contract for the sale of goods by description, there is an implied condition that the goods shall correspond with the description ; and, if the sale is by sample as well as by description it is not sufficient that the bulk of the goods corresponds with the sample if the goods do not also correspond with the description.

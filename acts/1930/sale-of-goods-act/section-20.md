@@ -1,0 +1,1 @@
+20. Specific goods in a deliverable state.___Where there is an unconditional contract for the sale of specific goods in a deliverable state, the property in the goods passes to the buyer when the contract is made, and it is immaterial whether the time of payment of the price or the time of delivery of the goods, or both, is postponed.

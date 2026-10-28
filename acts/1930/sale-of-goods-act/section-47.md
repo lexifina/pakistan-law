@@ -1,0 +1,6 @@
+## Unpaid seller’s Lien
+47. Seller’s lien.___(1) Subject to the provisions of this Act, the unpaid seller of goods who is in possession of them is entitled to retain possession of them until payment or tender of the price in the following cases, namely :___
+(a) where the goods have been sold without any stipulation as to credit ;
+(b) where the goods have been sold on credit, but the term of credit has expired ;
+(c) where the buyer becomes insolvent.
+(2) The seller may exercise his right of lien notwithstanding that he is in possession of the goods as agent or bailee for the buyer.

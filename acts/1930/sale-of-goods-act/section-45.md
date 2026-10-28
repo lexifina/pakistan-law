@@ -1,0 +1,7 @@
+_____
+## CHAPTER V
+## RIGHTS OF UNPAID SELLER AGAINST THE GOODS
+45. “Unpaid seller” defined.___(1) The seller of goods is deemed to be an “unpaid seller” within the meaning of this Act___
+(a) when the whole of the price has not been paid or tendered ;
+(b) when a bill of exchange or other negotiable instrument has been received as conditional payment, and the condition on which it was received has not been fulfilled by reason of the dishonour of the instrument or otherwise.
+(2) In this Chapter, the term “seller” includes any person who is in the position of a seller, as, for instance, and agent of the seller to whom the bill of lading has been indorsed, or a consignor or agent who has himself paid, or is directly responsible for, the price.

@@ -1,0 +1,2 @@
+22. Specific goods in a deliverable state, when the seller has to do anything thereto in
+order to ascertain price.___Where there is a contract for the sale of specific goods in a deliverable state, but the seller is bound to weigh, measure, test or do some other act or thing with reference to the goods for the purpose of ascertaining the price, the property does not pass until such act or thing is done and the buyer has notice thereof.

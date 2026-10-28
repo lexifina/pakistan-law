@@ -1,0 +1,1 @@
+28. Sale by one of joint owners.___If one of several joint owners of goods has the sole possession of them by permission of the co-owners, the property in the goods in transferred to any person who buys them of such joint owner in good faith and has not at the time of the contract of sale notice that the seller has not authority to sell.
