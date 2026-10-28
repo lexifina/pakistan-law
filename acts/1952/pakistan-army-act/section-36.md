@@ -1,0 +1,7 @@
+36. Desertion and aiding deserters.__ (1) Any person subject to this Act who deserts or attempts to desert the service shall, on conviction by court martial.
+if he commits the offence when on active service or when under orders for active service, be punished with death, or such less punishment as is in this Act mentioned; and
+if he commits the offence under any other circumstances, be punished [^69][with rigorous imprisonment for a term which may extend to five years] or with such less punishment as is in this Act mentioned.
+(2) Any person subject to this Act who knowingly harbours any deserter from any of the military, naval or air forces of Pakistan shall, on conviction by court martial, be punished with rigorous imprisonment for a term which may extend to seven years or with such less punishment as is in this Act mentioned.
+(3) any person subject to this Act who, being cognizant of any desertion, or attempt at desertion, of any person belonging to the military, naval or air forces of Pakistan, does not forthwith give notice to his own or some other superior officer, or does not take any steps in his power to cause such person to be apprehended, shall, on conviction by court martial, be punished with rigorous imprisonment for a term which may extend to three years or with such less punishment as is in this Act mentioned.
+
+[^69]: Subs. by the Pakistan Army (Amdt.) Act, 1976 (51 of 1976), s. 8.

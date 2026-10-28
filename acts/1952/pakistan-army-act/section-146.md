@@ -1,0 +1,1 @@
+146. Release on suspension. Where in accordance with any order passed under section 144 a sentence is suspended, the offender shall, whether he has been committed to prison or custody or not, be released forthwith.

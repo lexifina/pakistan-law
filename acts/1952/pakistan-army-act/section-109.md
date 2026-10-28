@@ -1,0 +1,10 @@
+109. Summoning witnesses and production of documents.__ (1) The convening officer, the president of [^143][*] [^144][a court martial or a court of inquiry], the judge advocate, or the commanding officer of the accused person may, by summons under his hand, require the attendance at a time and place to be mentioned in the summons of any person either to give evidence or to produce any document or thing.
+(2) In the case of a witness amendable to military, naval or air force authority, the summons shall be sent to his commanding officer and such officer shall serve it upon him accordingly.
+(3) In the case of any other witness, the summons shall be sent to the magistrate within whose jurisdiction he may be or reside, and such magistrate shall give effect to the summons as if the witness were required in the court of such magistrate.
+(4) When a witness is required to produce any document or thing in his possession or power, the summons shall describe it with reasonable precision.
+(5) Nothing in this section shall be deemed to affect the Evidence Act, 1872 (I of 1872), sections 123 and 124, or to apply to any letter, postcard, telegram or other document in the custody of the postal or telegraph authorities.
+(6) If any document in such custody is, in the opinion of any district magistrate, high court, or court of session wanted for the purpose of any court martial, such magistrate or court may require the postal or telegraph authorities, as the case may be, to deliver such document to such person as such magistrate or court may direct.
+(7) If any such document is, in the opinion of any other magistrate or of any commissioner of police or district superintendent of police, wanted for any such purpose, he may require the postal or telegraph authorities, as the case may be, to cause search to be made for and to detain such document pending the orders of any such district magistrate, high court or court of session.
+
+[^143]: The redundant word “the” has been omitted in printing.
+[^144]: Subs. by the Pakistan Army (Amdt.) Ordinance, 1965 (15 of 1965), s. 4, for “Court”.

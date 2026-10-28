@@ -1,0 +1,4 @@
+150. Procedure on further sentence of offender whose sentence is suspended. Where an offender, while a sentence on him is suspended, is sentenced for any other offence, then__
+(a) if the further sentence is also suspended under this Act, the two sentences shall run concurrently;
+(b) if the further sentence is for a period of three months or more and is not suspended under this Act, the offender shall also be committed to prison or military custody on the unexpired portion of the previous sentence, but both sentences shall run concurrently; and
+(c) if the further sentence is for a period of less than three months and is not suspended under this Act, the offender shall be committed on that sentence only, and the previous sentence shall, subject to any order which may be passed under section 148 or 149 continue to be suspended.

@@ -1,0 +1,1 @@
+112. Rules of evidence to be the same as in criminal courts. Subject to the provisions of this Act, the rules of evidence in proceedings before courts martial shall be the same as those which are followed in criminal courts.

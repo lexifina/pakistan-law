@@ -1,0 +1,6 @@
+136. Execution of sentence of [^168][imprisonment for life] or [^169][*] imprisonment. Whenever any sentence of [^168][imprisonment for life] or [^169][*] imprisonment is passed under this Act, or whenever any sentence of death so passed is commuted to [^168][imprisonment for life] or to [^169][*] imprisonment, the commanding officer of the person under sentence, or such other officer as may be prescribed, shall forward a warrant in the prescribed form to the officer-in-charge of the civil prison in which such person is to be confined, and shall forward him to such prison with the warrant:
+Provided that in the case of a sentence of [^169][*] imprisonment for a period not exceeding three months, the confirming officer, or in the case of a sentence which does not require confirmation, the court, may direct that the sentence shall be carried out in military custody:
+Provided further that, on active service, a sentence of [^169][*] imprisonment may be carried out by confinement in such place as the officer commanding the forces in the field may, from time to time, appoint.
+
+[^168]: Subs. by the Pakistan Army (Amdt.) Act 1976, (51 of 1976), s. 24.
+[^169]: Subs. and omitted by the Pakistan Army (Amdt.) Ordinance, 1984 (36 of 1984), ss. 21-23.

@@ -1,0 +1,2 @@
+115. Enrolment paper.__ (1) Any enrolment paper purporting to be signed by an enrolling officer shall, in proceedings under this Act, be evidence that the person enrolled gave the answers which he is therein represented as having given.
+(2) The enrolment of such person may be proved by the production of his enrolment paper or a copy of his enrolment paper purporting to be certified to be a true copy by the officer having the custody of the enrolment paper.

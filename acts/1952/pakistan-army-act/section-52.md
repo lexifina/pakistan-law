@@ -1,0 +1,1 @@
+52. Unbecoming behaviour. Any officer, junior commissioned officer or warrant officer, who behaves in a manner unbecoming his position and the character expected of him shall, on conviction by court martial, be liable to be dismissed from the service or to suffer such less punishment as is in this Act mentioned.

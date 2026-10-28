@@ -1,0 +1,1 @@
+67. Deduction from public money due, other than pay. Any sum authorised by this Act to be deducted from the pay and allowances of any person may, without prejudice to any other mode of recovering the same, be deducted from any public money due to him other than a pension.

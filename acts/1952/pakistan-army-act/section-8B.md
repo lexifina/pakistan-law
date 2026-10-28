@@ -1,0 +1,7 @@
+8B. Reappointment [^46][and/or] extension of the [^46][Chief of the Army Staff concurrently the
+Chief of the Defense Forces].— (1) Notwithstanding anything contained in this Act or any other law for the time being in force, the President, on the advice of the Prime Minister, may reappoint the [^46][Chief of the Army Staff concurrently the Chief of the Defense Forces] for additional tenure of [^47][five (05)] years, [^46][*] [^47][, and/or] extend the tenure(s) of the [^46][Chief of the Army Staff concurrently the Chief of the Defense Forces] up to [^47][five (05)] years, on such terms and conditions, as may be determined by the President, on the advice of the Prime Minister, in the national security interest or exigencies, from time to time [^46][;]
+[^46][Explanation:__ The provisions of sub-section shall mutatis mutandis apply where a General is promoted as a Field Marshal.]
+(2) Notwithstanding anything contained in this Act or any other law, or any order or judgment of any Court, the appointment, reappointment or extension of the [^46][Chief of the Army Staff concurrently the Chief of the Defense Forces], or the exercise of discretion by the appointing authority in this regard, shall not be called into question before any Court on any ground whatsoever.
+
+[^46]: Subs., omitted and ins. by Act No. XXXIII of 2025, ss. 2, 6, 7 and 8.
+[^47]: Subs. by Act No. XXXIII of 2024, ss. 3-4

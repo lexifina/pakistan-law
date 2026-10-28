@@ -1,0 +1,7 @@
+111. Conviction of one offence permissible on charge of another.__ (1) A person charged before a court martial with desertion may be found guilty of attempting to desert or of being absent without leave.
+(2) A person charged before a court martial with attempting to desert may be found guilty of being absent without leave.
+(3) A person charged before a court martial with any one of the offences specified in clauses (a) and (b) of section 40 may be found guilty of any other of these offences with which he might have been charged.
+(4) A person charged before a court martial with an offence punishable under section 59 may be found guilty of any other offence of which he might have been found guilty if the provisions of the Code of Criminal Procedure, 1898 (V of 1898), had been applicable.
+(5) A person charged before a court martial with any offence under this Act may, on failure of proof of an offence having been committed in circumstances involving a more severe punishment be found guilty of the same offence as having been committed in circumstances involving a less severe punishment.
+(6) A person charged before a court-martial with any offence under this Act may be found guilty of having attempted to commit, or of abetment of, that offence although the attempt or abetment is not separately charged.
+(7) A person charged before a court martial with using or attempting to use, criminal force, to his superior officer, knowing or having reason to believe him to be such may be found guilty of having committed an assault on such superior officer.

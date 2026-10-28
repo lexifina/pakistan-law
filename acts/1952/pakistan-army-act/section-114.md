@@ -1,0 +1,1 @@
+114. Presumption as to signatures. In any proceedings under this Act, any application, certificate, warrant, reply or other document purporting to be signed by an Officer in the service of the Government shall, on production, be presumed to have been duly signed by the person by whom and in the character in which it purports to have been signed until the contrary is proved.

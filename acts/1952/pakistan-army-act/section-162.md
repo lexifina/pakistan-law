@@ -1,0 +1,2 @@
+162. Property in the hands of the committee or the prescribed person not to be assets
+at the place where the committee or the prescribed person is stationed. Any property coming under section 158 into the hands of the committee or the prescribed person shall not, by reason of so coming, be deemed to be assets or effects at the place in which that committee or prescribed person is stationed and it shall not be necessary by reason thereof that representation be taken out in respect of that property for that place.

@@ -1,0 +1,1 @@
+8G. Abolishment of the Office of the Chairman, Joint Chiefs of Staff Committee.__ Notwithstanding anything contained in this Act, the office of the Chairman, Joint Chiefs of Staff Committee shall stand abolished with effect from the twenty-seventh day of November two thousand and twenty-five.]
