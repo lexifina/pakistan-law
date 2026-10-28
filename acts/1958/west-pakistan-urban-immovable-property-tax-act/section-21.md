@@ -1,0 +1,1 @@
+21. Assessing authorities, officers and servants to be deemed public servants.—Every assessing authority, and every officer working under the orders of such authority for the purposes of this Act, shall be deemed to be a public servant within the meaning of section 21 of the Pakistan Penal Code (XLV of 1860).

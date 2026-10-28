@@ -1,0 +1,1 @@
+17. Remuneration of local authority. When the tax is collected by any local authority such local authority shall be entitled to such remuneration on account of the cost of collection as may be pre- scribed.

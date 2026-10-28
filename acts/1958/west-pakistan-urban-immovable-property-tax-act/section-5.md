@@ -1,0 +1,5 @@
+5. Ascertainment of annual value. The annual value of any land or building shall be ascertained by estimating the gross annual rent at which such land or building together with its appurtenances and any furniture that may be let for use or enjoyment with such building might reasonably be expected to be let from year to year, less—
+(a) any allowance not exceeding twenty per centum of the gross annual rent as the assessing authority in each particular case may consider reasonable rent for the furniture let with any such building ;
+(b) an allowance of ten per centum for the cost of repairs and for all other expenses necessary to maintain such building in a state to command such gross annual rent. Such deduction shall be calculated on the balance of the gross annual rent after the deduction, if any, under clause (a); and
+(c) any land revenue actually paid in respect of such building or land :
+Provided that in calonlating the annual value of any building or land under this section the value of any machinery in such building or on such land shall be excluded.
