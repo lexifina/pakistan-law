@@ -1,0 +1,7 @@
+3. Establishment of the Gun and Country Club.—(1) On commencement of this Act, already functioning shooting facility in Islamabad shall stand established to be called as the Gun and Country Club.
+(2) The Club shall be a body corporate having succession perpetual and a common seal and shall have power to acquire property both moveable & immoveable in its name and shall by the said name, sue and be sued.
+(3) The Club shall consist of such classes of members as may be prescribed and all the existing members of the shooting facility shall be deemed to be members of the Club.
+(4) Any person, authority, committee etc. exercising or having right to exercise prior to commencement of this Act any power or function in relation to the Club shall cease to exercise or to have the right to exercise such power or function.
+(5) Except the land at which the Club stands established under this Act, all assets, rights, powers, authorities and privileges, cash and bank balances and all other interests and rights in, or arising out of, such property prior to commencement of this Act shall stand transferred to, and vest in, the Club.
+(6) All debts and liabilities incurred, all obligations undertaken, all contracts entered into, and all agreements made prior to commencement of this Act shall stand transferred to, and be deemed to have incurred, undertaken, entered into or made, by or with the Club.
+(7) Any sum payable to, or recoverable prior to commencement of this Act shall be deemed to be payable to, or recoverable by, the Club.

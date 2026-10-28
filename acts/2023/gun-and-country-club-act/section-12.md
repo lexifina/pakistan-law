@@ -1,0 +1,2 @@
+12. Continuance of service employees.___(1) Unless the Administrator of the Club otherwise directs in any particular case, all employees of the Club in employment prior to the commencement of this Act, may continue in their respective employments on the same terms and conditions as were applicable to them immediately before such commencement.
+(2) Notwithstanding anything contained in any other law for the time being in force, for any contract or agreement of service no compensation shall be admissible because of such transfer under sub-section (1).

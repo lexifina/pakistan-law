@@ -1,0 +1,3 @@
+10. Audit.___ (1) Subject to Articles 169 and 170 of the Constitution, the accounts of the Club shall be audited annually by the Auditor General of Pakistan.
+(2) Within six months of the close of the financial year, the Club shall submit to the Federal Government an audited report, statement of account of the Club including a balance sheet and an account of income and expenditure in respect of the preceding financial year.
+(3) Notwithstanding anything contained in this section, the Federal Government at any time may, at its own or on the recommendation of the Administrator, direct the Auditor General of Pakistan to carry out audit of the Club and submit audit report in such time as it may deem appropriate.
