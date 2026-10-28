@@ -1,0 +1,1 @@
+40. First statutes and regulations.—Notwithstanding anything to the contrary contained in this Act, the President of the Islamic Republic of Pakistan, being the Patron, shall promulgate the first statutes and regulations which shall be deemed to be statutes and regulations made under sections 26 and 27 respectively and shall continue to remain in force unless amended or repealed.
