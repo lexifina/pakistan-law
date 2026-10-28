@@ -1,0 +1,1 @@
+44. Vesting of land in the Authority. Immediately on the paying of the compensation under section 40, the land shall vest in the Authority free from all encumbrances and thereupon the Land Acquisition Collector may, after giving reasonable notice to the occupier, inter upon and take possession of the same.

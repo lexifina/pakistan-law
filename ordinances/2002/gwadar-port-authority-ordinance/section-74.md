@@ -1,0 +1,9 @@
+74. Dissolution of Authority and transfer of its assets and liabilities.—(1) The Federal Government may, by notification in the official Gazette, declare that the Authority shall be dissolved on such date as may be specified in such notification, and the Authority shall stand dissolved accordingly.
+(2) On and from the said date—
+(a) all properties, funds and dues—
+(i) placed at the disposal of the Authority by the Federal Government; and
+(ii) exchanged for, derived from, or otherwise attributable to, the properties, funds and dues referred to in sub-clause (i) which immediately before the said date, were held by or were realizable by the Authority shall vest, in and be realizable by, the Federal Government;
+(b) all properties, funds and dues, other than those referred to in clause (a), which, immediately before the said date, were vested in or were realizable by the Authority shall vest in and be realizable by the Federal Government or such agency as the Federal Government may determine, and its decision thereon shall be final;
+(c) all liabilities which, immediately before the said date, were enforceable against the Authority shall be assumed by and be enforceable against the Federal Government or such agency as the Federal Government determines under clause (b) as the case may be;
+(d) for the purpose of completing the execution of any scheme, which has not been fully executed by the Authority, and of realizing properties, funds and dues referred to in clauses (a) and (b), the functions of the Authority under this Ordinance shall be discharged by the Federal Government or by the agency determined by the Federal Government under clause (b), as the case may be; and
+(e) the agency referred to in (b), (c), and (d) shall keep such accounts of all moneys respectively received and expended by it under this Ordinance as the Federal Government may prescribe.

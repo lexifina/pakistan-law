@@ -1,0 +1,1 @@
+24. Surplus of port dues to be paid to Authority. The surplus, if any, of the moneys credited under section 36 of the Ports Act, 1908 (XV of 1908), to the account of the port fund of the port, after defraying therefrom all expenses legally chargeable to the said account, shall be paid to the Authority.

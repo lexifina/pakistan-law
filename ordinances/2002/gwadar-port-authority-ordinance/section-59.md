@@ -1,0 +1,2 @@
+59. Budget.—(1) In the month of November each year, the Authority shall submit to the Federal Government for approval a statement of the estimated receipts and expenditure in respect of the next financial year.
+(2) In the manner prescribed by the Federal Government, the Authority shall also submit to the Federal Government for approval a statement of the estimated receipts and expenditure in foreign exchange in respect of the next financial year.

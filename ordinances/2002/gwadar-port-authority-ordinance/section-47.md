@@ -1,0 +1,1 @@
+47. Power of Authority to give directions to Land Acquisition Collector. The Authority may give directions to the Land Acquisition Collector in respect of the exercise of his powers and the discharge of his functions under this Chapter and the Land Acquisition Collector shall be guided, and act in accordance with, such directions.
