@@ -1,0 +1,1 @@
+9. Saving of rights of grantees of land-revenue. Nothing in sections 4 and 8 shall affect the right of a grantee of land-revenue, whose claim to such grant is admitted by Government, to recover such revenue from the persons liable to pay the same under any law for the time being in force for the recovery of the rent of land.
