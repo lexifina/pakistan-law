@@ -1,0 +1,1 @@
+2. Act to override other laws. This Act shall have effect notwithstanding anything contained in the Companies Act, 1913 (VII of 1913), or in any other law for the time being in force or in any agreement, contract or memorandum pr articles of association.

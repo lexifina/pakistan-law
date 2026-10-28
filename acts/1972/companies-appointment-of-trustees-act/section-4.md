@@ -1,0 +1,3 @@
+4. Appointment of trustees.—(1) If the Federal Government is of opinion that it is necessary in the public interest so to do, the Federal Government may, by notification in the official Gazette, appoint a trustee in respect of a company the registered office of which is located in Pakistan beyond the Provinces of Baluchistan, the North-West Frontier, the Punjab and Sind on such terms and conditions as may be determined by the Federal Government.
+(2) The trustee shall hold office during the pleasure of the Federal Government.
+(3) The trustee may, by writing under his own hand addressed to the Federal Government, resign his office.
