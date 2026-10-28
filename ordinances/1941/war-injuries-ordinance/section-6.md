@@ -1,0 +1,1 @@
+6. Penalty for false statement.—Any person, who for the purpose of obtaining a payment or grant under a scheme either for himself or for any other person, knowingly makes any untrue statement or untrue representation, shall be punishable with imprisonment for a term which may ex-tend to three months.
