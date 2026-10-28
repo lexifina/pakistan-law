@@ -1,0 +1,1 @@
+18. Prosecutors to be public servants.—Subject to the provisions of his Act and the rules, members of the Federal Prosecution Service, including the staff, shall be deemed to be public servants within the meanings of section 21 of the Pakistan Penal Code (Act XLV of 1860).
