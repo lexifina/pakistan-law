@@ -1,0 +1,1 @@
+29. Appointment of committees by certain authorities.___The Senate, the Syndicate, the Academic Council, and other authorities may, from time to time, appoint such standing, special or advisory committees as it may deem fit and may nominate such persons on there committees as are not members of the authorities appointing the committees.

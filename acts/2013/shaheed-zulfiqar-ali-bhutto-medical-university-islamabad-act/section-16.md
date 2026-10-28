@@ -1,0 +1,2 @@
+16. Controller of Examinations.__(1) The Controller of Examinations shall be appointed by the Vice-Chancellor on recommendations of syndicate on such terms and conditions as may be prescribed in the statutes.
+(2) The Controller of Examinations shall be responsible for the conduct of examinations and all matters connected therewith including formation of multiple choice questions (MCQs) bank, maintenance of secrecy of examination, tabulation of results and perform such other duties as may be prescribed.

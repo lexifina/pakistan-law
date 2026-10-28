@@ -1,0 +1,2 @@
+37. Pension etc.__(1) The University shall constitute for the benefit of its officers, teachers and other employees, in such manner and subject to such conditions as may be prescribed, such pension, insurance, gratuity, provident fund and benevolent fund schemes as it may deem fit, provided these are not repugnant to the general policy of the Federal Government.
+(2) Where any provident fund is constituted under this Act, the provisions of the Provident Fund Act, 1925 (XIX of 1925), shall apply as if it were the Federal Government Provident Fund.

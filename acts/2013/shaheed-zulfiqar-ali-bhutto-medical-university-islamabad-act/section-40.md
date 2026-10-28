@@ -1,0 +1,1 @@
+40. Proceeding of authorities not invalidated by vacancies.___No act, proceeding, resolution or decision of any authority shall be invalid by reason of any vacancy therein or invalidity of appointment or nomination of any de-facto member of the authority.

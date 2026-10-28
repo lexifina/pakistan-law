@@ -1,0 +1,1 @@
+28. Constitution, functions and powers of the authorities.___The constitution, functions and powers of the authorities for which no specific provision has been made in this Act shall be such as may be prescribed.

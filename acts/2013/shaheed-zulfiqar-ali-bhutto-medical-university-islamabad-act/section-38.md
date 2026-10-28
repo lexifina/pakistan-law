@@ -1,0 +1,2 @@
+38. Filling of casual vacancies in authorities.__(1) Any causal vacancy among the appointed or nominated members of any authority shall be filled within three months and may be made by the person or persons, or the body who appointed or nominated the member whose place has become vacant.
+(2) Any member so appointed or nominated under sub-section (1) shall continue to be a member of such authority for the unexpired term for which the person whose place he fills would have been a member.

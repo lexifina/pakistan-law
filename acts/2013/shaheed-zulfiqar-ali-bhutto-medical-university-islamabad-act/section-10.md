@@ -1,0 +1,2 @@
+10. Revision of powers of the Chancellor.___The Chancellor may, on his own motion or otherwise, call for and examine the record of any proceedings in which an order has been passed by any authority for the purpose of satisfying himself as to the correctness, legality or propriety of any finding or order and may pass such orders thereof, as he may deem fit:
+Provided that no order under this section shall be passed unless the person to be affected thereby is afforded an opportunity of being heard.
