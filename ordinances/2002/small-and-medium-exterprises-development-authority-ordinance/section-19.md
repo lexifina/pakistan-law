@@ -1,0 +1,1 @@
+19. Conditions of service and disciplinary powers. The Authority shall prescribe the-procedure for the appointment and removal and other terms and conditions of service of its employees and shall be competent to take disciplinary action against its employees.

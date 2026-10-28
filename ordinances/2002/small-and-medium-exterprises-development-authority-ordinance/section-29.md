@@ -1,0 +1,1 @@
+29. Right of recovery as arrears of land revenue. Subject to law, the Authority shall be entitled to recover all outstanding amounts due to it as if they are arrears of land revenue under the Land Revenue Act, 1967 (West Pakistan Act XVII of 1967).

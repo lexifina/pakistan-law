@@ -1,0 +1,1 @@
+9. Committees. The Board may, for the purpose of obtaining advice and assistance in carrying out the purposes of this Ordinance, constitute committee consisting of the Members of the Board and any other suitable person or persons as it may deem fit.
