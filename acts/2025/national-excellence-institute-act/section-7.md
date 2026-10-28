@@ -1,0 +1,14 @@
+## CHAPTER-III
+## OFFICERS OF THE INSTITUTE
+7. Principal officers.— The following shall be the principal officers of the Institute, namely:__
+(a) the Patron;
+(b) the Chancellor;
+(c) the Vice-Chancellor;
+(d) the Pro Vice-Chancellor;
+(e) the Deans;
+(f) the Principals of the constituent colleges or units;
+(g) the Chairpersons of the teaching departments;
+(h) the Registrar;
+(i) the Treasurer;
+(j) the Controller of Examinations; and
+(k) such other persons as may be prescribed by the Statutes or Regulations to be the principal officers of the Institute.

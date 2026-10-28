@@ -1,0 +1,2 @@
+26. Appointment of committees by certain Authorities.__ (1) The Board of Governors, the Academic Council and other Authorities may, from time to time, appoint such Standing, Special or Advisory Committees, as they may deem fit, and may place on such committee persons who are not members of the Authorities appointing the Committees.
+(2) The constitution, functions, and powers of the Authorities for which no specific provision has been made in this Act shall be such as may be prescribed by Statutes or Regulations.
