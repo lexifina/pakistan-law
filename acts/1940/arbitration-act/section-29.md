@@ -1,0 +1,1 @@
+29. Interest on awards. Where and in so far as an award is for the payment of money the Court may in the decree order interest, from the date of the decree at such rate as the Court deems reasonable, to be paid on the principal sum as adjudged by the award and confirmed by the decree.

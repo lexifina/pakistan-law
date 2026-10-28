@@ -1,0 +1,2 @@
+47. Act to apply to all arbitrations. Subject to the provisions of section 46, and save in so far as is otherwise provided by any law for the time being in force, the provisions of this Act shall apply to all arbitrations and to all proceedings thereunder:
+Provided that an arbitration award otherwise obtained may with the consent of all the parties interested be taken into consideration as a compromise or adjustment of a suit by any Court before which the suit is pending.

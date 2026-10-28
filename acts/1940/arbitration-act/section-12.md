@@ -1,0 +1,5 @@
+12. Power of Court where arbitrator is removed or his authority revoked.—(1) Where the Court removes an umpire who has not entered on the reference or one or more arbitrators (not being all the arbitrators), the Court may, on the application of any party to the arbitration agreement, appoint persons to fill the vacancies.
+(2) Where the authority of an arbitrator or arbitrators or an umpire is revoked by leave of the Court, or where the Court removes an umpire who has entered on the reference or a sole arbitrator or all the arbitrators, the Court may, on the application of any party to the arbitration agreement, either—
+(a) appoint a person to act as sole arbitrator in the place of the person or persons displaced, or
+(b) order that the arbitration agreement shall cease to have effect with respect to the difference referred.
+(3) A person appointed under this section as an arbitrator or umpire shall have the like power to act in the reference and to make an award as if he had been appointed in accordance with the arbitration agreement.

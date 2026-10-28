@@ -1,0 +1,2 @@
+25. Provisions applicable to arbitrations under this Chapter. The provisions of the other Chapters shall, so far as they can be made applicable, apply to arbitrations under this Chapter:
+Provided that the Court may, in any of the circumstances mentioned in Section 8, 10, 11 and 12, instead of filing up the vacancies or making the appointments, make an order superseding the arbitration and proceed with the suit, and where the Court makes an order superseding the arbitration under section 19, it shall proceed with the suit.
