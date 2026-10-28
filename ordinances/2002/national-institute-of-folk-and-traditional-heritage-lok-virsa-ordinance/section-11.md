@@ -1,0 +1,1 @@
+11. Delegation of Powers.―The Board may, from time to time delegate to the Chairman, the Executive Committee and Executive Director such of its powers and functions and subject to such conditions as it may consider necessary.

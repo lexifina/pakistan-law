@@ -1,0 +1,1 @@
+12. Validity of Proceedings.__ No act, proceedings, decision or order of the Institute, Board or Executive Committee shall be invalid by reason only of the existence of a vacancy in, or any defects in the constitution of, the Institute, Board or Executive Committee.

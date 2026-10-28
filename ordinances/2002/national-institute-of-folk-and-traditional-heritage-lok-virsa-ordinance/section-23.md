@@ -1,0 +1,1 @@
+23. Winding up.― No provision of law relating to the winding up of the bodies corporate shall apply to the Institute and the Institute shall not be wound up except by the order of the Federal Government in such manner as the Federal Government may direct. ‘

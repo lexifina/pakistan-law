@@ -1,0 +1,1 @@
+18. Annual Report.―The Institute shall, as soon as possible, after the end of each financial year, but not later than the last day of December, submit to the Federal Government a detailed report, called the Annual Report, on the conduct of its affairs and its achievements during the preceding financial year along with financial statements where necessary.

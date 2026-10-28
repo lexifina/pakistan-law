@@ -1,0 +1,1 @@
+19. Indemnity.―No suit, prosecution or order legal proceedings shall lie against the Board or any of its members, officers, servants, experts or consultants of the Institute in respect of anything in good faith done or intended to be done under this Ordinance, the rules or the regulations, made thereunder.
