@@ -1,0 +1,3 @@
+42. Confession otherwise relevant not to become irrelevant because of promise of secrecy,
+etc.— If such a confession is otherwise relevant, it does not become irrelevant merely because it was made under a promise of secrecy, or in consequence of a deception practised on the accused person for the purpose of obtaining it, or when he was drunk, or because it was made in answer to questions which he need not have answered, whatever may have been the form of those questions, or because he was not warned that he was not bound to make such confession, and that evidence of it might be given against him :
+Provided that the provisions of this Article shall not apply to the trial of cases under the laws relating to the enforcement of Hudood.

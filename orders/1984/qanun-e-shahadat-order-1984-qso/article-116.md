@@ -1,0 +1,3 @@
+116. Estoppel of acceptor of bill of exchange bailee or licensee.— No acceptor of a bill of exchange shall be permitted to deny that the drawer had authority to draw such bill or to endorse it; nor shall any bailee or licensee be permitted to deny that his bailor or licenser had, at the time when the bailment or license commenced, authority to make such bailment or grant such license.
+Explanation 1.—The acceptor of a bill of exchange may deny that the bill was really drawn by the person by whom it purports to have been drawn.
+Explanation 2.— If a bailee delivers the goods bailed to a person other than the bailor, he may prove that such person had a right to them as against the bailor.

@@ -1,0 +1,2 @@
+51. Relevancy of statements as to fact of public nature, contained in certain Acts or
+notifications.— When the Court has to form an opinion as to the existence of any fact of a public nature, any statement of it, made in a recital contained in any Act of the Central Legislature or of any other legislative authority in Pakistan or in a Government notification appearing in the official Gazette is a relevant fact.

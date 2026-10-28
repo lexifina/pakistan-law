@@ -1,0 +1,1 @@
+94. Presumption as to collections of laws and reports of decision.— The Court shall presume the genuineness of every book purporting to be printed or published under the authority of the Government of any country, and to contain any of the laws of that country, and of every book purporting to contain reports of decisions of the Courts of such country.

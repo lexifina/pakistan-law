@@ -1,0 +1,2 @@
+8. Information as to commission of offences.— No Magistrate or Police -officer shall be compelled to say whence he got any information as to the commission of any offence, and no Revenue-officer shall be compelled to say whence he got any information as to the commission of any offence against the public revenue.
+Explanation.— In this Article, “Revenue­officer” means any officer employed in or about the business of any branch of the public revenue.

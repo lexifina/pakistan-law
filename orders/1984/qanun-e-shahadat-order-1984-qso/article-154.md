@@ -1,0 +1,2 @@
+154. What matters may be proved in connection with proved statement relevant under
+Article 46 or 47.— Whenever any statement, relevant under Article 46 or 47, is proved, all matters may be proved either in order to contradict or corroborate it, or in order to impeach or confirm the credit of the person by whom it was made, which might have been proved if that person had been called as a witness and had denied upon cross-examination the truth of the matter suggested.

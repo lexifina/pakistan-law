@@ -1,0 +1,3 @@
+133. Order of examinations.—(1) Witnesses shall be first examined-in-chief, then (if the adverse party so desires) cross-examined, then (if the party calling him so desires) re-examined.
+(2) The examination and cross-examination must relate to relevant facts but the cross-examination need not be confined to the facts to which the witness testified on his examination-in-chief.
+(3) The re-examination shall be directed to the explanation of matters referred to in cross-examination; and, if new matter is, by permission of the Court, introduced in re-examination, the adverse party may further cross-examine that matter.

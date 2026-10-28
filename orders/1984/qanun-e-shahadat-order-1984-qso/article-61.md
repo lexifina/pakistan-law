@@ -1,0 +1,6 @@
+61. Opinion as to hand-writing when relevant.— When the Court has to form an opinion as to the person by whom any document was written or signed, the opinion of any parson acquainted with the hand-writing of the person by whom it is supposed to be written or signed that it was or it was not written or signed by that person, is a relevant fact.
+Explanation.—A person is said to be acquainted with the hand-writing of another person when he has seen that person write, or when he has received documents purporting to be written by that person in answer to documents written by himself or under his authority and addressed to that person, or when, in the ordinary course of business, documents purporting to be written by that person have been habitually submitted to him.
+Illustrations
+The question is, whether a given letter is in the hand-writing of A, a merchant in London.
+B is a merchant in Peshawar, who has written letters addressed to A and received letters purporting to be written by him, C is B’s clerk, whose duty it was to examine and file B’s correspondence. D is B’s broker, to whom B habitually submitted the letters purporting to be written by A for the purpose of advising him thereon.
+The opinion of B, C and D on the question whether the letter is in the hand-writing of A are relevant, though neither B, C or D ever saw A write.

@@ -1,0 +1,1 @@
+16. Accomplice.— An accomplice shall be a competent witness against an accused person, except in the case of an offence punishable with hadd; and a conviction is not illegal merely because it proceeds upon the uncorroborated testimony of an accomplice.

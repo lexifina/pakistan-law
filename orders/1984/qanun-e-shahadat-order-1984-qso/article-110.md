@@ -1,0 +1,1 @@
+110. Saving of provisions of Succession Act relating to wills.— Nothing in this Chapter contained shall be taken to affect any of the provisions of the Succession Act, 1925 (XXXIX of 1925), as to the construction of wills.

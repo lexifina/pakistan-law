@@ -1,0 +1,1 @@
+146. Indecent and scandalous question.— The Court may forbid any question or inquiries which it regards as indecent or scandalous, although such questions or inquiries may have some bearing on the questions before the Court, unless they relate to facts in issue, or to matters necessary to be known in order to determine whether or not the facts in issue existed.

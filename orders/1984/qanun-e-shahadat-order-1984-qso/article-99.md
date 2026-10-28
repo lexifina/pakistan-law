@@ -1,0 +1,1 @@
+99. Presumption as to due execution, etc., of documents not produced.— The Court shall presume that every document, called for and not produced after notice to produce, was attested, stamped and executed in the manner required by law.

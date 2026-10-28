@@ -1,0 +1,1 @@
+80. Proof where no attesting witness found.— If no such attesting witness can be found, it must be proved that the witnesses have either died, or cannot be found and that the document was executed by the person who purports to have done so.
