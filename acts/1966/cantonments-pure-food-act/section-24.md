@@ -1,0 +1,1 @@
+24. Power to try Summarily.— Any Magistrate for the time being empowered to try in a summary way the offences specified in sub-section (1) of section 260 of the Code of Criminal Procedure, 1898, may try summarily any offence made punishable under sub-section (1) and sub-section (2) of section 23 of this Act in accordance with the provisions of Chapter XXII of that Code.

@@ -1,0 +1,6 @@
+25. Certain things to be presumed.__ In every prosecution under this Act, the Court shall Presume__
+(a) that any food found in the possession of any person who is or has been habitually found preparing, manufacturing, keeping, storing, selling or offering or exposing for sale or hawking about such food was being prepared, manufactured, kept, stored, sold, offered or exposed for sale or hawked about by such person ;
+(b) that any food commonly used for human consumption, kept, stored, sold or offered for sale, was kept, stored, sold or offered for sale for human consumption ;
+(c) that any food commonly used for human consumption which is found on any premises used for the preparation or manufacture of such food was prepared or manufactured for human consumption ;
+(d) that any substance capable of being used in the preparation or manufacture of any food commonly used for human consumption which is found on any premises in which such food is prepared or manufactured was intended to be used in the preparation or manufacture of such food ; and
+(e) that any food is not of the nature, substance or quality it purports to be if it is deficient in any of its normal constituents to the extent specified in the rules or if any extraneous matter has been added to it in contravention of the rules.

@@ -1,0 +1,9 @@
+18. Purchase of Samples, etc.__ (1) An Inspector may, for the purpose of analysis, purchase a sample of food__
+(a) in transit,
+(b) sold, offered for sale, hawked about, kept or stored or received for the purpose of preparing therewith any food, or
+(c) kept or stored in a market, godown, shop, stall, hotel, restaurant or eating-house for the purpose of trade or sale or received therein for the purpose of preparing or manufacturing therewith any food.
+(2) No person shall refuse to sell any food to an Inspector intending to purchase such food for the purpose of sub-section (1) in such reasonable quantity and from such container as he may ask for.
+Explanation.__ The purchase or sale of a sample of any food for the purpose of analysis under this Act shall be deemed to be purchased or sold for human consumption or use.
+(3) If, in contravention of sub-section (2), any person refuses to sell, the Inspector may, without prejudice to any penalty to which such person may be liable for such contravention, seize such quantity of the food as may appear to him to be necessary, and shall give such person a certificate showing the price, nature and quantity of the food seized, the date, time and place of seizure, and, on demand being made in that behalf, the price of the food seized.
+(4) The Inspector shall prepare, in such form as may be prescribed, a declaration in triplicate, containing full particulars, relating to the sample seized and such declaration shall be signed or marked both by the Inspector and the person from whose possession, custody or control the food has been seized and a copy thereof shall be given to such person.
+(5) When a sample is taken from the stock in the possession of a commission agent, he shall be bound to give the name and such other particulars of the person on whose behalf such stock is held by him as the Inspector may require.

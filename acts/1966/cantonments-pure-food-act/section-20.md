@@ -1,0 +1,6 @@
+20. Action in respect of samples.__ (1) An Inspector shall, as soon as he has purchased or seized any food with the intention of submitting the same for analysis, divide the food into three parts and mark, seal or fasten each such part in such manner as the nature of the food may require, and also permit the person from whom the sample is taken, if such person so desires, to affix his own seal or mark on each of the three parts.
+(2) The Inspector shall__
+(a) deliver one part of the food divided under sub-section (1) to the person from whom the food is purchased or seized ;
+(b) retain with him one part for future comparison ; and
+(c) submit one part to the Public Analyst, to be examined by him on payment of such fee as may be prescribed:
+Provided that, where the sample is taken from any food which is about to be imported or in transit or at the place of delivery to the purchaser, consumer of consignee, or is unclaimed, the part of the sample to be delivered under clause (a) shall be retained by the Inspector, unless the name and address of the consignor appear on the container from which the sample is taken, in which case he shall forward that part of the sample to the consignor by registered post or otherwise, together with a notice informing him that the sample would be analysed by the Public Analyst.
