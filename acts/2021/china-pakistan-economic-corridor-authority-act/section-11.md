@@ -1,0 +1,1 @@
+11. Committees and sub-committees.—The Chairperson may constitute committees and sub-committees and assign specific tasks to the said committees or sub-committees for efficient performance of the functions of the Authority. The committees or sub-committees, so constituted, shall perform their mandated tasks in the manner to be specified by the Chairperson.

@@ -1,0 +1,4 @@
+14. China Pakistan Economic Corridor Business Council.—(1) There shall be a China Pakistan Economic Corridor Business Council, to be constituted and notified by the Board of Investment, as prescribed by the regulations.
+(2) The China Pakistan Economic Corridor Business Council shall advise the Authority on how best to achieve the objectives of this Act, in accordance with the Memorandum of Understanding between the National Development and Reform Commission of the People’s Republic of China and the Ministry of Planning Development and Special Initiatives of the Islamic Republic of Pakistan specified in sub-section (1) of section 4 of this Act.
+(3) The Board of Investment shall act as secretariat of Business Council which shall meet periodically.
+(4) A Secretary to the Business Council shall be nominated by the Board of Investment.
