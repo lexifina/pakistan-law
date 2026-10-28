@@ -1,0 +1,3 @@
+2. Definitions. In this Act, unless there is anything repugnant in the subject or context,___
+(a) “workman” means any person who has entered into, or works under a contract of service or apprenticeship with an employer whether by way of manual labour, clerical work or otherwise, and whether the contract is expressed or implied, oral or in writing; and
+(b) “employer” includes any body of persons whether incorporated or not, any managing agent of an employer, and the legal representatives of a deceased employer, and, where the services of a workman are temporarily lent or let on hire to another person by the person with whom the workman has entered into a contract of service or apprenticeship, means such other person while the workman is working for him.

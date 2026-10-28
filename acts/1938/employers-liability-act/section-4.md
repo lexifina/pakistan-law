@@ -1,0 +1,1 @@
+4. Risk not to be deemed to have been assumed without full knowledge. In any such suit for damages, the workman shall not be deemed to have undertaken any risk attaching to the employ-ment unless the employer proves that the risk was fully explained to and understood by the workman and that the workman voluntarily undertook the same.
