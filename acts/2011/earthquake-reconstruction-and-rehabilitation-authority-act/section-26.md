@@ -1,0 +1,1 @@
+26. Winding up of the Authority. ⎯No provision of any law relating to winding up of bodies corporate shall apply to the Authority and the Authority shall not be wound up except through resolution passed by both Houses of Majlis-e- Shoora (Parliament).

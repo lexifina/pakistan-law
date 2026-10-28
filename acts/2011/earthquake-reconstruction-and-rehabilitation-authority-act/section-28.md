@@ -1,0 +1,1 @@
+28. Powers to make regulations. ⎯The Board may make regulations not inconsistent with this Act and the rules made thereunder, to provide for all matters for which provision is necessary or expedient for carrying out the purposes of this Act.

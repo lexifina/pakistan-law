@@ -1,0 +1,1 @@
+19. Exemption from taxes. ⎯Notwithstanding anything contained in the Income Tax Ordinance, 2001 (XLIX of 2001), or in other law for the time being in force relating to income-tax, capital gains-tax, the Authority shall not be liable to pay and shall be exempted from paying any such taxes as aforesaid on its incomes, profits or gains.
