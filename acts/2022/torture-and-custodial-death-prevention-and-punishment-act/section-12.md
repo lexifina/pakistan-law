@@ -1,0 +1,2 @@
+12. Appeals.— (1) An appeal against a conviction or acquittal of an offence under this Act shall be presented before the respective High Court within thirty days from the date on which copy of the order passed by the Court of Sessions is supplied to the appellant.
+(2) An appeal against conviction shall not be admitted unless part of the amount, imposed in the form of fine as directed by the appellate court, is deposited in the court.

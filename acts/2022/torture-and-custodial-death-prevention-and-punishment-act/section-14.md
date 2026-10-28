@@ -1,0 +1,3 @@
+14. Special protection.— (1) Any person, including the victim or complainant or any witnesses, who allege that he requires protection from a person accused of having committed an offence under this Act or from any of his associates, shall file a petition to the Court of Session in this regard.
+(2) The court receiving the petition, after giving notice to the concerned parties, shall hear the matter and pass an order on the petition within three days.
+(3) The court while disposing of such a petition as mentioned in sub- section (1) shall make such orders as deemed necessary and appropriate according to the facts and circumstances of the case.

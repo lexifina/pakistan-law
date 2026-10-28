@@ -1,0 +1,1 @@
+11. Punishment for filing malafide complaints.— Whoever files a malafide complaint shall, after it is established that the complaint was malafide, be punished with the same punishment as is prescribed under section 8 for the perpetrators under this Act.
