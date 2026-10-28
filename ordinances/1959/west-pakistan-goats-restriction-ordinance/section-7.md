@@ -1,0 +1,1 @@
+7. Offence to be cognizable and bailable. Notwithstanding anything contained in the Code of Criminal Procedure, 1898 (V of 1898), an offence punishable under this Ordinance shall be cognizable and bailable within the meanings of the said Code.

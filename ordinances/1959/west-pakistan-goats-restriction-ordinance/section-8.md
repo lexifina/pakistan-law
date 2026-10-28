@@ -1,0 +1,2 @@
+8. Powers of certain officers to arrest the offender. (1) Any officer specially empowered by Government in this behalf may, without order from a Magistrate and without a warrant, arrest any person committing an offence under this Ordinance or the rules made thereunder and may seize the goat concerned in the offence.
+(2) The officer making an arrest under sub-section (1) shall, without unnecessary delay and subject to the provisions of this Ordinance as to release on bond, take or send the person arrested and such goat to the nearest police station.

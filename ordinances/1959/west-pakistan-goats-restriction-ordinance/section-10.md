@@ -1,0 +1,1 @@
+10. Power to try the offence summarily. An offence under this Ordinance shall be summarily triable and in such proceedings the provisions for summary trial prescribed in the Code of Criminal Procedure, 1898 (V of 1898), shall apply.
