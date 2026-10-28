@@ -1,0 +1,1 @@
+5. Registration Fees.___ The Pakistan Reinsurance Company Limited being a successor company to a continuing Corporation shall be exempted from any registration fees of any Registration Authority or Commission by whatever name.
