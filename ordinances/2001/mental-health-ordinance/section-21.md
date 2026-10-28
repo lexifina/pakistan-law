@@ -1,0 +1,4 @@
+21. Discharge of a patient.____ (1) The psychiatrist in-charge of the treatment of a patient, may by order in writing, direct discharge of the patient at any time he deems it appropriate.
+(2) Where any order of discharge is made under subsection (1), in respect of a person who has been admitted or is undergoing treatment as a patient in pursuance of an order of a referring authority, a copy of such order shall be immediately forwarded to that authority by the psychiatrist in charge.
+(3) Any person admitted in a psychiatric facility under an order made in pursuance of an application made under this Ordinance, may be discharged on an application made to the psychiatrist in charge:
+Provided that no patient shall be discharged under this section if the psychiatrist in charge certifies in writing that the patient is unfit to be discharged for reasons of his own health and safety or the safety of others.

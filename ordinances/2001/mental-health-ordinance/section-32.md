@@ -1,0 +1,1 @@
+32. Appointment of guardian.____ Where a mentally disordered person is incapable of taking care of himself, the Court may appoint any suitable person to be his guardian, or order him to be looked after in a psychiatric facility and order for his maintenance.

@@ -1,0 +1,2 @@
+## MANAGER OF THE PROPERTY OF THE MENTALLY DISORDERED
+29. Judicial proceedings.___ Whenever any person is possessed of property and is alleged to be mentally disordered, the Court of Protection, within whose jurisdiction such person is residing may, upon application by any of his relatives having obtained consent in writing of the Advocate General of the Province concerned, by order direct an inquiry for the purpose of ascertaining whether such person is mentally disordered and incapable of managing himself, his property and his affairs.

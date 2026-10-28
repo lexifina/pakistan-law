@@ -1,0 +1,4 @@
+31. Inquiry by subordinate Court on commission issued by the Court of Protection and
+proceedings thereon.___ (1) If the alleged mentally disordered person resides at a distance of more than fifty miles from the place where the Court is held to which the application is made, the said Court may issue a Commission to any sub-ordinate Court to make the inquiry, and such subordinate court shall thereupon conduct the inquiry in the manner hereinbefore provided.
+(2) On the completion of inquiry the subordinate court shall transmit the record of its proceedings with the opinion of the assessor, if any have been appointed, and its own opinion on the case; and the Court shall thereupon proceed to dispose the application in the manner provided in sub-section (3) of section 30:
+Provided that the Court may direct the subordinate court to make such further or other inquiry as it thinks fit before disposing of the application.

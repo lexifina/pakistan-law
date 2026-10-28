@@ -1,0 +1,29 @@
+2. Definitions.___ (1) In this Ordinance, unless there is anything repugnant in the subject or context,____
+(a) “approved psychiatrist” means a medical practitioner possessing a recognized postgraduate qualification and registered with the Pakistan Medical and Dental Council and also approved by the Authority;
+(b) “Authority” means the Federal Mental Health Authority constituted under section 3;
+(c) “cost of maintenance” in relation to a mentally disordered person, includes the cost of lodging, maintenance, clothing, medicine and care of mentally disordered person and any expenditure incurred in removing such mentally disordered person to and from a psychiatric facility together with any other charges specified in this behalf by the Government;
+(d) “Court of Protection” means a District Court having jurisdiction under this Ordinance in matters specified herein and designated as such by the Government;
+(e) “Court” means a Court of Protection;
+(f) “Government” means the Federal Government or, as the case may be, the Provincial Government;
+(g) “health facility” means any basic health unit, rural health centre, Tehsil hospital, district hospital, teaching hospital and any private medical facility, supervised by a medical practitioner;
+(h) “hospital management” means personnel operating and or managing any psychiatric facility or a health facility that has provision for indoor treatment for the mentally disordered;
+(i) “informed consent” means voluntary and continuing permission of the patient or if the patient is a minor his nearest relative or guardian, as the case may be, for assessment or to receive a particular treatment based on an adequate knowledge of the purpose, nature, likely effects, and risks of that treatment including the likelihood of its success and any alternatives to it and the cost of treatment;
+(j) "Magistrate" means a Judicial Magistrate of the first class specially empowered by the Government to perform functions and exercise powers of a Magistrate under this Ordinance;
+(k) “medical officer” means a medical graduate serving in a Government health facility and registered with the Pakistan Medical and Dental Council;
+(l) “medical practitioner” means a medical graduate registered with the Pakistan Medical and Dental Council with good standing;
+(m) “mental disorder” means mental illness, including mental impairment, severe personality disorder, severe mental impairment and any other disorder or disability of mind and "mentally disordered" shall be construed accordingly and as explained hereunder;
+(i) “mental impairment” means a state of arrested or incomplete development of mind (not amounting to severe mental impairment) which includes significant impairment of intelligence and social functioning and is associated with abnormally aggressive or seriously irresponsible conduct on the part of the person concerned and “mentally impaired” shall be construed accordingly;
+(ii) “severe personality disorder” means a persistent disorder or disability of mind (whether or not including significant impairment of intelligence) which results in abnormally aggressive or seriously irresponsible conduct on the part of the person concerned;
+(iii) “severe mental impairment” means a state of arrested or incomplete development of mind which includes severe impairment of intelligence and social functioning and is associated with abnormally aggressive or seriously irresponsible conduct on the part of the person concerned and “severely mentally impaired” shall be construed accordingly;
+Explanation:__ Nothing contained in clause (m), sub‑clauses (i), (ii) and (iii) above shall be construed as implying that a person may be dealt with under this Ordinance as suffering from mental disorder or from any other form of such mental disorder defined in this section, by reason only of promiscuity or other immoral conduct, sexual deviancy or dependence on alcohol or drugs.
+(n) “mentally disordered prisoner” means a person, who is a prisoner for whose detention in or removal to a psychiatric facility or other place of safety, an order has been made in accordance with the provisions of section 466 or section 471 of the Code of Criminal Procedure, 1898 (Act V of 1898), section 30 of the Prisoners Act, 1900 (III of 1900), section 130 of the Pakistan Army Act, 1952 (XXXIX of 1952) section 143 of the Pakistan Air Force Act, 1953(VI of 1953) or section 123 of the Pakistan Navy Ordinance,1961 (XXXV of 1961);
+(o) “minor” means a child or adolescent not having attained the age of eighteen years;
+(p) “patient” means a person who is under treatment and care;
+(q) “place of safety” means a Government run health facility, a psychiatric facility, or residence of any suitable relative who is willing to temporarily receive the patient;
+(r) “prescribed” means prescribed by rules or regulations as the case be, made under this Ordinance;
+(s) “psychiatric facility” means a hospital, institute, ward, clinic, nursing home, day‑care institution, half‑way house, whether in public or private sector involved in the care of mentally disordered persons:
+(t) “psychiatrist” means a medical practitioner possessing a recognized postgraduate qualification in psychiatry and registered with the Pakistan Medical and Dental Council;
+(u) "relative" means and includes any person related by blood or marriage or adoption under the personal law, with the mentally disordered person;
+(v) "rules" means the rules made under this Ordinance;
+(w) "specialized psychiatric treatments" means electro‑convulsive treatment, anti‑psychotic depot injection, psychosurgery, and such other form of treatment as may be specified for the purposes of this Ordinance; and
+(x) "treatment of mentally disordered person" means the assessment and "treatment of a mentally" disordered person and shall include assessment, care, training, rehabilitation as well as rehabilitation techniques or measures, as the case may be.

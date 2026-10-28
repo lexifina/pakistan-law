@@ -1,0 +1,1 @@
+34. Responsibility of manager.___ A person appointed as a manager of the property of a, under this Ordinance, shall be responsible for the care, cost of treatment and maintenance of the mentally disordered person and of such member(s) of his family as are dependent on him.

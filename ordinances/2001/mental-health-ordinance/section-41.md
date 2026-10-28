@@ -1,0 +1,3 @@
+41. Appointment of a new manager or guardian.____ (1) The manager of the property of a mentally disordered person may resign with the permission of the Court, or for sufficient cause and for reasons to be recorded in writing, be removed by the Court and such Court may appoint a new manager in his place.
+(2) Any manager removed under sub-section (1) shall be bound to deliver the charge of all property of such a person to the new manager, and to account for all monies received or disbursed by him.
+(3) The guardian of the person of a mentally disordered person may resign with the permission of the Court, or for sufficient cause and for reasons to be recorded in writing, be removed by the Court and such Court may appoint a new guardian in his place.

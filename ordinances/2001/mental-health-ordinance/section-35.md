@@ -1,0 +1,1 @@
+35. Allowance payable to guardian._____ The manager of the property of the patient shall pay to the guardian of the patient such allowances as may be fixed by the Court for the care and maintenance of the patient and of such members of his family as are dependent on him.
