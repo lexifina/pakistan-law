@@ -1,0 +1,1 @@
+7. Act to override other laws etc.— The provisions of this Act shall have effect notwithstanding anything contained in any other law, rules or regulations for the time being in force or judgment of any court including the Supreme Court and a High Court.

@@ -1,0 +1,1 @@
+2. Enlargement of jurisdiction of the Supreme Court.— In case of judgments and orders of the Supreme Court in exercise of its original jurisdiction under Article 184 of the Constitution, the scope of review on both facts and law, shall be the same as an appeal under Article 185 of the Constitution.
