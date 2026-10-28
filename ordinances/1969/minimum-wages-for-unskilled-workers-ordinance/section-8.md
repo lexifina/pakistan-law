@@ -1,0 +1,1 @@
+8. Cognizance of offences. No Court shall take cognizance of any offence under this Ordinance save on a complaint made by an aggrieved worker or by an officer of a registered trade union of which such worker is a member, or any person authorised in this behalf by Government.
