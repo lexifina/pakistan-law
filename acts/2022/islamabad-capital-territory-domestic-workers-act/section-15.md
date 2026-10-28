@@ -1,0 +1,1 @@
+15. Relinquishing of right.— Where a domestic worker relinquishes any right conferred by this Act, whether made before or after the commencement of this Act, the relinquishment shall be null and void in so far as it purports to deprive him of such right.

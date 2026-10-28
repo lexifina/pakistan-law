@@ -1,0 +1,2 @@
+8. Minimum wage.— (1) Every domestic worker shall be paid on a designated day such wages for all the hours of labour performed, within such time as may be prescribed in the letter of employment, but such wages must in no case be less than the wages specified by the Government under this Act.
+(2) No employer shall pay to domestic worker, remuneration payable, at rates less favorable than those at which remuneration is paid to the domestic workers of the opposite sex performing same work or work of a similar nature or of equal value.

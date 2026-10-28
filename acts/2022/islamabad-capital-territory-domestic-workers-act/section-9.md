@@ -1,0 +1,1 @@
+9. Maternity benefit.— A female domestic worker engaged in domestic work shall be entitled to maternity benefits with a minimum amount equivalent to six weeks wages in a prescribed manner but not less than the minimum wages notified by the Government.

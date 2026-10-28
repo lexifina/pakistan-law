@@ -1,0 +1,4 @@
+6. Leave and Holidays.— (1) Every domestic worker engaged in domestic work shall be entitled to a holiday of at least one whole day in a week.
+(2) Every domestic worker shall be entitled to sick leave with full wages for a total period of eight days in a year and such leave, if not availed of by a domestic worker during a calendar year, may be carried forward, but the total accumulation of such leave shall not exceed sixteen days at one time.
+(3) Every domestic worker engaged in domestic work shall be entitled to ten days festival holidays with full wages in a year. The days and dates for such festival holidays shall be agreed between the domestic worker and the employer in the beginning of the calendar year.
+(4) A female domestic worker engaged in domestic work shall be entitled to six weeks maternity leave.

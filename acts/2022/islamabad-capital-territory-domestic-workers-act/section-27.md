@@ -1,0 +1,1 @@
+27. Power to remove difficulties.— If any difficulty arises in giving effect to the provisions of this Act, the Government may, by order published in the official Gazette, make such provisions not inconsistent with the provisions of the Act as appear to it to be necessary or expedient for removal of the difficulty.

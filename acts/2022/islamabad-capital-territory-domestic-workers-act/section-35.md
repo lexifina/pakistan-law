@@ -1,0 +1,1 @@
+35. Protection of action taken under the Act.— No suit, prosecution or other proceedings shall lie against any person for anything which is in good faith done or intended to be done in pursuance of this Act or rules made there- under.
