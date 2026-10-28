@@ -1,0 +1,2 @@
+4. Representation. A person who is removed from service or reverted to a lower post or grade under section 3 may, within fifteen days from the date of receipt of order of removal or reversion prefer a representation to the President ;
+Provided that, where the order of removal or reversion has been made by the President, such person may, within the time aforesaid, submit to the President a petition for review of the order.
