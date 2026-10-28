@@ -1,0 +1,1 @@
+4. Offices of Survey of Pakistan.___Survey of Pakistan shall have its head office at Rawalpindi or Islamabad and shall have offices at Federal, Provincial or district level and such other offices as the Survey of Pakistan may, by notification in the Official Gazette, establish.
