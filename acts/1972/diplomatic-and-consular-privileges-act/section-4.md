@@ -1,0 +1,1 @@
+4. Certificate of Federal Government. If any question arises whether or not any person is entitled to any privilege or immunity under this Act, a certificate issued by or under the authority of the Federal Government stating any fact relating to that question shall be conclusive evidence of that fact.

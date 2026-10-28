@@ -1,0 +1,1 @@
+5. Power to amend Schedules. The Federal Government may, by notification in the official Gazette, amend either of the Schedules in conformity with any amendment duly made in the provisions of the Convention set out therein.
