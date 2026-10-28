@@ -1,0 +1,1 @@
+20. Power to fix instalments in execution. The Court may at any time direct that the amount of any decree passed, whether before or after this Act comes into force, against an agriculturist, or the portion of the same which it directs under section 19 to be paid, shall be paid by instalments with or without interest.

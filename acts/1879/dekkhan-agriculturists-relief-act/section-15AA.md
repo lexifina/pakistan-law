@@ -1,0 +1,3 @@
+[^34][15AA. Power of Court to name some future date for payment by the mortgagor. So far as it may be consistent with the provisions of this Act every decree for redemption or foreclosure of any mortgage, and every decree or order for the sale of any mortgaged property made at the instance of a mortgagee thereof, shall name such future day, not being less than six months after the date of such decree, as the Court may think reasonable for the payment by the mortgagor of the money payable under the decree, and no such foreclosure shall be made absolute nor shall any such sale take place before the day so named.]
+
+[^34]: Section 15AA, ins. by the Dekkhan Agriculturists’ Relief Act, 1895 (6 of 1895), s. 8.

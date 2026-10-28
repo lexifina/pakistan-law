@@ -1,0 +1,1 @@
+23. Chapter not to apply to Village Munsifs’ Courts. No provision of this Chapter shall apply to the proceedings in the Courts of Village munsifs unless such provision has been specially extended thereto under the power hereinafter conferred.

@@ -1,0 +1,3 @@
+66. Agriculturists entitled to have account made up from time to time in a pass-book. Any agriculturist in whose name an account is kept by any trader or money-lender shall be entitled to receive from such trader or money-lender, on demand, a pass-book; and to require, from time to time, that his account up-to-date be written therein and authenticated by the signature or mark of the said trader or a money-lender.
+An entry so made in any such pass-book of any payment made to the trader or money-lender shall be deemed to be equivalent, for the purposes of section 64, to the grant of a receipt for the amount so entered.
+No person whose account has been written in a pass-book as required by this section shall be entitled also to demand an account under section 65.

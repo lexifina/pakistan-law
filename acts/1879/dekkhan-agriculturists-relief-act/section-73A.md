@@ -1,0 +1,4 @@
+[^118][73A. Certain agricultural produce exempted from attachment, etc. When the Collector has taken any immoveable property of a judgment-debtor or insolvent into his possession under section 22 or section 29, he may, by an order in writing, direct that any other such property not so taken shall be deemed to be reserved for the support of the judgment-debtor or insolvent and the members of his family dependent on him, and may rescind that order.
+While any such order continues in force in respect of any immoveable property, agricultural produce grown on that property shall not be attached or sold in execution of a decree passed whether before or after this Act comes into force, and shall not vest in the receiver appointed in any insolvency-proceedings].
+
+[^118]: S. 73A ins. by the Dekkhan Agriculturists’ Relief Act, 1882 (22 of 1882), s. 18.
