@@ -1,0 +1,1 @@
+19. Transfer of assets and liabilities of Radio Pakistan.—All assets and liabilities of the Federal Government in relation to Radio Pakistan subsisting immediately before the commencement of this Act shall, unless the Federal Government, by notification in the official Gazette, otherwise directs, vest in the Corporation as from such commencement.
