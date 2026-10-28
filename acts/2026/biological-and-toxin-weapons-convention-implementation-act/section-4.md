@@ -1,0 +1,2 @@
+4. Prohibition of use of biological weapons, etc.- (1) No person shall use or attempt to use biological weapons in Pakistan, or anywhere outside Pakistan.
+(2) Whosoever contravenes, or attempts to contravene, any provision of sub-section (1) shall be punished with imprisonment for life and shall also be liable to fine not less than ten million rupees and materials, equipments, technologies as well as all movable and immovable property of such an offender shall be liable to be forfeited to the Federal Government.

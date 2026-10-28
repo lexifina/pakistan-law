@@ -1,0 +1,1 @@
+6. Biological defence research.- Nothing in this Act shall prohibit any programme or activity carried out or authorized by the Federal Government that is specifically designed to protect or defend humans, animals or plants against the use of biological agents or toxins for hostile purposes or in armed conflict, or to detect or assess the impact of such use.
