@@ -1,0 +1,1 @@
+5. University open to all.___ The University shall be open to persons of either sex of whatever religion, race, creed, colour or domicile who are academically qualified for admission to the courses of study offered by the University and no such person shall be denied the privileges of the University on the ground only of sex, religion, creed, race, class, colour or domicile.
