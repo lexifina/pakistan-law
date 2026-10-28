@@ -1,0 +1,2 @@
+4. Appeal and review.— (1) An appeal shall lie, at the instance of any person aggrieved by an order made by a Judge of the High Court in the exercise of the jurisdiction conferred by this Act, in the same way and subject to the same provisions as an appeal lies against an order passed by a single Judge of that Court in exercise of its original civil jurisdiction.
+(2) The Court may review, rescind or vary any order made by it under this Act.

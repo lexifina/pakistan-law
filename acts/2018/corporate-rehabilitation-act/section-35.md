@@ -1,0 +1,2 @@
+35. Abandonment of property of debtor.—(1) After notice and a hearing, the administrator may abandon any property of the debtor that is burdensome or that is of inconsequential value and benefit to the debtor.
+(2) On request of an interested party and after notice and a hearing, the Court may order the administrator to abandon any property of the debtor that is burdensome or that is of inconsequential value and benefit to the debtor.

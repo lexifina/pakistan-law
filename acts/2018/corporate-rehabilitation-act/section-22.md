@@ -1,0 +1,4 @@
+22. Removal and termination of administrator.— (1) The Court may, at any time before confirmation of a plan of rehabilitation, on request of an interested party and after notice and a hearing, terminate the administrator’s appointment and restore the debtor to possession of its property and management of its business.
+(2) The Court, after notice and a hearing, may remove an administrator for mal-feasance, mal-administration or gross negligence and appoint another administrator.
+(3) Whenever the Court removes an administrator under sub-section (2), such administrator shall also thereby stand automatically removed in all other cases under this Act in which such administrator is then serving unless the Court makes orders otherwise.
+(4) A vacancy in office of the administrator during a case does not abate any pending action or proceeding and the successor administrator shall be substituted as a party in such action or proceeding.

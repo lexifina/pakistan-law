@@ -1,0 +1,3 @@
+16. Revocation of confirmation of a plan of rehabilitation.— (1) The Court may, on the application of any person aggrieved by the plan of rehabilitation, at any time within twelve months of the date of confirmation of the plan and after notice and a hearing, make an order, upon such terms as the Court thinks fit declaring the confirmation to have been void.
+(2) The Court may pass an order under sub-section (1) if the order of confirmation to be declared void was procured by fraud.
+(3) An order under this section revoking an order of confirmation shall provide for all such measures as are necessary to protect any entity which has acquired rights in good faith reliance on the order of confirmation.

@@ -1,0 +1,1 @@
+42. Power to issue directives, circulars, guidelines, etc.—The Commission may, from time to time, issue such directives, circulars and guidelines as may be necessary for carrying out the purposes of this Act, the rules or regulations made thereunder.

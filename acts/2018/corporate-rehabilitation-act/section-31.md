@@ -1,0 +1,3 @@
+31. Claims and interests.— (1) Within fourteen days of the publication of the notice of appointment of administrator, proof of any claims or interests shall be filed with the administrator by the creditors, shareholders or interested parties, as the case may be.
+(2) Any person who does not timely file a claim or interest will be deemed to have no claim or interest against the debtor unless the delay in filing the claim or interest is condoned, after notice and a hearing, by the Court for just cause shown.
+(3) Any party aggrieved by a determination of the administrator of any claims and interests may prefer an appeal to the Court which shall determine the amount of such claims or interests.

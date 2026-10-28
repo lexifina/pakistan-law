@@ -1,0 +1,2 @@
+38. Limitation.— (l) Except as provided otherwise in this Act, the provisions of the Limitation Act, 1908 (IX of 1908) shall apply to the proceedings under this Act.
+(2) Notwithstanding anything contained in the Limitation Act, 1908 (IX of 1908), in computing the time within which an administrator may institute a suit for the recovery of any debt due to the debtor, the period which elapses between the filing of a petition under the is Act and the passing of order of mediation under this Act or period of one year, which ever be greater, shall be excluded.
