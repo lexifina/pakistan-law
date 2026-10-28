@@ -1,0 +1,1 @@
+9. Agreement for waiving exemption void. Notwithstanding any other law for the time being in force any agreement by which a debtor agrees to waive any benefit of any exemption under section 7 or 8 shall be void.

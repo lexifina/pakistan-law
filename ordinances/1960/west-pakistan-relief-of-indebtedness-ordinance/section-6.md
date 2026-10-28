@@ -1,0 +1,1 @@
+6. Exemption from the provisions of Order XXI, Rule 2(3) of the Civil Procedure Code. Nothing in Order XXI, Rule 2, sub-rule (3) of the Code of Civil Procedure, 1908(V of 1908), shall apply to an adjustment or payment made by a debtor.
