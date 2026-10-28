@@ -1,0 +1,1 @@
+6. Visitation. The Board may cause an inspection or inquiry to be made in respect of any matter connected with the affairs of a Model Dini Madarsah or a Model Darul Uloom and shall from time to time appoint such persons as it may deem fit for the purposes of carrying out such inspection or inquiry and to submit its report to the Board.

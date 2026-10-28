@@ -1,0 +1,1 @@
+22. Removal of difficulties. If any difficulty arises in giving effect to any of the provisions of this Ordinance, the Federal Government may, on the recommendations of the Board make such order, not inconsistent with the provisions of this Ordinance, as it may consider necessary for the removal of difficulty.

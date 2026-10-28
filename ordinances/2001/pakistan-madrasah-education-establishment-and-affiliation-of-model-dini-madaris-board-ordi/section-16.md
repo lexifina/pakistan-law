@@ -1,0 +1,1 @@
+16. Delegation of powers. The Board may, by order in writing and subject to such conditions as may be specified in the order, direct that any specific power or functions shall be exercisable by the Chairman or a member of the Board for a specified period which shall not extend for more than six months at a time.

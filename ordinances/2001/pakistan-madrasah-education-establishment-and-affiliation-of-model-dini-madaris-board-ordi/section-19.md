@@ -1,0 +1,1 @@
+19. Indemnity. No suit, prosecution or other legal proceeding shall lie against the Chairman, any member of the Board or a committee thereof or an officer or employee of the Board, in respect of anything in good faith done or purported to have been done under this Ordinance or regulation made thereunder.

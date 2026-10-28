@@ -1,0 +1,2 @@
+13. Syllabii.—(1) Every dini madrassah and dar-ul-uloom affiliated with the Board shall teach Islamic education as the main component and shall also include such subjects of general education system as may be prescribed by the Board.
+(2) Where an affiliated dini madrassah or dar-ul-uloom contravenes the provisions of this Ordinance or any direction of the Board it may cancel the affiliation of such madrassah or dar-ul-uloom after giving the madrassah or Darul uloom as the case may be an opportunity of hearing.
