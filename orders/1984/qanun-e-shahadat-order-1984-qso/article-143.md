@@ -1,0 +1,6 @@
+143. Court to decide when question shall be asked and when witness compelled to
+answer.— If any such question relates to a matter not relevant to the suit or proceeding, except in so far as it affects the credit of the witness by injuring his character, the Court shall decide whether or not the witness shall be compelled to answer it, and may, if it thinks fit, warn the witness that he is not obliged to answer it. In exercising its discretion, the Court shall have regard to the following considerations:—
+(1) such questions are proper if they are of such a nature that the truth of the imputation conveyed by them would seriously effect the opinion of the Court as to the credibility of the witness on the matter to which he testifies ;
+(2) such questions are improper if the imputation which they convey relates to matters so remote in time, or of such a character, that the truth of the imputation would not affect, or would affect in slight degree, the opinion of the Court as to the credibility of the witness on the matter to which he testifies;
+(3) such questions are improper if there is a great disproportion between the importance of the importation made against the witness’s character and the importance of his evidence;
+(4) the Court may, if it sees fit, draw, from the witness’s refusal to answer, the inference that the answer if given would be unfavourable.

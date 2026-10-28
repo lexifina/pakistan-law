@@ -1,0 +1,2 @@
+7. Official communications.— No public officer shall be compelled to disclose communications made to him in official confidence, when he considers that the public interests would suffer by the disclosure.
+Explanation.—In this Article, “communications” includes communications concerning industrial or commercial activities carried on, directly or indirectly, by the Federal Government or a Provincial Government or any statutory body or corporation or company set up or controlled by such Government.

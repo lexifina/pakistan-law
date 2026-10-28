@@ -1,0 +1,5 @@
+139. Evidence as to matters in writing.— Any witness may be asked, whilst under examination, whether any contract, grant or other disposition of property, as to which he is giving evidence, was not contained in a document, and if he says that it was, or if he is about to make any statement as to the contents of any document, which, in the opinion of the Court, ought to be produced, the adverse party may object to such evidence being given until such document is produced, or until facts have been proved which entitle the party who called the witness to give secondary evidence of it.
+Explanation.— A witness may give oral evidence of statements made by other persons about the contents of documents if such statements are in themselves relevant facts.
+Illustration
+The question is, whether A assaulted B.
+C deposes that he heard A say to D—“B wrote a letter accusing me of theft, and I will be revenged on him”. This statement is relevant, as showing A’s motive for the assault, and evidence may be given of it, though no other evidence is given about the letter.

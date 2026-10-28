@@ -1,0 +1,3 @@
+## HOW MUCH OF A STATEMENT IS TO BE PROVED
+53. What evidence to be given when statement forms part of a conversation, document,
+book or series of letters or papers.— When any statement of which evidence is given forms part of a longer statement, or of a conversation or part of an isolated document, or is contained in a document which forms part of a book or of a connected series of letters or papers, evidence shall be given of so much and no more of the statement, conversation, document, book or series of letters or papers as the Court considers necessary in that particular case to the full understanding of the nature and effect of the statement, and of the circumstances under which it was made.

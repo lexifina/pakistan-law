@@ -1,0 +1,1 @@
+145. Procedure of Court in case of question being asked without reasonable grounds.— If the Court is of opinion that any such question was asked without reasonable grounds, it may, if it was asked by any advocate, report the circumstances of the case to the High Court or other authority to which such advocate is subject in the exercise of his profession.

@@ -1,0 +1,1 @@
+92. Presumption as to genuineness of documents kept under any law.— The Court shall presume the genuineness of every document purporting to be a document directed by any law to be kept by any person, if such document is kept substantially in the form required by law and is produced from proper custody.

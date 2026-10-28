@@ -1,0 +1,1 @@
+124. Burden of proving that person is alive who has not been heard of for seven years.— When the question is whether a man is alive or dead, and it is proved that he has not been heard of for seven years by those who would naturally have heard of him if he had been alive, the burden of proving that he is alive is shifted to the person who affirms it.

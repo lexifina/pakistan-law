@@ -1,0 +1,1 @@
+150. Question by party to his own witness.— The Court may, in its discretion, permit the person who calls a witness to put any questions to him which might be put in cross-examination by the adverse party.

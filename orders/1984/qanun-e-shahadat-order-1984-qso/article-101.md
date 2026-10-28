@@ -1,0 +1,1 @@
+101. Certified copies of documents thirty years old.— The provisions of Article 100 shall apply to such copy of a document referred to in that Article as is certified in the manner provided in Article 87 and is not less than thirty years old; and such certified copy may be produced in proof of the contents of the document or part of the document of which it purports to be a copy.

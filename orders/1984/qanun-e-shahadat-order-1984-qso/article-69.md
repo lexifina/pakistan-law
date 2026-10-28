@@ -1,0 +1,2 @@
+69. Character as affecting damages.— In civil cases the fact that the character of any person is such as to affect the amount of damages which he ought to receive, is relevant.
+Explanation:— In Articles 66, 67, 68 and 69, the word “character” includes both reputation and disposition; but, except as provided in Article 68, evidence may be given only of general reputation and general disposition, and not of particular acts by which reputation or disposition were shown.

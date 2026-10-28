@@ -1,0 +1,1 @@
+95. Presumption as to powers-of-attorney.— The Court shall presume that every document purporting to be a power-of -attorney, and to have been executed before, and authenticated by, a notary public, or any Court, Judge, Magistrate, Pakistan Consul or Vice-Consul, or representative of the Federal Government, was so executed and authenticated.
