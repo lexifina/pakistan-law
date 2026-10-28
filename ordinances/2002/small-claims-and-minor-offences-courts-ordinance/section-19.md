@@ -1,0 +1,3 @@
+19. Objections on award.—(1) The Court shall, before passing a decree based on award, call objections of the parties to it within fifteen days of the receipt of award and settle such objections within fifteen days thereof.
+(2) No separate proceedings shall lie in any other Court to challenge the validity of the award on the plea of fraud misrepresentation on involuntary nature of the settlement of any other ground whatsoever.
+(3) Where a person challenges the validity of the decree on the plea of fraud, misrepresentation or want of jurisdiction, he shall make an application to the Court within thirty days of passing the decree and no separate suit shall lie for it.

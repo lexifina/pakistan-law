@@ -1,0 +1,1 @@
+24. Prohibition of making record.—Any information, statement, document and anything disclosed to the Salis during settlement proceedings shall be kept as confidential and no document including any transcript, formal record or audio-visual recording shall be made of the proceedings, except with the approval of the Salis and consent of the parties.

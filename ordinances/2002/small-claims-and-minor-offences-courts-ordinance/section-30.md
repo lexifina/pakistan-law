@@ -1,0 +1,2 @@
+30. Matters to which affidavits shall be confined.—(1) An affidavit shall be confined to such facts as the deponent is able of his own knowledge to prove, except interlocutory applications, on which statement of his belief may be admitted, provided that the grounds thereof are stated.
+(2) The costs of every affidavit which shall unnecessarily set forth matter of hearsay or argumentative nature, or copies of or extracts from documents, shall, unless the Court otherwise directs, be paid by the party filing the same.

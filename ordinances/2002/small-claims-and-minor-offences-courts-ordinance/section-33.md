@@ -1,0 +1,1 @@
+33. Costs.—If in any suit or claim, the Court while pronouncing judgment comes to the conclusion that the claim or defence is false or vexatious, it may make an order for payment of costs as determined by the Court, not exceeding one-tenth of the value of subject matter of the suit.

@@ -1,0 +1,6 @@
+11. Written statement.—(1) The defendant shall on the date fixed, appear before the Court and file his written statement duly verified on oath or solemn affirmation and attach therewith a list of his witnesses as also a summary of the evidence that each witness is expected to give:
+Provided that the Court may, on sufficient cause being shown, permit to file written statement which shall not exceed fifteen days.
+(2) Where a defendant relies upon a document in his possession or power, he shall produce it in original or a copy thereof in the Court alongwith the written statement.
+(3) When the defendant relies on any other document, not in his possession or power, as evidence in support of his written statement, he shall enter such documents in a list to be appended to the written statement, giving reasons of relevancy to the defence in the written statement.
+(4) Copy of the written statement together with schedule of witnesses, documents and list of documents relied upon shall be given to the plaintiff, his agent or advocate present in the Court.
+(5) Where any party from whom a written statement is so required fails to present the same within the time fixed by the Court, the Court may pronounce judgment against him, or make such order in relation to the suit as it thinks fit.

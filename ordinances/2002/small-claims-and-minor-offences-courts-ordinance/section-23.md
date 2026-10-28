@@ -1,0 +1,1 @@
+23. Prohibition of appearing in proceedings or as witness.—The Salis conducting proceedings for amicable settlement shall not act in any capacity for any of the parties in connection with the matter in the suit or complaint in other proceedings nor shall he be called as a witness in such proceedings.

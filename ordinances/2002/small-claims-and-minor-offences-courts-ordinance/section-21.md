@@ -1,0 +1,1 @@
+21. Non-commencement of settlement proceedings.—If the parties fail to appear before the Salis or pay fees, as determined by the Court, the Salis may not proceed for settlement and inform the Court accordingly.

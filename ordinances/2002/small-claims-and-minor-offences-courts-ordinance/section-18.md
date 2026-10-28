@@ -1,0 +1,2 @@
+18. Settlement of suit or complaint.—(1) If a settlement of a suit or complaint is reached between the parties, the Salis shall prepare a deed of settlement containing terms of such settlement, signed by the parties and submit it to the Court on the day fixed by the Court together with a certificate that the settlement between the parties was voluntary.
+(2) The Salis shall make an award and submit it in the Court on or before the date fixed.

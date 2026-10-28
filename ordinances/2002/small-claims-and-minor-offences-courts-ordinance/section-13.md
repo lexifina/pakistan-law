@@ -1,0 +1,2 @@
+13. Final disposal of suit.—(1) Where it appears at the first hearing of the suit that the parties are not at variance on any question of law or fact or that the dispute is of trivial nature, the Court may, after recording brief statements of the parties or their counsels, dispose of the suit forthwith.
+(2) If the suit is not disposed of under sub-section (1), the Court shall ascertain upon which smaterial propositions of fact or law, the parties are at variance, and shall proceed to dispose of the case in the manner provided hereafter.

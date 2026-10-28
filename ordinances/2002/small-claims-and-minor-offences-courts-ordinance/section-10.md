@@ -1,0 +1,4 @@
+10. Appearance through Advocate or recognized agent.—(1) No Advocate shall act for any person in the Court, unless he has been appointed for the purpose by such person in writing signed by such person or by his recognized agent or by some other person authorised by or under a power of attorney to make such appointment.
+(2) Any appearance, application or action in or to the Court, required or authorised by law to be made or done by a party may, except where otherwise expressly provided by any law for the time being in force, be made or done by the party in person or by his recognised agent or by an Advocate on his behalf.
+(3) Any process served on the recognised agent of a party or an advocate shall be as effectual as if the same has been served on the party in person, unless the Court otherwise directs.
+(4) The provisions for the service of process on a party to a suit shall apply to the service of process on his recognised agent.
