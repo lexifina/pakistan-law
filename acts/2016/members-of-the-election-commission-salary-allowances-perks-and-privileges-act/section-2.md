@@ -1,0 +1,1 @@
+2. Definitions.—In this Act, unless there is anything repugnant in the subject “Member” means a member of the Election Commission appointed under paragraph (b) of clause (2) of Article 218 of the Constitution of the Islamic Republic of Pakistan.
