@@ -1,0 +1,6 @@
+4. Powers and functions of the Board and Provincial Committees.___The following shall be the powers and functions of the Board in the case of the Federal Government and a Provincial Committee in the case of a Provincial Government, namely:—
+(a) To receive, reports of violations of provisions of this Ordinance or the rules;
+(b) to recommend , investigation of cases against manufacturers, distributors or health workers found to be violating the provisions of this Ordinance or the rules;
+(c) to plan for and co-ordinate the dissemination of informational and educational materials on the topic of infant feeding and recommend continuing education courses for health workers on topics related to this Ordinance;
+(d) to advise the Federal Government, and the Provincial Governments on national policies for the promotion and protection of breast-feeding, and matters relating to designated products especially infant and young child nutrition, particularly through national or provincial education campaigns, and to organize health education on the same for health workers and general public; and
+(e) to propose guidelines to the Federal Government or to a Provincial Government. as the case may be in respect of matter specified in clause (d).

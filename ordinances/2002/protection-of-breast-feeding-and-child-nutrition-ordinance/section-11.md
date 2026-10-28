@@ -1,0 +1,5 @@
+11. Quality assurance. __ (1) No designated product shall be manufactured, sold or otherwise distributed in Pakistan unless it is formulated industrially in accordance with the standards recommended by the Codex Alimentarus Commission and the Codex Code of Hygienic Practice for Foods for Infants and Children, and in addition. shall meet such applicable standards specified in this Ordinance and the rules,
+(2) The Board or a Provincial Committee, as the case may be, may require an Inspector or any other person invested with powers under this Ordinance to test any designated product sold in Pakistan in order to determine whether it is fit for human consumption.
+(3) A designated product that does not meet the standards for use in the country of manufacture shall not be sold in Pakistan.
+(4) A designated product that has reached the expiry date shall not be marketed sold or distributed.
+(5) A designated product shall be sold only in the original container in order to prevent quality deterioration, adulteration or contamination thereof.

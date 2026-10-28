@@ -1,0 +1,2 @@
+17. Penalties.___(1) Any manufacturer or distributor who contravenes the provisions of subsections (1) to (7) of section?, subsection (1) of section 8, subsections (1), (3) (4) or (5) of section 11. shall be punishable with imprisonment for a term which may extend to two years or with fine which shall not be less than fifty thousand rupees or more than five hundred thousand rupees, or both.
+(2) Any person, who contravenes any other provision of this Ordinance, or the rules, shall be punishable with a fine, which may extend to five hundred thousand rupees.
