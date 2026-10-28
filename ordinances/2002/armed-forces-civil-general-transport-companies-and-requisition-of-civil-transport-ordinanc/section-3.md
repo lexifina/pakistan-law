@@ -1,0 +1,3 @@
+3. Raising of general transport companies and requisition of civil transport.___(1) The Prescribed Authority may on behalf of the Federal Government, raise civil general transport companies and requisition civil transport whenever such raising and requisitioning is considered necessary or expedient, even prior to the declaration of emergency in Pakistan:
+Provided that in the case of requisition of civil transport, compensation shall be paid as may be prescribed by rules.
+(2) The control over civil general transport companies and civil transport referred to in sub-section (1), may be exercised by members of the Armed Forces.

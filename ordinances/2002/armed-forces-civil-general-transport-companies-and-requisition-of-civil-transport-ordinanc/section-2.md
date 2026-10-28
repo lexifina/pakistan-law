@@ -1,0 +1,4 @@
+2. Definitions.___In this Ordinance unless there is anything repugnant in the subject or context:___
+(a) “Armed Forces” means the Army, Navy or Air Force of Pakistan or any Armed Forces raised or maintained by the Federal Government including Civil Armed Forces, or any other Armed Forces attached to, or operating with, any such force or forces;
+(b) “Civil transport” means any vehicle or transport owned by a department of the Federal Government, a Provincial Government or a local body, or any private transport or vehicle owned by any person residing within territorial limits of Pakistan and includes all types of locomotives, general purpose mechanical transport and specialized transport vehicles and related equipment or plant; and
+(c) “Prescribed Authority” means the Secretary to the Government of Pakistan, Ministry of Defence, or any other officer designated by him for the purpose.
