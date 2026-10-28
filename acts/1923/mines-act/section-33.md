@@ -1,0 +1,1 @@
+33. Posting up of abstracts from Act, regulations, etc.—There shall be kept posted up or near, every mine in English and in such vernacular or vernaculars as may be prescribed, the prescribed abstracts of the Act and of the regulations and rules.

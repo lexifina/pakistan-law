@@ -1,0 +1,11 @@
+[^45][20A. Notice of occupational diseases.—(1) Where any person employed in a mine contracts or is believed to have contracted any disease notified by the appropriate Government in the official Gazette as an occupational disease peculiar to any mining operation, the owner, agent or manager of the mine, as the case may be, shall send notice thereof to the Chief Inspector and to such other authorities, in such form and within such time as may be prescribed.
+(2) The appropriate Government may, by order, appoint such qualified medical practitioners on such terms and conditions as it thinks fit to be certifying doctors for the purpose of this section within such local limits as it may specify in the order.
+(3) If the Chief Inspector or an Inspector has reason to believe that any person working in a mine has contracted a disease notified under sub-section (1), he may refer that person to the certifying doctor for his opinion.
+(4) If any qualified medical practitioner attends on a person who is or has been employed in a mine and who is or is believed by the medical practitioner to be suffering from any disease notified under sub-section (1), the medical practitioner shall without delay send a report in writing to the Chief Inspector stating___
+(a) the name and address of the patient ;
+(b) the disease from which the patient is or is believed to be suffering ; and
+(c) the name and address of the mine in which the patient is or was last employed.
+(5) Where the report under sub-section (4) is confirmed to the satisfaction of the Chief Inspector by the certificate of a certifying doctor that the person is suffering from a disease notified under sub-section (1), the Chief Inspector shall pay to the medical practitioner such fee as may be prescribed, and the fee so paid shall be recoverable as an arrear of land revenue from the owner, agent or manager of the mine in which the person contracted the disease.
+(6) The Chief Inspector or an Inspector, if so advised by the certifying doctor, may direct the owner, agent or manager of the mine to shift for any specified period a person who has contracted an occupational disease to such working place where there is less or no danger of aggravation of the disease.]
+
+[^45]: New section 20A ins. by the Mines (Amdt.) Act, 1973 (XLV of 1973), s. 13.

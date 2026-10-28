@@ -1,0 +1,1 @@
+8. Facilities to be afforded to Inspectors.— Every owner agent and manager of a mine shall afford the Chief inspector and every Inspector and every person authorised under section I all reasonable facilities or making any entry, inspection, survey, measurement, examination or inquiry under this Act.

@@ -1,0 +1,1 @@
+41. Prosecution of owner, agent or manager.—No prosecution shall be instituted, against any owner, agent or manager for any offence under this Act except at the instance of the Chief Inspector or of the District Magistrate or of an Inspector authorised in this behalf by general or special order in writing by the Chief Inspector.

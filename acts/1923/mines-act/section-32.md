@@ -1,0 +1,21 @@
+32. Bye-laws.⸻(1) The owner, agent or manager of a mine may, and shall, if called upon to do so by the Chief Inspector or Inspector, frame and submit to the Chief Inspector or Inspector a draft of such bye-laws, not being inconsistent with this Act or any regulations or rules for the time being in force, for the control and guidance of the persons acting in the management of, or employed in, the mine as such owner, agent or manager may deem necessary to prevent accidents and provide for the safety, convenience and discipline of the persons employed in the mine.
+(2) If any such owner, agent or manager⸻
+(a) fails to submit within two months a draft of bye-laws after being called upon to do so by the Chief Inspector or Inspector, or
+(b) submits a draft of bye-laws which is not in the opinion of the Chief Inspector or Inspector sufficient,
+the Chief Inspector or Inspector may⸻
+(i) propose a draft of such bye-laws as appear to him to be sufficient, or
+(ii) propose such amendments in any draft submitted to him by the owner, agent or manager as will, in his opinion, render it sufficient,
+and shall send such draft bye-laws or draft amendments to the owner, agent or manager, as the case may be, for consideration.
+(3) If within a period of two months from the date on which any draft bye-laws or draft amendments are sent by the Chief Inspector or Inspector to the owner, agent or manager under the provisions of sub-section (2), the Chief Inspector or Inspector and the owner, agent or manager, are unable to agree as to the terms of the bye-laws to be made under sub-section (1), the Chief Inspector or Inspector shall refer the draft bye-laws for settlement to the Mining Board or, where there is no Mining Board, to such officer or authority as the [^132][appropriate Government] may, be general or special order, appoint in this behalf.
+(4) (a) When such draft bye-laws have been agreed to by the owner, agent or manager and the Chief Inspector or Inspector, or, when they are unable to agree, have been settled by the Mining Board or such officer or authority as aforesaid, a copy of the draft bye-laws shall be sent by the Chief Inspector or Inspector to the [^133][appropriate Government] for approval.
+(b) The [^133][appropriate Government] may make such modifications of the draft bye-laws as it thinks fit.
+(c) Before the [^133][appropriate Government] approves the draft bye-laws, whether with or without modifications, there shall be published, in such manner as the [^133][appropriate Government] may think best adapted for informing the persons affected, notice of the proposal to make the bye-laws and of the place where copies of the draft bye-laws may be obtained, and of the time (which shall not be less than thirty days) within which any objections with reference to the draft bye-laws, made by or on behalf of persons affected should be sent to the [^133][appropriate Government].
+(d) Every objection shall be in writing and shall state⸻
+(i) the specific grounds of objection, and
+(ii) the omissions, additions and modifications asked for,
+(e) The [^133][appropriate Government] shall consider any objection made within the required time by or on behalf of persons appearing to it to be affected, and may approve the bye-laws either in the form in which they were published or after making such amendments thereto as it thinks fit.
+(5) The bye-laws, when so approved by the [^133][appropriate Government], shall have effect as if enacted in this Act, and the owner, agent or the manager of the mine shall cause a copy of the bye-laws, in English and in such vernacular or vernaculars as may be prescribed, to be posted up in some conspicuous place at or hear the mine, where the bye-laws may be conveniently read or seen by the persons employed; and, as often as the same became defaced, obliterated or destroyed, shall cause them to be renewed with all reasonable despatch.
+(6) The [^133][appropriate Government] may, by order in writing, rescind, in whole or in part, any bye-law so made, and thereupon such bye-law shall cease to have effect accordingly.
+
+[^132]: Subs. by A.O., 1964, Art. 2 and Sch., for “Central Government” which had been subs. by A.O., 1937, for “Local Government”.
+[^133]: Subs. by A.O., 1964, Art. 2 and Sch., for “Central Government” which had been subs. by A.O., 1937, for “Local Government”.

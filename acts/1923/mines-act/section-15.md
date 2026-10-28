@@ -1,0 +1,2 @@
+15. Managers.⸻(1) Save as may be otherwise prescribed, every mine shall be under one manager who shall have the prescribed qualifications and shall be responsible for the control, management and direction of the mine, and the owner or agent of every mine shall appoint himself or some other person, having such qualifications, to be such manager.
+(2) If any mine is worked without there being a manager for the mine as required by sub-section (1), the owner and agent shall each be deemed to have contravened the provisions of this section.
