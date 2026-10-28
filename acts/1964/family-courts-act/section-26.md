@@ -1,0 +1,2 @@
+26. Power to make rules.— (1) Government may, by notification in the official Gazette, make rules to carry into effect the provisions of this Act.
+(2) Without prejudice to the generality of the provisions contained in sub-section (1), the rules so made may, among other matters, provide for the procedure, which shall not be inconsistent with the provisions of this Act, to be followed by the Family Courts.
