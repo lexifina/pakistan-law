@@ -1,0 +1,4 @@
+7. Savings___(1) Any reconstituted Board of Directors (including the individual directors) shall not be liable for any prosecution or penalties in respect of the acts or inaction of its predecessor Board of Management.
+(2) Notwithstanding the provisions of sub-section (1), the repeal of the Act shall not affect any contract or agreement properly made authorised and entered into by PSO during the time it was subject to the Order or the control of the Federal Government under the Act or of its impact on the terms and conditions of employment of employees of PSO. The PSO shall be bound to honour all commitments made prior to the effective date in the same manner as if made subsequent to the effectiveness of the repeal.
+(3) No suit, prosecution or other legal proceedings shall lie against any member of a Board of Management for anything done or intended to be done pursuant to the Act or Order.
+Date:-13.03.2024

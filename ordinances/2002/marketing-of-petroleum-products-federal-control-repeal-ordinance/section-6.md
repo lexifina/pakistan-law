@@ -1,0 +1,2 @@
+6. Holding of elections.___An election of directors shall be held by PSO within such period not exceeding twelve months as may be practicable after the effective date:
+Provided that in exceptional circumstances the. Federal Government may extend the time within which elections are to be held by such period not exceeding twelve months as the federal Government thinks appropriate in the circumstances.
