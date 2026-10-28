@@ -1,0 +1,1 @@
+10. Protection of financial obligation. All financial obligations incurred including those under any instrument, or any financial and contractual commitment made by or on behalf of the Government shall continue to remain in force, and shall not be altered to the disadvantage of the beneficiaries.
