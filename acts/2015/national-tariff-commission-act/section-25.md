@@ -1,0 +1,1 @@
+25. Removal.—Appointment of any member or employee of the Commission may, at any time, be revoked by order of the Federal Government if it is found that such person stands disqualified on the grounds and in the manner as prescribed.
