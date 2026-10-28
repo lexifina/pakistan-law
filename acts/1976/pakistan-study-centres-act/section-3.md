@@ -1,0 +1,1 @@
+3. Establishment of Centre and the Institute. As soon as may be after the commencement of this Act, the Federal Government may by notification in the official Gazette, establish a Pakistan Study Centre in a University specified in the notification and the National Institute of Pakistan Studies in the University of Islamabad.
