@@ -1,0 +1,1 @@
+30. Removal of difficulties.―If any difficulty arises in giving effect to any of the provisions of this Ordinance, the President may, on the recommendations of the Board make such order not inconsistent with the said provisions, as it may consider necessary for the removal of such difficulty.
