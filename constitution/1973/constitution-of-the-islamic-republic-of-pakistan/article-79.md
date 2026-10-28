@@ -1,0 +1,3 @@
+79. Custody, etc., of Federal Consolidated Fund and Public Account. The custody of the Federal Consolidated Fund, the payment of moneys into that Fund, the withdrawal of moneys therefrom, the custody of other moneys received by or on behalf of the Federal Government, their payment into, and withdrawal from, the Public Account of the Federation, and all matters connected with or ancillary to the matters aforesaid, shall be regulated by Act of [^67][Majlis-e-Shoora (Parliament)] or, until provision in that behalf is so made, by rules made by the President.
+
+[^67]: Subs. by the Revival of the Constitution of 1973 Order, 1985 (P.O. No.14 of 1985), Art.2 and Sch.

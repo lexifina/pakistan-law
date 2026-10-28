@@ -1,0 +1,1 @@
+203G. Bar of jurisdiction.__ Save as provided in Article 203F, no court or tribunal, including the Supreme Court and a High Court, shall entertain any proceedings or exercise any power or jurisdiction in respect of any matter within the power or jurisdiction of the Court.

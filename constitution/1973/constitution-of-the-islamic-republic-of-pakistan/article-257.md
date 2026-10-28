@@ -1,0 +1,1 @@
+257. Provision relating to the State of Jammu and Kashmir. When the people of the State of Jammu and Kashmir decide to accede to Pakistan, the relationship between Pakistan and that State shall be determined in accordance with the wishes of the people of that State.

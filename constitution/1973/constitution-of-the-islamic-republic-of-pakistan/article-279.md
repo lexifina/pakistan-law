@@ -1,0 +1,1 @@
+279. Continuance of taxes. Notwithstanding anything contained in the Constitution, all taxes and fees levied under any law in force immediately before the commencing day shall continue to be levied until they are varied or abolished by Act of the appropriate Legislature.

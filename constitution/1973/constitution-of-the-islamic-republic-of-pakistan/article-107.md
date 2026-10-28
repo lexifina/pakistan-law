@@ -1,0 +1,1 @@
+107. Duration of Provincial Assembly. A Provincial Assembly shall, unless sooner dissolved, continue for a term of five years from the day of its first meeting and shall stand dissolved at the expiration of its term.

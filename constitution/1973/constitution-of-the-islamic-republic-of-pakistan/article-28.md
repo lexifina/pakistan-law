@@ -1,0 +1,1 @@
+28. Preservation of language, script and culture. Subject to Article 251 any section of citizens having a distinct language, script or culture shall have the right to preserve and promote the same and subject to law, establish institutions for that purpose.

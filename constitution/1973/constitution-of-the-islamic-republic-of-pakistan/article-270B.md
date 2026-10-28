@@ -1,0 +1,3 @@
+270B. Elections to be deemed to be held under Constitution. Notwithstanding anything contained in the Constitution, the elections held under the Houses of (Parliament) and Provincial Assemblies (Elections) Order, 1977, [^392][and the Conduct of General Elections Order, 2002 (Chief Executive's Order No. 7 of 2002),] to the Houses and the Provincial Assemblies shall be deemed to have been held under the Constitution and shall have effect accordingly.]
+
+[^392]: Ins. by the Constitution (Eighteenth Amendment) Act, 2010 (Act No. X of 2010), s. 97, and shall be deemed always to have been so, ins. with affect from the 21st day of August 2002.

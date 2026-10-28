@@ -1,0 +1,1 @@
+3. Elimination of exploitation. The State shall ensure the elimination of all forms of exploitation and the gradual fulfilment of the fundamental principle, from each according to his ability to each according to his work.

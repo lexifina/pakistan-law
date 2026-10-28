@@ -1,0 +1,1 @@
+138. Conferring of functions on subordinate authorities. On the recommendation of the Provincial Government, the Provincial Assembly may by law confer functions upon officers or authorities subordinate to the Provincial Government.

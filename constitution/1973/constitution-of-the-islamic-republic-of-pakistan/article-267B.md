@@ -1,0 +1,1 @@
+267B. Removal of doubt.__ For removal of doubt it is hereby declared that Article 152A omitted and Articles 179 and 195 substituted by the Constitution (Seventeenth Amendment) Act, 2003 (Act No. III of 2003), notwithstanding its repeal, shall be deemed always to have been so omitted and substituted.]

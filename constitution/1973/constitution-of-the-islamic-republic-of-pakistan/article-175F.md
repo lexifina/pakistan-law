@@ -1,0 +1,6 @@
+175F. Appellate jurisdiction of the Federal Constitutional Court.__ (1) The Federal Constitutional Court shall have jurisdiction to hear and determine appeals from judgments, decrees, final orders or sentences of a High Court as provided herein below –
+(a) where an Act of Majlis-e-Shoora (Parliament) so provides;
+(b) if the High Court certifies that the case involves a substantial question of law as to the interpretation of the Constitution; or
+(c) from a judgment or an order of a High Court made under Article 199 only if the Federal Constitutional Court grants leave to appeal:
+Provided that no appeal shall lie against a judgment or an order of a High Court made under Article 199, in a case which relates to rent and family except guardianship and such other matters as may be determined by law.
+(2) All petitions for leave to appeal, appeals or review applications, to which clause (1) apply or any other proceedings falling within the jurisdiction of the Federal Constitutional Court, filed or pending before the Supreme Court prior to commencement of the Constitution (Twenty-seventh Amendment) Act, 2025, stand transferred to the Federal Constitutional Court and shall only be heard and decided by that Court.

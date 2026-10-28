@@ -1,0 +1,1 @@
+220. Executive authorities to assist Commission, etc. It shall be the duty of all executive authorities in the Federation and in the Provinces to assist the Commissioner and the Election Commission in the discharge of his or their functions.

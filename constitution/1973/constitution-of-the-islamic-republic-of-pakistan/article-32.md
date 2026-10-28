@@ -1,0 +1,1 @@
+32. Promotion of local Government institutions. The State shall encourage local Government institutions composed of elected representatives of the areas concerned and in such institutions special representation will be given to peasants, workers and women.

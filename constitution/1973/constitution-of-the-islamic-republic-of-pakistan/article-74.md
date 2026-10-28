@@ -1,0 +1,3 @@
+74. Federal Government’s consent required for financial measures. A Money Bill, or a Bill or amendment which if enacted and brought into operation would involve expenditure from the Federal Consolidated Fund or withdrawal from the Public Account of the Federation or affect the coinage or currency of Pakistan or the constitution or functions of the State Bank of Pakistan shall not be introduced or moved in [^65][Majlis-e-Shoora (Parliament)] except by or with the consent of the Federal Government.
+
+[^65]: Subs. by the Revival of the Constitution of 1973 Order, 1985 (P.O. No.14 of 1985), Art.2 and Sch.

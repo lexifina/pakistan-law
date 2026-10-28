@@ -1,0 +1,3 @@
+280. Continuance of Proclamation of Emergency. The Proclamation of Emergency issued on the twenty-third day of November, one thousand nine hundred and seventy-one, shall be deemed to be a Proclamation of Emergency issued under Article 232, and for the purposes of clause (7) and clause (8) thereof to have been issued on the commencing day, and any law, rule or order made or purporting to have been made in pursuance of that Proclamation shall be deemed to have been validly made [^403][and shall not be called in question in any Court on the ground of inconsistency with any of the rights conferred by Chapter I of Part II. ]
+
+[^403]: Added by the Constitution (Fifth Amendment) Act, 1976 (Act No. LXII of 1976), s. 17 and shall be deemed always to have been so added.

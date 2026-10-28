@@ -1,0 +1,1 @@
+15. Freedom of movement, etc. Every citizen shall have the right to remain in, and, subject to any reasonable restriction imposed by law in the public interest, enter and move freely throughout Pakistan and to reside and settle in any part thereof.

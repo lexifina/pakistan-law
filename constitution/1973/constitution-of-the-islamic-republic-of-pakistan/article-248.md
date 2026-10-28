@@ -1,0 +1,9 @@
+## CHAPTER 4.__ GENERAL
+248. Protection to President, Governor, Minister, etc.__ (1) [^364][Notwithstanding any judgement of any court, the] President, a Governor, the Prime Minister, a Federal Minister, a Minister of State, the Chief Minister and a Provincial Minister shall not be answerable to any court for the exercise of powers and performance of functions of their respective offices or for any act done or purported to be done in the exercise of those powers and performance of those functions:
+Provided that nothing in this clause shall be construed as restricting the right of any person to bring appropriate proceedings against the Federation or a Province.
+[^364][(2) No criminal proceedings whatsoever shall be initiated or continued against the President for his life and for a Governor during his term of office in any court.]
+[^364][(3) No process for arrest or imprisonment of the President for his life and for a Governor during his term of office, shall be issued from any court:
+Provided that the provisions of clauses (2) and (3) shall not apply during the period the President holds a public office after he ceases to be the President.]
+(4) No civil proceedings in which relief is claimed against the President or a Governor shall be instituted during his term of office in respect of anything done or not done by him in his personal capacity whether before or after he enters upon his office unless, at least sixty days before the proceedings are instituted, notice in writing has been delivered to him, or sent to him in the manner prescribed by law, stating the nature of the proceedings, the cause of action, the name, description and place of residence of the party by whom the proceedings are to be instituted and the relief which the party claims.
+
+[^364]: Ins. and subs. by the Constitution (Twenty-seventh Amendment) Act, 2025 (Act No. XXXII of 2025), s. 52.
