@@ -1,0 +1,1 @@
+4. Penalties:___ If any person contravenes any order made under this Ordinance he shall be punished with imprisonment for a term which may extend to one month or with fine which may extend to fifteen thousand rupees, or with both.
