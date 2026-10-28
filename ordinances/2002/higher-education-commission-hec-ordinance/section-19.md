@@ -1,0 +1,1 @@
+19. Chairperson, member and officers, etc., to be public servants. The Chairperson, members, officers, servant, consultant and advisers shall be deemed to be public servants within the meaning of section 21 of the Pakistan Penal Code (Act XLV of 1860).
