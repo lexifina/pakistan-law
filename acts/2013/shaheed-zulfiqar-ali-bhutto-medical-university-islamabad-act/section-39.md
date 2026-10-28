@@ -1,0 +1,1 @@
+39. Dispute about membership of authorities.___Every question or dispute as to whether any person is entitled to be a member of any authority, or otherwise, shall be referred to a committee constituted by the Senate.

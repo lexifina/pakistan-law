@@ -1,0 +1,1 @@
+33. Recovery of dues.___The University or any person generally or especially authorized by it may apply to the Collector for recovery of any sum accrued to it under any bond and the Collector shall thereupon proceed to recover the sum due, as if it were arrears of land revenue.

@@ -1,0 +1,2 @@
+7. Teaching.__(1) All recognized teaching in various subjects, disciplines or courses shall be conducted by the University, in the manner specified under the regulations and may include lectures, tutorials, discussions, seminars, demonstrations as well as practical work in the laboratories, hospitals, workshops and community and other methods of instruction.
+(2) The courses and the curricula shall be such as may be prescribed.

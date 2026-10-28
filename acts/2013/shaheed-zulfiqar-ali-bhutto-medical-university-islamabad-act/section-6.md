@@ -1,0 +1,1 @@
+6. University open to all persons.___The University shall be open to all persons and no person shall be denied admission or privileges of the University on the basis of sex, caste, color, creed, class, race, religion or status.

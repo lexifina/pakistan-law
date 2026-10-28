@@ -1,0 +1,15 @@
+5. Jurisdiction.__(1) The University shall exercise the powers conferred on it by or under this Act within Islamabad Capital Territory in respect of such medical colleges and institutions in public or private sector as may apply to the University for exercise of its process:
+Provided that Government may, in consultation with the University, by general or special orders, modify the extent and scope of aforesaid powers of the University with regard to the territorial limits, colleges and institutions.
+(2) All medical colleges, and health institutions whether in public or private sector excluding the constituent college of a university, located within the Islamabad Capital Territory, whether affiliated with any other university, examination board or medical faculty, notwithstanding anything contained in any other law for the time being in force, shall affiliate with the university within such period and on such condition as may be prescribed.
+(3) The Faculty of Medicine, Quaid-i-Azam University shall be transferred to Shaheed Zulfiqar Ali Bhutto Medical University, and all students thereafter will be transferred in one year time.
+[^4][(3A) All the teaching posts and teaching faculty of the PIMS existing on commencement of the Shaheed Zulfiqar Ali Bhutto Medical University, Islamabad (Amendment) Act, 2018 shall, subject to their option under sub-section(3B), stand transferred to the Federal Medical and Dental College.
+(3B) The incumbents of the teaching posts to be transferred under sub-section (3A) may, within a period of not exceeding sixty days, exercise a one-time irrevocable option either to become employees of the Federal Medical and Dental College or, as the case may be, continue to be employees of the PIMS:
+Provided that___
+(a) on exercise of such option the opted terms and conditions of their service shall not be less favourable than their terms and conditions existing before exercising the option;
+(b) no person who stands transferred to the Federal Medical and Dental College by virtue of sub-section (3A) shall, notwithstanding anything contained in any law, or any other instrument, for the time being in force, be entitled to any compensation because of such transfer; and
+(c) incumbents of the teaching posts who do not exercise any option within the said sixty days shall be deemed to have opted to continue to be employees of the PIMS.]
+(4) The University may admit to its privileges, under prescribed conditions and with the consent of such university and approval of the Government, the colleges of medical and health sciences, within the territorial limits of another university, whether inside or outside Pakistan.
+(5) An increase in any fee or charge that is in excess of ten per cent per annum on an annualized basis from the last such increase may not be made except in special circumstances, and only with the approval of the Chancellor.
+(6) The University shall institute financial aid programmes for students in need on merit basis to the extent considered feasible by the Senate subject to the resources available.
+
+[^4]: Ins. by Act, 2018 (III of 2018), s.4.
