@@ -1,0 +1,8 @@
+## III-IMPORT, EXPORT AND TRANSPORT
+6. Unlicensed importation and exportation prohibited. No person shall bring or take by [^15][air, sea or land] into or out of [^16][Pakistan] any arms, ammunition or military stores except under a license and in the manner and to the extent permitted by such license.
+Importation and exportation of arms and ammunition for private use. Nothing in the first clause of this section extends to arms (other than cannon) or ammunition imported or exported in reasonable quantities for his own private use by any person lawfully entitled to possess such arms or ammunition; but the Collector of Customs or any other officer empowered by the [^17][Federal Government] in this behalf by name or in virtue of his office may at any time detain such arms or ammunition until he receives the orders of the [^17][Federal Government] thereon.
+Explanation.–Arms, ammunition and military stores taken from one part of [^16][Pakistan] to another by sea or across intervening territory not being part of [^16][Pakistan] are taken out of and brought into [^16][Pakistan] within the meaning of this section.
+
+[^15]: Subs. by the Federal Laws (Revision and Declaration) Ordinance, 1981 (27 of 1981), s. 3 and 2nd Sch., for “sea or by land”.
+[^16]: Subs. by the Central Laws (Statute Reform) Ordinance, 1960 (21 of 1960), s.3 and 2nd Sch. (with effect from the 14th October, 1955), for “the Provinces and the Capital of the Federation” which had been subs. by A. O., 1949, Arts. 3(2) and 4, for “British India.”
+[^17]: Subs. by F.A.O., 1975, Art. 2 and Table, for “Central Government” which was subs. by A. O., 1937, for “L. G.”.

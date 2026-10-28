@@ -1,0 +1,4 @@
+24. Power to confiscate. When any person is convicted of an offence punishable under this Act, committed by him in respect of any arms, ammunition or military stores, it shall be in the discretion of the convicting Court or Magistrate further to direct that the whole or any portion of such arms, ammunition or military stores, and any vessel, cart or baggage-animal used to convey the same, and any box, package or bale in which the same may have been concealed, together with the other contents of such box, package or bale, shall be confiscated.
+VII.-Miscellaneous
+25. [Search and seizure by Magistrate.] Omitted by the Federal Laws (Revision and Declaration) Ordinance, 1981 (XXVII of 1981), s. 3 and IInd Sch.
+26. [Seizure and detention by appropriate Government.] Omitted by the Federal Laws (Revision and Declaration) Ordinance, 1981 (XXVII of 1981), s. 3 and IInd Sch.
