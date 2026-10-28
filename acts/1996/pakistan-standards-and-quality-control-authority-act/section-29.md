@@ -1,0 +1,2 @@
+29. Appointment of officers, servants etc., by the Director-General in cases of urgency.— Subject to section 28, the Director-General may, in cases of urgency, appoint such officers, servants, experts or consultants and on such terms and conditions as may be recommended by a selection committee, constituted under the rules :
+Provided that every appointment made under this section shall be reported to the Board and Authority without unreasonable delay and in no case beyond six months.

@@ -1,0 +1,1 @@
+24. Protection of action taken under this Act.—No suit, prosecution or other legal proceeding shall lie against the Federal Government or the Authority or any person acting under the authority of the Federal Government or the Authority for anything which is in good faith done or intended to be done in pursuance of this Act or any rule or regulation made thereunder.
