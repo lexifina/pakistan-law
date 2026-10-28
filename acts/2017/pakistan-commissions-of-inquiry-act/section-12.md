@@ -1,0 +1,1 @@
+12. Members etc., to be public servant. Every member of the Commission and every officer appointed or authorised by the Commission to exercise functions under this Act shall be deemed to be a public servant within the meaning of section 21 of PPC.
