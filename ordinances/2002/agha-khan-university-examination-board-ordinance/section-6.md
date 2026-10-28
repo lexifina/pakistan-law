@@ -1,0 +1,1 @@
+6. Power to charge fees, etc.:___The Examination Board shall have the powers to charge fees, etc. within reasonable limits, for the provision of the examinations, or any part thereof, as may be prescribed by it.

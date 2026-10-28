@@ -1,0 +1,1 @@
+7. Efficacy of certification:___ All certification by the Examination Board shall be evidence of the successful completion by the holder thereof of the appropriate level of education and shall be accorded full credit and recognition.
