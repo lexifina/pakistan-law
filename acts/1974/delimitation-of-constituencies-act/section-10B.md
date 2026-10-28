@@ -1,0 +1,1 @@
+10B. Removal of difficulties. If any difficulty arises in giving effect to any of the provisions of this 2[Act] the President may make such provision for the removal of the difficulty as he may deem fit.].
