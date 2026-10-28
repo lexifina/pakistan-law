@@ -1,0 +1,3 @@
+36. Audit and submission of certified accounts.___ (1) The accounts of the Authority shall be audited every year by the Auditor General of Pakistan.
+(2) The accounts of the Authority certified by the Auditor General of Pakistan together with a copy of the audit report shall be sent to the Authority and the Authority shall in tum submit certified accounts and audit report together with its comments to the Secretary who shall inform the Minister.
+(3) The Board may, and if so directed by the Minister shall, cause the accounts of the Authority audited by a firm of chartered accountants for any period or transaction in the manner as may be prescribed by the rules.

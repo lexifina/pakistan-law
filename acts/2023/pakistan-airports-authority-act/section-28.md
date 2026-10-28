@@ -1,0 +1,2 @@
+28. Borrowing by the Authority.___(1) The Authority may, with the previous general or special approval of the Federal Government, borrow money from any source including by issuing bonds, debentures or such other instruments for the due discharge any of its functions and duties.
+(2) Subject to such limits as the Federal Government may impose, the Authority may borrow temporarily by way of overdraft or otherwise such amounts as it may require for the due discharge of its functions and duties.

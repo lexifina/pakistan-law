@@ -1,0 +1,1 @@
+62. Discontinuation of the use of an airport.___ The Authority shall not discontinue the use of an airport without first obtaining a written permission of the Minister except when the discontinuation is required in pursuance to an order or a direction under sections 59 or 60.

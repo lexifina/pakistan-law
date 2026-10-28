@@ -1,0 +1,4 @@
+## CHAPTER VI
+## OFFENCES AND PENALTIES
+39. Damage to airport property or facilities.___ (1) Whoever attempts at or damages an airport, or any facility or other property of the Authority, shall be punished with a simple imprisonment for a term which may extend to six months, or with fine which may extend to five hundred thousand rupees, or with both.
+(2) Whoever attempts at or damages an airport, any aid or facility for the provision of air navigation service or any other service in relation to the operation of aircrafts in a manner that it endangers, or is likely to endanger the life of any person or the safety of the aircraft, shall be punished with imprisonment of either description for a term which may extend to seven years or with fine which may extend to one million rupees, or with both.

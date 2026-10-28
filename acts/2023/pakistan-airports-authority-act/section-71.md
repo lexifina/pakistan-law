@@ -1,0 +1,2 @@
+71. Act to override other laws.___(1) The provisions of this Act shall have effect notwithstanding anything contrary contained in any other law.
+(2) Notwithstanding the provisions of sub-section (1) nothing in this Act shall affect any provision of the Pakistan Airport Security Force Act, 1975 (LXXVII of 1975) and nothing in this Act shall be construed to derogate any power, function or duty of the Airport Security Force under that Act.

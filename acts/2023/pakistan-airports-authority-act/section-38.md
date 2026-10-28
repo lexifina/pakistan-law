@@ -1,0 +1,1 @@
+38. Exemption from taxes.___ Notwithstanding anything contained in the Income Tax Act, 2001 (XLIX of 2001) or any other law relating to income tax, super tax, sales tax on services or property tax, the Authority shall be exempted from paying any such tax on its income, services, profits or gains or property.

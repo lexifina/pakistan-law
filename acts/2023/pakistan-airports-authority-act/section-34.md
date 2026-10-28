@@ -1,0 +1,5 @@
+34. Annual plan of schemes.___ (1) The Director General shall, well before the commencement of a financial year and in the manner as may be prescribed by the rules, prepare a plan of schemes to be undertaken in the next financial year in relation to one or more functions and duties of the Authority together with an estimate of sums of money required to meet the capital and revenue expenditure for their execution and place it before the Board for approval.
+(2) The [^12][Director General] shall, without unnecessary delay, submit to the Minister the plan of schemes approved by the Board for his information.
+(3) Where it appears to the Minister that the demand for the use of an airport exceeds, or is likely in the near future to exceed, the operational capacity of the airport, and as a result he considers it appropriate that, a scheme is required for building such capacity, he may direct the Director General to have the scheme prepared and submit it to the Board.
+
+[^12]: Subs. by Act No. XLII of 2026, s.13.

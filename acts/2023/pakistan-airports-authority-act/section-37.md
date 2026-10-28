@@ -1,0 +1,1 @@
+37. Liability of the Federal Government to be limited.—The liability of the Federal Government to the creditors of the Authority shall be limited to the extent of grants made by it and the loans raised by the Authority with the sanction of the Federal Government.

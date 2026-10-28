@@ -1,0 +1,2 @@
+49. Cognizance of offences by courts.___ (1) No court shall take cognizance of an offence under section 39 and 43 of this Act except upon a complaint in writing by the Director General or an officer so authorized by him.
+(2) No court shall take cognizance of an offence under section 40, 41 or 42 of this Act except upon a complaint in writing of an authorized officer of the Airport Security Force, airport manager or as the case may be lawfully authorized person before whom a person refuses to submit for inspection.

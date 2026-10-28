@@ -1,0 +1,1 @@
+56. Act X of 2012 not to apply to the Authority. ___ The Industrial Relations Act, 2012 (Act X of 2012) or any other law related to industrial relations, shall not apply to or in relation, to the Authority or any officer, servant, expert or other person in the service of the Authority.

@@ -1,0 +1,1 @@
+26. Recovery of sums due to Authority.___ In addition to such other means as may be prescribed by the rules, the Collector of the district shall, on an application of an authorized officer, recover any sum due to the Authority as fine, fee, charge, rent or on any other account under this Act and any arrear of such fine, fee, charges, rent or account as arrears of land revenue.

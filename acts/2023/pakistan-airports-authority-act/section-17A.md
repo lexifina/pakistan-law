@@ -1,0 +1,10 @@
+[^9][17A. Conflict of interest regarding officers. ___ (l) For so long as he holds office and for a period of two years thereafter, the Director General and every officer of the Authority shall not ___
+(a) own, or be a shareholder, director, partner or an employee of any aviation undertaking, business or contractor of the Authority;
+(b) have any direct or indirect pecuniary or other benefit, share or interest in or be engaged in an aviation undertaking, business or contractor of the Authority; and
+(c) receive any direct or indirect pecuniary or other benefit, share or interest in the manufacture or distribution of expensive equipment being or is likely to be procured by the Authority.
+(2) In case an officer has served less than three years, after service prohibition under sub-section (l) shall be for one year only.
+(3) Whenever it comes to the notice of the Director General or any other officer that in relation to any matter being decided by the Authority, he has professionally acted on behalf of any person having any share or interest in that matter, or any of his immediate relatives, or his employer or employee would receive or have a reasonable expectation of receiving, a direct or indirect pecuniary or other benefit, share or interest or would suffer or have a reasonable expectation of suffering, a direct or indirect pecuniary or some other detriment, he shall, in case of the Director General, immediately inform the Secretary or, in case of any other officer, the Director General and abstain from taking part in the decision.
+(4) If a former Director General or other officer of the Authority wants relaxation of any of the prohibition contained in sub-section (l) or sub-section (2), he may, by swearing an affidavit of absence of conflict of interest, apply to the Secretary for such relaxation.
+(5) If no conflict of interest is found after scrutiny of the last two years’ service in the Authority by the applicant, the Secretary, for reasons to be recorded in writing, may grant the relaxation under sub-section (4).]
+
+[^9]: Ins. by Act No. XLII of 2026, s.9.

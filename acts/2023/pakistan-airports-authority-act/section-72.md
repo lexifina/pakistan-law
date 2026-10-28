@@ -1,0 +1,2 @@
+72. Repeal and savings.___ (1) On the commencement of this Act and the Pakistan Civil Aviation Act, 2023, the Civil Aviation Ordinance, 1960 (XXXII of 1960) and the Pakistan Civil Aviation Authority Ordinance, 1982 (XXX of 1982) shall be repealed.
+(2) Notwithstanding the repeal of the said Ordinances, anything done or any action taken or purported to have been done or taken under any of these Ordinance shall, in so far as it is not inconsistent with the provisions of this Act, be deemed to have been done or taken under the Act.
