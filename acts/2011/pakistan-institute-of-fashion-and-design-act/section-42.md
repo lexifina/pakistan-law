@@ -1,0 +1,1 @@
+42. Act to override other instruments, etc.⎯ The provisions of this Act shall have effect not with standing anything contained in any instrument, resolution or certificate of incorporation of the Institute.

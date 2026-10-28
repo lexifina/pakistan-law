@@ -1,0 +1,3 @@
+40. Transfer of assets and liabilities, etc. Upon the commencement of this Act, ⎯
+(a) everything done, action taken, obligations and liabilities incurred, persons appointed or authorized, fellowships or scholarships instituted and orders issued by the Institute prior to commencement of this Act shall be continued and, so far as may be, deemed to have been respectively done, taken, incurred, appointed or authorized, instituted or issued by the Institute; and
+(b) all the money and properties held by the Institute immediately before such commencement shall stand transferred to, and vest in, the reconstituted Institute.
