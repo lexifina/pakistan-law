@@ -1,0 +1,3 @@
+52. Omitted by Finance Ordinance, 2002 105 53. Exemptions and tax concessions in the Second Schedule 106 53A. Rationalization of rates of withholding taxes in the nature of 107 minimum tax. 54. Exemptions and tax provisions in other laws 108 55. Limitation of exemption 108
+PART VIII LOSSES
+56. Set off of losses 109 56A. Set off of losses of companies operating hotels. 109 57. Carry forward of business losses 109 57A. Set off of business loss consequent to amalgamation 111 58. Carry forward of speculation business losses 112 59. Carry forward of capital losses 112 59A. Limitations on set off and carry forward of losses 113

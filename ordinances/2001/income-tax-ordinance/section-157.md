@@ -1,0 +1,3 @@
+157. Omitted by the Finance Ordinance, 2002 341 158. Time of deduction of tax 341
+Division IV General Provisions Relating to the Advance Payment of Tax or the Deduction of Tax at Source
+159. Exemption or lower rate certificate 343 160. Payment of tax collected or deducted 345 161. Failure to pay tax collected or deducted 345 162. Recovery of tax from the person from whom tax was not 347 collected or deducted 163. Recovery of amounts payable under this Division 347 164. Certificate of collection or deduction of tax 347 164A. Settlement of transactions liable to Withholding Tax by SWAPS 348 agents 165. Statements 348 165A. Furnishing of information by banks 352

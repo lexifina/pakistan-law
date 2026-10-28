@@ -1,0 +1,1 @@
+4AB. Subject to this Ordinance, a surcharge payable 34 4B. Super tax for rehabilitation of temporary displaced persons. 34 4C. Super tax on high earning persons. 35 5. Tax on dividends 36 5A. Tax on undistributed Profits. 37
