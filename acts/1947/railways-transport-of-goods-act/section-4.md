@@ -1,0 +1,1 @@
+4. Directions to be complied with. Notwithstanding anything to the contrary contained in the Railways Act, 1890 (IX of 1890), every railway administration shall be bound to comply with any direction given to it under section 3.
