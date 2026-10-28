@@ -1,0 +1,4 @@
+23. General provisions on reviews and refund.—(1) The provisions of sections 11 and 12, excluding those relating to time limits, shall mutatis mutandis apply to any review carried out pursuant to sections 19, 20 and 21.
+(2) Any review pursuant to sections 19, 20 or 21 shall be carried out by the Commission expeditiously and shall normally be concluded within twelve months of the date of initiation of the review.
+(3) Where a review pursuant to section 20 is in progress at the end of the period of application of a measure as defined in section 19, the measure shall also be investigated under the provisions of section 19.
+(4) In any review or refund investigation carried out pursuant to sections 19 to 22, the Commission shall, provided that circumstances have not changed, apply the same methodology as in an investigation which led to the duty, with due account being taken of sections 7, 8 and 27.
