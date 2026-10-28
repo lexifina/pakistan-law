@@ -1,0 +1,4 @@
+4. Continuance of existing decorations and their Warrants of Institution and
+statutes.__ (1) All the decorations enumerated in the Schedule and the Warrants of institution and statutes, rules, regulations and instructions pertaining thereto, which were in force immediately before the commencement of this Act, shall continue to be in force until altered, repealed or amended by the President.
+(2) The President may, by order, amend the Schedule so as to include therein or exclude therefrom any decoration.
+(3) Notwithstanding anything contained in sub-section (1), the President may, at any time, withdraw, forfeit or annul any decoration awarded to, or conferred on, any person, and upon such withdrawal, forfeiture or annulment of any decoration, the person concerned shall cease to have any right or privilege appertaining thereto; but the President may restore any such decoration after its withdrawal, forfeiture or annulment.
