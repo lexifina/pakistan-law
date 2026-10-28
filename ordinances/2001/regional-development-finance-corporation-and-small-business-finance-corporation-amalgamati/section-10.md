@@ -1,0 +1,1 @@
+10. Indemnity.___ No suit, prosecution of other legal proceedings shall lie against the Federal Government, the R.D.F.C., the S. B. F. C. the company or any other person for anything which is in good faith hone or intended to be done under this Ordinance or any rule or order made thereunder.
