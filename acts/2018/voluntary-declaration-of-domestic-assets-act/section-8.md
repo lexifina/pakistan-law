@@ -1,0 +1,2 @@
+8. Payment of tax.— (1) The due date for payment of the tax chargeable under section 7 shall be the date on which declaration is made under section 6.
+(2) No tax shall be payable by the declarant under any law for the time being in force including the Income Tax Ordinance, 2001 (XLIX of 2001) declared where tax has been paid under sub-section (1) in respect of the undisclosed income and domestic assets declared under section 5.
