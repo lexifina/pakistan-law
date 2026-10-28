@@ -1,0 +1,1 @@
+20. Decisions which have become final not to be reopened. The Controller shall summarily reject any application under sub-section (2) or sub-sections (4) of sections 17 which raises substantially the same issue as has been finally decided in any former proceedings under this Ordinance unless new grounds or circumstances have arisen after the final decision in such proceedings.

@@ -1,0 +1,3 @@
+22. Transfer of case. On the application of any of the parties and after notice to the parties and after hearing such of them as desire to be heard, or of its own motion, without such notice—
+(a) the District Judge may at any stage withdraw any application pending with a Controller subordinate to him and transfer the same for disposal to any other Controller subordinate to him and competent to try or dispose of the same; and
+(b) the High Court may at any stage withdraw any appeal pending with any District Judge and transfer the same for disposal to any other District Judge subordinate to it and competent to try or dispose of the same.

@@ -1,0 +1,1 @@
+4. Ordinance to override other Laws. The provisions of this Ordinance shall have effect notwithstanding anything contained in any other law for the time being in force, or in any instrument or document.

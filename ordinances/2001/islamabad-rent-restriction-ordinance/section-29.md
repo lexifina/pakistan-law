@@ -1,0 +1,1 @@
+29. Indemnity. No suit or other legal proceedings shall lie against the Federal Government or the Controller or any authority or person in respect of any thing which is in good faith done or intended to be done under this Ordinance.

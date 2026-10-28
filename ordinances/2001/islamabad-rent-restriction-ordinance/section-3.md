@@ -1,0 +1,2 @@
+3. Power to exempt. The Federal Government may, by notification in the official Gazette, direct that all or any of the provisions of this Ordinance shall not apply to such building or buildings as are, or may be, used as Government offices:
+Provided that such exemption shall not extend beyond the period of five years from the date of completion of construction of such building as certified by the Authority.

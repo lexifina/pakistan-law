@@ -1,0 +1,3 @@
+6. Tenure of tenancy. Subject to the provisions of section 17, no tenancy shall be valid beyond such period as the landlord and tenant may, by mutual agreement, fix before or after the commencement of the tenancy:
+Provided that a tenancy in force before the commencement of this Ordinance for which no period is fixed shall cease to be valid on the expiration of a period of two years from such commencement:
+Provided further that a tenancy which comes into force after the commencement of this Ordinance and for which no period is fixed shall not be valid after expiration of period of six months from the date of the receipt by the tenant of a notice in writing given by the landlord terminating the tenancy.

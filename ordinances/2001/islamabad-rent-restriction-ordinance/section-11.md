@@ -1,0 +1,1 @@
+11. Landlord not to claim in excess of fair rent. The landlord shall not claim or receive any premium or other like sum in addition to fair rent or any rent in excess of such fair rent and any agreement for payment of any sum in addition to rent in excess of such fair rent shall be void.
