@@ -1,0 +1,7 @@
+18. Fund raising and public solicitation.—(1) Any charity registered under this Act shall have the authority to indulge into fund-raising activities and seek public solicitation, both local and foreign.
+(2) Any charity registered under this Act and undergoing an activity to collect funds shall ensure that—
+(a) purposes of solicitations for donations have accurately and transparently been conveyed to donors for which donations are being collected;
+(b) the projects have actually been carried out for which funds were collected; and
+(c) the beneficiaries are real and that the intended beneficiaries are the ones for whom funds were actually received.
+(3) Any person or group of persons, whether the office bearer, employee or a third party, found involved in collection of funds or public solicitation for or on behalf of an unregistered, illegal or proscribed entity, shall be liable to punishment of one year imprisonment or fine of two million Rupees or both.
+(4) No individual, organization, society, charity, trust, non-governmental organization (NGO) or non-profit organization (NPO), etc. shall collect or raise funds or donations for charitable purposes as mentioned in Schedule-I from public through any campaign using mass media including electronic, social, digital or print media or through banners, placards, hoardings, public gathering etc. until such society, charity, NGO or NPO etc. is registered under this Act and any violation of this provision shall attract prosecution for the offences as mentioned in Schedule-II.
