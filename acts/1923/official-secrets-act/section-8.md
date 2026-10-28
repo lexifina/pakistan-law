@@ -1,0 +1,5 @@
+8. Duty of giving information as to commission of offences.(1) It shall be the duty of every person to give on demand to a Superintendent of Police, or other police officer not below the rank of Inspector, empowered by an Inspector-General [^42][* * *] in this behalf, or to any member of [^41][the armed forces of Pakistan] engaged on guard, sentry, patrol or other similar duty, any information in his power relating to an offence or suspected offence under section 3 or under section 3 read with section 9 and, if so required, and upon tender of his reasonable expenses, to attend at such reasonable time and place as may be specified for the purpose of furnishing such information.
+(2) If any person fails to give any such information or to attend as aforesaid, he shall be punishable with imprisonment which may extend to two years, or with fine, or with both.
+
+[^41]: Subs. by A.O., 1961, Art. 2 and Sch. for “His Majesty’s forces” (with effect from the 23rd March, 1956).
+[^42]: The words “or Commissioner of Police” omitted by A.O., 1949.

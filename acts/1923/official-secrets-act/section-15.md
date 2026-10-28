@@ -1,0 +1,1 @@
+15. Offences by companies, etc. Where the person guilty of an offence under this Act is a company or corporation, every director and officer of the company or corporation with whose knowledge and consent the offence was committed shall be guilty of the like offence.
