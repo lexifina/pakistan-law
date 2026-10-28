@@ -1,0 +1,1 @@
+40. Winding up of the Authority.__ No provision of any law relating to the winding up of bodies corporate shall apply to the Authority. The Authority shall only be wound up by an Ordinance or Act of Parliament.

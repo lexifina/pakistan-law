@@ -1,0 +1,2 @@
+34. Technical standards, etc.__ (1) The Authority shall after consulting interested persons and subject to the rules, prescribe by regulations, technical standards of materials, equipment and other resources as may be required for undertaking any of the regulated activities and may prescribe different standards for different classes of equipment and may establish procedures for the testing of any such equipment.
+(2) It shall be a mandatory requirement of all licensees that they comply with all relevant technical standards established by the Authority.

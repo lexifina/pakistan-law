@@ -1,0 +1,3 @@
+[^10][43B. Sale price of RLNG.—Notwithstanding anything to the contrary contained in this Ordinance or any other law for the time being in force, the Authority, in accordance with the policy guidelines issued by the Federal Government from time to time, shall determine and notify the sale price of RLNG to be charged by a licensee from its consumer.]
+
+[^10]: Ins. by Act No. VIII of 2022, s. 5 *The provisions of sub-section (3)(a) of section 44 in respect of sub-section 3(b)(iii) of said section of the Ordinance shall come into force from 15th March, 2003 (for further reference pls see S.R.O 261(I)/2003 dated 15-03-2003).

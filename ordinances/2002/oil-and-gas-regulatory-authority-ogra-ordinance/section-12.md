@@ -1,0 +1,11 @@
+12. Appeal, etc.__ (1) Any person aggrieved by any order or decision of the delegatees of a power delegated by the Authority under section 10 may, within thirty days of the receipt of such decision or order, prefer appeal to the Authority and Authority shall hear and decide the appeal within ninety days from the date of its presentation.
+(2) In relation to any decision concerning a regulated activity, the High Court may, if it is satisfied that no other adequate remedy is provided, on application of an aggrieved party, make an order__
+(a) directing the Authority to refrain from doing anything it is not permitted by law to do, or to do anything the Authority is required by law to do; or
+(b) declaring that any act done or proceeding taken by the Authority has been done or taken without lawful authority and is of no legal effect
+(3) Where__
+(a) an application is made to a High Court for an order under sub­section (2); and
+(b) the making of an interim order would have the effect of prejudicing or interfering with the carrying out of a public work or of otherwise being harmful to public interest or State property or impeding the assessment or collection of public revenues, the Court shall not make an interim order unless the Attorney-General has been given notice of the application with a copy thereof to the Authority and the Attorney General or any person authorised by him in that behalf has had an opportunity of being heard and the Court, for reasons to be recorded in writing, is satisfied that the interim order—
+(i) would not have such effect as aforesaid; or
+(ii) would have the effect of suspending an order or proceeding which on the face of the record is without jurisdiction.
+(4) An interim order made by a High Court on an application made to it to question the validity or legal effect of any order, proceeding taken or act done by the Authority shall cease to have effect on expiration of a period of six months following the day on which it is made, unless the case is finally decided, or the interim order is withdrawn, by the Court earlier.
+(5) Every case in which, on application under sub-section (2), the High Court has made an interim order shall be disposed of by the High Court on merits within six months from the day on which it is made, unless the High Court is prevented from doing so for sufficient cause to be recorded.

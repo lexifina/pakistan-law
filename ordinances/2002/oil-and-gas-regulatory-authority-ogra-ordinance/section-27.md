@@ -1,0 +1,1 @@
+27. Recovery of the value of petroleum stolen, etc.__ Where any person has stolen, unauthorisedly obtained or otherwise used, petroleum for which he has not paid, such person shall be liable to pay the value of the petroleum stolen, obtained or used as may be determined in accordance with the rules.

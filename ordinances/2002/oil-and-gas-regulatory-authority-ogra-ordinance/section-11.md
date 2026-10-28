@@ -1,0 +1,2 @@
+11. Complaints.__ (1) Any interested person may file a written complaint with the Authority against a licensee for contravention of any provision of this Ordinance or of any rule or regulation.
+(2) The Authority shall, on receipt of a complaint, provide an opportunity to the complainant as well as to the licensee, or any other person against whom such complaint has been made to state its case before taking action thereon.
