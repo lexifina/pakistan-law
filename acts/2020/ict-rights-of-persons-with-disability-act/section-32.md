@@ -1,0 +1,2 @@
+32. Special disability courts.—(1) For speedy justice, the government may designate and may encourage provincial governments to designate, courts to hear cases under this Act or other laws in which one or more parties are persons with disabilities.
+(2) There shall be an effective institutionalized mechanism to monitor cases in courts under sub-section (1) by appropriate judicial forums as devised by the respective High Court.

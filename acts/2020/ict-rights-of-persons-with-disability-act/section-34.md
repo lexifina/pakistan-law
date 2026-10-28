@@ -1,0 +1,1 @@
+34. Power to make regulation.— The Council may, by notification in the official Gazette, make regulations for its own efficient and professional working and for effective achievement of objectives of this Act.

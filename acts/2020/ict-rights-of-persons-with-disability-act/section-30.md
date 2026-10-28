@@ -1,0 +1,3 @@
+30. Rehabilitation.—(1) The government shall take all possible measures to ensure that persons with disabilities attain maximum independence and ability to participate in activities of life including getting education, doing business, getting employed and participating in sports and cultural activities.
+(2) The government shall promote continuing skill development and training in existing advance skills and technologies to persons with disabilities for effective participation and integration in the community.
+(3) The government shall undertake initiatives to promote, support and implement community based rehabilitation and research initiatives of its own.

@@ -1,0 +1,2 @@
+33. Power to make rules.—(1) The Council may, in consultation with the Federal Government and by notification in the official Gazette, make rules to carry out purposes of this Act.
+(2) The rules made under the Disabled Persons (Employment and Rehabilitation) Ordinance, 1981(XL of 1981) so far as they are not inconsistent with the provisions of this Act shall continue to be in force until altered, amended or repealed.

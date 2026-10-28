@@ -1,0 +1,1 @@
+25. Establishment to pay to the Fund.—An establishment which does not employ a person with disability as required by section 24 shall pay into the Fund each month the sum of money it would have paid as salary or wages to a disabled person had he been employed.
