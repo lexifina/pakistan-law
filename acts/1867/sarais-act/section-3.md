@@ -1,0 +1,2 @@
+3. Notice of this Act to be given to keepers of sarais. Within six months after this Act shall come into operation, the Magistrate of the District in which any sarai to which this Act shall apply may be situate shall, and from time to time thereafter such Magistrate may, give to the keeper of every such sarai notice in writing of this Act, by leaving such notice for the keeper at the sarai; and shall by such notice require the keeper to register the sarai as by this Act provided.
+Such notice may be in the form in the Schedule to this Act annexed or to the like effect.
