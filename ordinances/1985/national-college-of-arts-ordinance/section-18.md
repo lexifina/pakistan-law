@@ -1,0 +1,3 @@
+18. Audit and accounts. ___(1) The accounts of the College shall be maintained in the prescribed form and manner and shall be audited annually by an auditor appointed by the Accountant General, Pakistan Revenue.
+(2) No expenditure shall be made from the funds of the College unless a bill for its payment has been audited by the Audit Officer of the College in accordance with the rules made under this Ordinance.
+(3) The College shall furnish to the Federal Government each year a report on annual audited accounts, a report on the activities of the College during the preceding year and such information relating to its activities as may be asked for by the Federal Government.

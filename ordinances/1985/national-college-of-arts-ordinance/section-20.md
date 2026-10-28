@@ -1,0 +1,1 @@
+20. Removal of difficulties. ___If any difficulty arises in giving effect to any of the provisions of this Ordinance, the Controlling Authority may, on the recommendations of the Board, give such directions, not inconsistent with the said provisions, as it may consider necessary for the removal of such difficulty.
