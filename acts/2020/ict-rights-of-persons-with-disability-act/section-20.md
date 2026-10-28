@@ -1,0 +1,5 @@
+20. Protection of persons with disabilities in risk and disaster situation.—(1) All persons with disabilities shall be given top priority in providing suitable protection and safety in situations of risk and natural disaster and shall immediately be removed from such areas and moved to a safe place on priority.
+(2) In situations of armed conflict, the police, civil armed forces and the armed forces shall take appropriate measures on priority to ensure safety, protection and removal of such persons.
+(3) All authorities engaged in reconstruction activity subsequent to any situation of armed conflict, humanitarian emergencies or natural disaster shall ensure that persons with disabilities are accorded priority in reconstructing their institutions, homes and other facilities and restoring services.
+(4) The Council shall keep a close coordination with the disaster management authorities for protection and removal to safety and keep record of such persons caught in such situation and ensure early rehabilitation.
+(5) Needs and concerns of persons with disabilities should be included in disaster risk reduction.

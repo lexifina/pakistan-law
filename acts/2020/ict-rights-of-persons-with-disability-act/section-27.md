@@ -1,0 +1,2 @@
+27. Governmental authorities and other persons to assist the Council.—(1) All the functionaries of the government shall extend full and effective cooperation to the Council in ensuring the enforcement of this Act and other laws for protecting the rights of the persons with disabilities.
+(2) Any person in the governmental position not effectively cooperating with the Council shall be deemed to have committed misconduct and shall be proceeded against accordingly.

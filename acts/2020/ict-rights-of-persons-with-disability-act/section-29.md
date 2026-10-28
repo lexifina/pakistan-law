@@ -1,0 +1,3 @@
+29. Creating public awareness.—(1) The Council shall take immediate, appropriate and result oriented measures to raise awareness amongst the society as whole with regards to recognition and respect for persons with disabilities and their rights.
+(2) The Council shall recommend to the Federal and Provincial Governments measures to include topics on disability in educational curriculum and to create awareness among young students about persons with disabilities.
+(3) The government shall include topics on addressing problems of persons with disabilities in training programs of institutions responsible for imparting trainings to officers and officials of the government, including judges and court officials.

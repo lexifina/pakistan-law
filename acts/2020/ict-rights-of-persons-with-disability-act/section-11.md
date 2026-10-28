@@ -1,0 +1,6 @@
+11. Equity in health and medical rehabilitation services.—(1) The government shall ensure barrier free access to necessary public health services and infrastructure to persons with disabilities without any discrimination and without any cost to such persons.
+(2) The Council shall devise plans to provide special health insurance to persons with disabilities to ensure free medical coverage to such persons.
+(3) The government shall encourage private sector health services providers through appropriate incentives to provide quality services to persons with disabilities at affordable rates or free.
+(4) Special health service for early identification and intervention of disabilities and medical services especially designed to prevent disability shall be implemented.
+(5) The government shall initiate with the help of medical and scientific community, research to identify causes of various disabilities and make efforts to create awareness in public to adopt practices that help prevent disabilities from happening.
+(6) The government shall in respect of person with disabilities undertake initiatives to promote support and implement community based rehabilitation and research initiatives at the community level.
