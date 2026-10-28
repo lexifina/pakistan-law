@@ -1,0 +1,1 @@
+11. Destruction, etc. of books and records prohibited. ___No person shall willfully conceal, destroy, obliterate or mutilate, or attempt to conceal, destroy, obliterate or mutilate, or cause to be concealed, destroyed, obliterated or mutilated, any books or records of any foreign cultural association required to be kept under this Act.

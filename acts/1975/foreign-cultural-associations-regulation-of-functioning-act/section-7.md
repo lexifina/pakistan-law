@@ -1,0 +1,1 @@
+7. Government servant not to become member of a foreign cultural association.___ Without prejudice to the provisions of any law for the time being in force no person in the service of the Federal Government or a Provincial Government shall, without the prior permission in writing of such Government, become a member or office-bearer of any foreign cultural association.

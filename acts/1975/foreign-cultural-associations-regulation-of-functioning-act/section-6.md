@@ -1,0 +1,1 @@
+6. Consequences of dissolution.___Where any foreign cultural association is dissolved, the association or any of its members shall not engage itself or himself in any activities other than such as may be necessary for the winding up of its affairs.

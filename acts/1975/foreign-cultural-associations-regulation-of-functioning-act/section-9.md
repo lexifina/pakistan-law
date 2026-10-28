@@ -1,0 +1,1 @@
+9. Acceptance of foreign assistance. ___No foreign cultural association shall, without the previous permission in writing of the Federal Government accept any assistance or aid, in any form whatever, from the government or any other authority, body or organization of a foreign country or from a national thereof.
