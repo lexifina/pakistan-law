@@ -1,0 +1,3 @@
+9. Audit and account.—(1) The National Board and the Provincial Boards shall maintain their accounts of receipts and expenditure in such manner as may be prescribed by the Auditor­General.
+(2) The accounts of the National Board and the Provincial Boards shall be audited by the Auditor­General or any officer authorised by him in such manner as the Auditor­General may think fit.
+(3) The Auditor­General shall, as soon as possible after completion of the audit, send to the National Board or the Provincial Board a report on the said accounts and the Board shall, with its comments thereon, forward it to the Federal Government or the Provincial Government, as the case may be.

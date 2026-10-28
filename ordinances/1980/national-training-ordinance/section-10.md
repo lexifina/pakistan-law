@@ -1,0 +1,1 @@
+10.Servants of the Boards, etc., to be public servants. Every servant of the National Board and the Provincial Boards and every person acting or purporting to act under this Ordinance shall be deemed to be a public servant within the meaning of section 21 of the Pakistan Penal Code (Act XLV of 1860).
