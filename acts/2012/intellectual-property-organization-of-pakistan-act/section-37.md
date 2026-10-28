@@ -1,0 +1,1 @@
+37. Authorities to assist and aid the Organization.—All concerned law enforcement agencies and authorities in the Federation and the Provinces shall be under an obligation to provide and render full and complete assistance to the Organization as the Chairman or Director-General may deem fit and proper to demand or require for carrying out the purposes of this Act.

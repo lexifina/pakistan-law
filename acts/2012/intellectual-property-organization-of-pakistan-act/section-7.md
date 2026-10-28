@@ -1,0 +1,1 @@
+7. Delegation of powers.—The Board may, by general or special order in writing subject to such limitations, restrictions or conditions, delegate all or any of its powers and functions to the Chairman.

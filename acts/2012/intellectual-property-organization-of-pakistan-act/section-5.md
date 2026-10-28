@@ -1,0 +1,1 @@
+5. Powers of the Federal Government.—Notwithstanding anything contained in this section the Federal Government may, by notification in the official Gazette, increase or decrease the number of Members of the Board and issue directions to the Organization.
