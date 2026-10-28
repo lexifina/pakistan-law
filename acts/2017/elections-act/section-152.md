@@ -1,0 +1,1 @@
+152. Advocate-General to assist the Election Tribunal.—The Advocate-General for a Province shall, if an Election Tribunal requires, assist the Tribunal at the hearing of an election petition in such manner as it may require.

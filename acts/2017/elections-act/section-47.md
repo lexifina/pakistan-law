@@ -1,0 +1,3 @@
+47. Special measures for enrolment of women voters.— (1) The Commission shall annually publish disaggregated data of registered men and women voters in each National Assembly and Provincial Assembly constituency highlighting the difference in number of registered men and women voters.
+(2) Where the variation in the disaggregated data under sub-section (1) is more than ten percent in a constituency, the Commission shall take special measures to reduce such variation.
+(3) The measures referred to in sub-section (2) shall include action to expedite the issuance of National Identity Cards for women of such constituency by National Database and Registration Authority and for their enrolment as voters in the relevant electoral rolls by the Commission.

@@ -1,0 +1,2 @@
+205. Suspension or expulsion of a member.—(1) A member of a political party may be suspended or expelled from the political party’s membership in accordance with the procedure provided in the constitution of the political party.
+(2) Before making an order for suspension or expulsion of a member from the political party, such member shall be provided with a reasonable opportunity of being heard and of showing cause against the action proposed.

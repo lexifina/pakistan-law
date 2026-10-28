@@ -1,0 +1,1 @@
+46. Validity of electoral rolls not affected by any mistake.— An electoral roll shall not be invalid by reason of any mis-description of a person enrolled thereon or of omission of the name of any person entitled to be so enrolled or of inclusion of the name of any person not so entitled.

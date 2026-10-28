@@ -1,0 +1,1 @@
+89. Voting after close of poll.— The Presiding Officer shall not issue any ballot paper or permit any person to vote after the hour fixed for the close of the poll except the persons who at that hour are present within the building, room, tent or enclosure in which the polling station is situated and have not voted but are waiting to vote.

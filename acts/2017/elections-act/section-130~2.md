@@ -1,0 +1,5 @@
+130. Drawing of lots.— (1) For the purpose of dividing the Members into two groups, the Commission shall draw lots in the prescribed manner and in the presence of such Members or persons authorized by them in writing as may be present, after notifying in the official Gazette the time and place of drawing of lots.
+(2) The term of office of each Member determined under sub-section (1) shall be notified by the Commission in the official Gazette.
+(3) If the election of a Member whose term of office is determined under sub-section (1) is declared void and another candidate is declared elected in his place, the term of such candidate shall be the unexpired term of such member.
+(4) If the election of all the Members is declared void, the Members elected in their place shall be divided into two groups and the term of their office shall be determined and notified in the manner specified in sub-sections (1) and (2):
+Provided that the term of office of the Members so elected shall be the unexpired term of the Members of the respective groups.

@@ -1,0 +1,3 @@
+48. Enrolment of non-Muslims etc.— (1) The Commission shall take special measures for registration of non-Muslims, persons with disabilities and transgender citizens in the electoral rolls as voters.
+(2) The measures under sub-section (1) shall include coordinated action with the National Database and Registration Authority to expedite the issuance of National Identity Cards for non- Muslims, persons with disabilities and transgender citizens.
+(3) No activity undertaken in connection with an election by the Commission or National Database and Registration Authority, as the case may be, shall be delayed, postponed or otherwise affected in any manner whatsoever merely on the ground of any measure being taken under this section or section 47.

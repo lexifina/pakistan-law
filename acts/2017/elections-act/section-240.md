@@ -1,0 +1,2 @@
+240. Removal of difficulties.—(1) If any difficulty arises in giving effect to any of the provisions of this Act, the Commission may, with the approval of the President, make such provision for the removal of the difficulty as it may deem fit and any such order shall be published on the website of the Commission.
+(2) Every provision made under sub-section (1) shall be laid, may be after it is made, before each House of Majlis-e-Shoora (Parliament).

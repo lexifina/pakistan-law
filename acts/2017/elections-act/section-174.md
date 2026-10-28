@@ -1,0 +1,1 @@
+174. Penalty for corrupt practice.—Any person guilty of the offence of corrupt practice shall be punished with imprisonment for a term which may extend to three years or with fine which may extend to one hundred thousand rupees or with both.

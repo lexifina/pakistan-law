@@ -1,0 +1,2 @@
+197. Court to report convictions to the Commission.—(1) A Court convicting any person for an offence punishable under this Chapter, other than corrupt practice, shall send a report to the Commission of such conviction together with its recommendations, if any, considering the special circumstances of any case, for the mitigation or remission of any disqualification incurred by such person under this Act.
+(2) The Commission shall publish the report received under sub-section (1) on its website.

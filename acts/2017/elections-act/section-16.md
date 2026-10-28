@@ -1,0 +1,3 @@
+16. Commission to submit an annual report.— (1) The Commission shall, within ninety days after the end of every calendar year, publish a report of its activities for the year and send the report to the Federal Government and each Provincial Government.
+(2) The Federal Government and each Provincial Government shall, within sixty days from the receipt of the annual report from the Commission, lay the annual report in each House of Majlis-e- Shoora (Parliament) and each Provincial Assembly.
+(3) Immediately after the annual report is laid in any House of Majlis-e-Shoora (Parliament), the Commission shall publish the annual report on its website.

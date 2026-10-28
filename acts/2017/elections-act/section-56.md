@@ -1,0 +1,1 @@
+56. Oath by election officials.— An election official shall, before the commencement of his election duty, make an oath, in such form and manner as may be prescribed, that he shall act strictly in accordance with the provisions of this Act, Rules and directions of the Commission.

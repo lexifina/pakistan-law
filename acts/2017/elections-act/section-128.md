@@ -1,0 +1,1 @@
+128. Extension of time for completion of election.—The Commission may, for reasons which it considers sufficient, extend the time for completion of an election to the Senate by making necessary amendments in the notification issued under section 107.

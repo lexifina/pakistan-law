@@ -1,0 +1,3 @@
+236. Jurisdiction of courts barred.—(1) No court shall question the legality of any action taken in good faith by or under the authority of the Commission, the Commissioner or an election official or any decision given by any of them or any other officer or authority appointed under this Act or the Rules.
+(2) No court shall question the validity of the electoral rolls prepared or revised under this Act or the legality or propriety of any proceedings or action taken by or under the authority of the Commission or a Registration Officer.
+(3) The validity of the delimitation of any constituency or of any proceedings taken or anything done by or under the authority of the Commission, under this Act shall not be called in question in any court.

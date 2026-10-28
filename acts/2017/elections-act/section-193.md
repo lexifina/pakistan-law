@@ -1,0 +1,3 @@
+193. Certain offences triable by authorized officers.—Notwithstanding anything contained in the Code, an officer exercising the powers of a civil or criminal court, or an officer of the Armed Forces, or an officer performing a duty in connection with an election, who is authorized by the Commission in this behalf may—
+(a) exercise the powers of a Magistrate of the first class under the Code in respect of the offences of personation, or capturing of polling station or polling booth punishable under section 174; and
+(b) take cognizance of any such offence under section 190 of the Code; and shall try it summarily under Chapter XX of the Code.

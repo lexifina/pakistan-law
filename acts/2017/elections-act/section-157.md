@@ -1,0 +1,4 @@
+157. Ground for declaring a person other than a returned candidate elected.—The Election Tribunal shall declare the election of the returned candidate to be void and the petitioner or any other contesting candidate to have been elected, if it is claimed by the petitioner or any of the respondents, and the Tribunal is satisfied that—
+(a) the petitioner or other contesting candidate obtained more votes than the returned candidate; or
+(b) the voters deliberately threw away their votes in favour of the returned candidate fully knowing that the returned candidate was not, on the nomination day, qualified for, or was disqualified from, being elected as a Member.
+Explanation.—The Election Tribunal shall presume, unless the contrary is proved, that the voters have not deliberately thrown away their votes and were not aware of lack of qualification or disqualification of the returned candidate.

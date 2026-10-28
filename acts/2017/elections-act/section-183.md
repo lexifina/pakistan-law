@@ -1,0 +1,1 @@
+183. Penalty for illegal practice.—A person guilty of the offence of illegal practice shall be punishable with imprisonment for a term which may extend to two years or with fine which may extend to one hundred thousand rupees or with both.

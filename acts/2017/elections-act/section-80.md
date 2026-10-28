@@ -1,0 +1,1 @@
+80. Supply of ballot papers.— The Commission shall provide the Returning Officer of a constituency with requisite number of ballot papers as determined under section 71 in the manner as may be prescribed.

@@ -1,0 +1,1 @@
+181. Prohibition of announcement of development schemes.—No Government functionary or elected representative including a local government functionary or elected representative, shall announce any development scheme for a constituency after the announcement of the Election Programme of that constituency.

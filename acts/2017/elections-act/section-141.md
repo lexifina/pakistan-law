@@ -1,0 +1,2 @@
+141. Powers of the Election Tribunal.—(1) The Election Tribunal shall have all the powers of a civil court trying a suit under the Code of Civil Procedure, 1908 (Act V of 1908), and shall be deemed to be a civil court within the meaning of sections 476, 480 and 482 of the Code.
+(2) For the purpose of enforcing attendance of witnesses, the local limits of the jurisdiction of the Election Tribunal shall be the territories to which this Act extends.

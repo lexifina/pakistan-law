@@ -1,0 +1,2 @@
+69. One day poll.—(1) The Commission shall hold polls for a general election for an Assembly on the same day and may simultaneously hold the polls for National Assembly seats and the Provincial Assembly seats.
+(2) If the Commission is satisfied that polls cannot take place in a constituency on account of a natural calamity or for any other reason beyond its control, the Commission may fix another day for holding the poll in that constituency.

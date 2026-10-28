@@ -1,0 +1,3 @@
+22. Power of Commission to make amendment, alteration or modification in the final list
+of constituencies.— (1) Notwithstanding anything contained in this Act, the Commission may, at any time but at least four months before notification of the Election Programme, of its own motion and for reasons to be recorded, make such amendments, alterations or modifications in the final list of constituencies published under sub-section (4) of section 21 or in the areas included in a constituency, as it deems necessary.
+(2) The Commission shall publish in the official Gazette and on its website the proposed amendments, alterations or modifications with their justifications and invite and hear representations in respect thereof before taking final decision thereon.

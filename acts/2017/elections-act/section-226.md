@@ -1,0 +1,3 @@
+226. Election against reserved seats.—(1) Subject to the Rules, the Commission shall organize and conduct the election to the seats reserved for women, peasants or workers, technocrats, youth and non-Muslims in a local government under the applicable local government law.
+(2) A contesting candidate or candidates obtaining the highest number of votes in a category shall be declared as elected against the seat or seats specified for that category.
+(3) The Commission shall provide to the Returning Officer a list of elected Members eligible to vote and constituting an electoral college for the election of the indirectly elected Members of a local government under the applicable local government law.

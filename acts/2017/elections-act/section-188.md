@@ -1,0 +1,1 @@
+188. Penalty for violation of official duty in connection with election.—An election official or any other person on duty in connection with an election who is guilty of an offence under section 184, section 186 or section 187 shall be punishable with imprisonment for a term which may extend to two years or with fine which may extend to one hundred thousand rupees or with both.

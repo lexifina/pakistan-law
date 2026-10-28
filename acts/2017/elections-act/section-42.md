@@ -1,0 +1,1 @@
+42. Duration of the electoral rolls.— The electoral roll for any electoral area prepared under this Act shall come into force immediately upon its final publication and shall remain in force until revised.

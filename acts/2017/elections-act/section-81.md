@@ -1,0 +1,2 @@
+81. Election by secret ballot.— (1) An election under this Act shall be held by secret ballot and, subject to the provisions of sections 93, 94 and 103, every voter shall cast his vote by inserting, in accordance with the provisions of this Act, in the ballot box, a ballot paper in the prescribed form.
+(2) The Presiding Officer shall make such arrangements at the polling station that every voter may be able to secretly mark his ballot paper before folding and inserting it in the ballot box.

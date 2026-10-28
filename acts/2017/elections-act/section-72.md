@@ -1,0 +1,5 @@
+72. Retirement from election.— (1) A contesting candidate may retire from the election by notice in writing signed by him and delivered to the Returning Officer on any day not later than four days before the polling day by the candidate himself or by an advocate authorized in writing by the candidate.
+Explanation.— Authorization in favour of an advocate shall be attested by a Notary appointed under the Notaries Ordinance, 1961 (XIX of 1961) or an Oath Commissioner appointed under the Oaths Act, 1873 (X of 1873) or a Government servant in basic pay scale 17 and above.
+(2) If a contesting candidate retires from the election under sub-section (1), he shall not be allowed to subsequently cancel the retirement.
+(3) On receiving a notice of retirement under sub-section (1), the Returning Officer shall, if he is satisfied that the signature on the notice is that of the candidate, cause a copy of the notice to be affixed at a conspicuous place in his office.
+(4) A person in respect of whom a notice of retirement has been published under sub-section (3) shall be deemed to have withdrawn his candidature under section 65.

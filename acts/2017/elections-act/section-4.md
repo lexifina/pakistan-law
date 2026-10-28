@@ -1,0 +1,3 @@
+4. Power to issue directions.— (1) The Commission shall have the power to issue such directions or orders as may be necessary for the performance of its functions and duties, including an order for doing complete justice in any matter pending before it and an order for the purpose of securing the attendance of any person or the discovery or production of any document.
+(2) Any such direction or order shall be enforceable throughout Pakistan and shall be executed as if it had been issued by the High Court.
+(3) Anything required to be done for carrying out the purposes of this Act, for which no provision or no sufficient provision exists, shall be done by such authority and in such manner as the Commission may direct.

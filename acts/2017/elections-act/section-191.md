@@ -1,0 +1,4 @@
+191. Prosecution of offences by public officers.—(1) No court shall take cognizance of the offence punishable under section 188, 189 or 195, except upon a complaint in writing, made by order of or under the authority of the Commission.
+(2) The Commission shall, if it has reason to believe that any offence specified in sub-section (1) has been committed, cause an enquiry to be made or prosecution to be instituted against the accused person, as it may think fit.
+(3) An offence specified in sub-section (1) shall be exclusively triable by the Court of Sessions within the jurisdiction of which the offence is committed.
+(4) In respect of an offence specified in sub-section (1), provisions of section 494 of the Code, shall have effect as if, after the word and comma “may”, therein, the words “if so directed by the Commission and” were inserted.

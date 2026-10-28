@@ -1,0 +1,3 @@
+129. Term of office.—(1) The term of office of a Member of the Senate shall commence on the date of the first meeting of the Senate held after the names of the persons elected to the Senate are notified by the Commission.
+(2) If a candidate is elected as Member of the Senate on a seat which has become vacant or a seat declared vacant or a seat where election of a Member of the Senate is declared void and another candidate is declared to have been elected in his place, the term of such candidate shall be the unexpired term of such Member.
+(3) If the election of all the Members declared elected under this Chapter is declared void, the term of the Members elected in their places shall be the unexpired term of the Members whose election is declared void.

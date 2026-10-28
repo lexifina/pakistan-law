@@ -1,0 +1,2 @@
+11. Expenditure charged upon Federal Consolidated Fund.— (1) The remuneration payable to the Commissioner, members and other officers and staff of the Commission and all administrative expenses and other expenditure relating to the Commission shall be expenditure charged upon the Federal Consolidated Fund, within the meaning of Article 81.
+(2) Subject to the provisions relating to audit and applicable laws and rules, the Commissioner shall have full financial powers to sanction and incur expenditure within the approved budgetary allocation, including creation of posts.

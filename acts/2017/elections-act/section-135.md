@@ -1,0 +1,2 @@
+135. Inspection of returns.—(1) Immediately on receipt, the returns and documents submitted under section 134, shall be sent by the Returning Officer to the Commission and shall, for a period of one year from the date of receipt by it, be open to inspection by any person on payment of the prescribed fee.
+(2) The Commission shall, on an application made in this behalf and on payment of the prescribed fee, give any person copies of any return or document or any part thereof kept under sub-section (1).

@@ -1,0 +1,1 @@
+164. Failure of petitioner to appear.—Where, at any stage of the trial of an election petition, the petitioner fails to make appearance, the Election Tribunal may dismiss the petition for default, and make such order as to costs as it may think fit.

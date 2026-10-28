@@ -1,0 +1,1 @@
+187. Assistance by Government servant.—A person in the service of Pakistan is guilty of violation of official duty in connection with an election, if he mis-uses his official position in a manner calculated to influence the results of the election.

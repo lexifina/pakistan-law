@@ -1,0 +1,1 @@
+35. Final publication.—After making additions, deletions, modifications or corrections, if any, under section 34, the Registration Officer shall publish, in the prescribed manner and form, the final electoral roll for each electoral area.

@@ -1,0 +1,4 @@
+65. Withdrawal.— (1) A validly nominated candidate may, by notice in writing signed by him and delivered to the Returning Officer on or before the withdrawal date either by the candidate himself or by an advocate authorized in writing by the candidate, withdraw his candidature.
+Explanation.—Authorization in favour of an advocate shall be attested by a Notary appointed under the Notaries Ordinance 1961 (XIX of 1961) or an Oath Commissioner appointed under the Oaths Act, 1873 (X of 1873) or a Government servant in basic pay scale 17 and above.
+(2) A notice of withdrawal under sub-section (1) shall, in no circumstances, be open to recall or cancellation.
+(3) On receiving a notice of withdrawal under sub-section (1), the Returning Officer shall, if he is satisfied that the signature on the notice is that of the candidate, cause a copy of the notice to be affixed at a conspicuous place in his office.
