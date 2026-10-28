@@ -1,0 +1,1 @@
+13. Audit on accounts of stores and stock.—The Auditor-General shall have authority to audit and report on the accounts of stores and stock kept in any office or department of the Federation or of a Province or of a district.

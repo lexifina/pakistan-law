@@ -1,0 +1,1 @@
+10. Auditor-General to give information and undertake studies, etc.— The Auditor-General shall, in so far as the accounts enable him so to do, give to the Federal Government, the Provincial Governments and the District Government, as the case may be, such information and to undertake such studies and analysis as they may, from time to time require.

@@ -1,0 +1,2 @@
+4. Term of office.—The Auditor-General shall, unless he sooner resigns or is removed from office in accordance with the Constitution, hold office for a fixed term of five years from the date on which he assumes such office or he attains the age of sixty-five years whichever is earlier.
+Explanation.— For the purpose of this section the term of five years in respect of the Auditor- General holding office immediately before the commencement of this Ordinance shall be computed from the date on which he had assumed office.

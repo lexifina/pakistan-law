@@ -1,0 +1,1 @@
+18. Delegation of powers.—Any power exercisable by the Auditor General under the provisions of this Ordinance, or any other law may be exercised by such officer of his department as may be authorised by him in this behalf by general or special order.

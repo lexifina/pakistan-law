@@ -1,0 +1,1 @@
+22. Power to make regulations.—The Auditor-General may, with the previous approval of the Federal Government by notification in the official Gazette, make such regulations, not inconsistent with the provisions of this Ordinance and the rules made thereunder as he may consider necessary or expedient for carrying out the purpose of this Ordinance.
