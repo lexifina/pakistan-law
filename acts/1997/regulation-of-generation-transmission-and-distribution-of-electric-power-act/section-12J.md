@@ -1,0 +1,1 @@
+12J. Panel of experts. — The Appellate Tribunal may maintain a panel of national and international experts in power sector to assist it in performance of its functions under this Act as and when deemed fit by the Appellate Tribunal.

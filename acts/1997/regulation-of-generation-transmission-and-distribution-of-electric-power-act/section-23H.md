@@ -1,0 +1,4 @@
+23H. Duties and responsibilities of a system operator. — (1) A system operator shall, from time to time and subject to approval by the Authority, make such grid management code as may be required to enable it to carry out its functions as a system operator.
+(2) A system operator shall regulate its operations, standards of practice and business conduct in accordance with policies and procedures as approved by the Authority.
+(3) The Authority may, if required in the public interest, direct the system operator to make such grid code or amend its existing grid code as it may specify in writing:
+Provided that if the system operator does not comply with the directions of the Authority within a period of thirty days without providing just cause for such non-compliance to the Authority, the grid code of the system operator shall be deemed to have been made or amended, as the case may be, and shall take effect accordingly.]
