@@ -1,0 +1,5 @@
+5. Eviction of unauthorized occupants.___ (1) If the [^5][Federal Government] is satisfied after making such enquiry as it thinks fit that a person is an unauthorized occupant of any land or building, it may, [^6][after giving such person an opportunity of being heard,] by order in writing, direct such person to vacate the land or building within the period specified in the order.
+(2) If any person refuses or fails to vacate any land or building as directed by an order under sub-section (1), any officer authorized in this behalf by the [^5][Federal Government] may, notwithstanding anything contained in any other law for the time being in force, enter upon such land or building and recover possession of the same by evicting such person and may also demolish and remove the structures, if any, erected or built by that person.
+
+[^5]: Subs. by F.A.O., 1975, Art. 2 and Table for “Central Government”.
+[^6]: Ins. by the Federal Government Lands and Buildings (Recovery of Possession) (Amdt.) Ordinance, 1984 (10 of 1984), ss. 2 and 3.

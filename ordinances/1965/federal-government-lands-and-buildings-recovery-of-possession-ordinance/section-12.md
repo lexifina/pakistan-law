@@ -1,0 +1,1 @@
+12. Requisition of police assistance. If any officer authorized to take action under this Ordinance requires police assistance in the exercise of his powers thereunder, he may send requisition to the officer in charge of a police station who shall on such requisition render the assistance required.
