@@ -1,0 +1,2 @@
+7. Preliminary inquiry.—(1) The Director may authorise any person including an officer of the Bureau to conduct a preliminary inquiry into an accident, serious incident or incident and submit to him preliminary report to assess the classification of the occurrence and the extent of and expertise needed for the investigation.
+(2) The person authorised to conduct preliminary inquiry shall have all the powers of an investigator under this Act.

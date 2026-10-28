@@ -1,0 +1,25 @@
+2. Definitions.—In this Act, unless there is anything repugnant in the subject or context,—
+(a) “accident” means an occurrence associated with the operation of an aircraft which in the case of a manned aircraft, takes place between the time any person boards the aircraft with the intention of flight until such time as all such persons have disembarked; and in the case of an unmanned aircraft, takes place between the time the aircraft is ready to move with the purpose of flight until such time as it comes to rest at the end of the flight and the primary propulsion system is shutdown, that leads to―
+(i) fatal or serious injury to a person as a result of his being in the aircraft, or direct contact with any part of the aircraft, including parts which have become detached from it, or direct exposure to jet blast, except when the injuries are from natural causes, self-inflicted or inflicted by other persons, or when the injuries are to stowaways hiding outside the areas normally available to the passengers and crew;
+(ii) damage to the aircraft or structural failure which adversely affects the structural strength, performance or flight characteristics of the aircraft, and would normally require major repair or replacement of the affected component, except for failure of engine or damage, when the damage is limited to a single engine, (including its cowlings or accessories), to propellers, wing tips, antennas, probes, vanes, tires, brakes, wheels, fairings, panels, landing gear doors, windscreens, the aircraft skin (such as small dents or puncture holes), or for minor damages to main rotor blades, tail rotor blades, landing gear, and those resulting from hail or bird strike (including holes in the radome); or
+(iii) the aircraft going missing or is completely inaccessible;
+(b) “accredited representative” means a person designated by a State, on the basis of his or her qualifications, for the purpose of participating in an investigation conducted by another State and where the State has established an accident invekigation authority, the designated accredited representative, would normally be from that authority;
+(c) “Act” means the Pakistan Air Safety Investigations Act, 2023;
+(d) “advisor” means a person appointed by a State, on the basis of his or her qualifications, for the purpose of assisting its accredited representative in an investigation;
+(e) “aircraft” means a machine that can derive support in the atmosphere from the reactions of the air other than the reactions of the air against the surface of the earth;
+(f) “Authority” means the Pakistan Civil Aviation Authority established under the Pakistan Civil Aviation Ordinance, 1982 (Ordinance XXX of 1982);
+(g) “Aviation undertaking” means an entity, person or organization that is affected or benefitted by the carrying out of any function or duty or exercise of any power by the Bureau;
+(h) “Bureau” means the Bureau of Aircraft Accident investigation established under section 3;
+(i) “Convention” means the Convention of International Civil Aviation done at Chicago on seventh day of December, 1944 and any other international convention or treaty on air safety and aircraft accidents to which Pakistan is a signatory;
+(j) “Director” means the Director of the Bureau;
+(k) “Federal Investigation Agency” means the Federal Investigation Agency established under the Federal Investigation Agency Act, 1974 (Act VIII of 1974);
+(l) “incident” means an occurrence, other than an accident, associated with the operation of an aircraft which affects or could affect the safety of operation;
+(m) “information” includes a recording, material or document;
+(n) “investigation” means an investigation under this Act for the purpose of prevention of aircraft accidents, serious incidents and incidents and includes measures to preserve, gather and analyse evidence and information, drawing of conclusion, including the determination of causes and contributing factors and, where appropriate, the making of safety recommendation;
+(o) “investigator” means an employee of the Bureau or any other person having reasonable familiarity, experience and skills in air safety and accident investigations;
+(p) “Minister” means the Minister for Aviation;
+(q) “operator” means a person, organization or enterprise engaged in or offering to engage in operation of an aircraft;
+(r) “rules” mean rules made under this Act;
+(s) “Secretary” means the Secretary to the Federal Government, Aviation Division;
+(t) “serious incident” means an incident involving circumstances indicating that there was a high probability of an accident and associated with the operation of an aircraft which in the case of a manned aircraft, takes place between the time any person boards the aircraft with the intention of flight until such time as all such persons have disembarked, or in the case of an unmanned aircraft, takes place between the time the aircraft is ready to move with the purpose of flight until such time as it comes to rest at the end of the flight and the primary propulsion system is shut down; and
+(u) “State” means a State signatory to the Convention other than Pakistan.

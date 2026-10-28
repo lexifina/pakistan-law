@@ -1,0 +1,2 @@
+31. Compounding of offences.—(1) Subject to sub-section (2), the Director or an officer of the Bureau authorized by him may, at any stage, compound an offence under this Act subject to the deposit of administrative penalty which shall not be less than fifty thousand rupees.
+(2) An offence under this Act shall not be compoundable if the accused has previously been convicted under this Act or his previous offence has been compounded by the Director or the officer of the Bureau authorized by the Director.
