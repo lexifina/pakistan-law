@@ -1,0 +1,1 @@
+10. Recovery of a tax or additional tax imposed under section 8 or section 9. Any tax or additional tax or penalty imposed under the provisions of section 8 or section 9 may be recovered in the manner provided in section 11 for the recovery of an arrear of tax.
