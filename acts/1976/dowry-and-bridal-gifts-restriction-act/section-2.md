@@ -1,0 +1,8 @@
+2. Definitions. In this Act, unless there is anything repugnant in the subject or context,
+(a) “bridal gift” means any property given as a gift before, at or after the marriage, either directly or indirectly, by the bridegroom or his parents to the bride in connection with the marriage but does not include Mehr;
+(b) “dowry” means any property given before, at or after the marriage, either directly or indirectly, to the bride by her parents in connection with the marriage but it does not include property which the bride may inherit under the laws of inheritance and succession applicable to her;
+(c) “marriage” includes betrothal, nikah and rukhsati;
+(d) “parents” includes the guardian of a party to a marriage and any person who provides for dowry or bridal gifts and, in the case of a party to a marriage who has no parent, or whose marriage is solemnized in circumstances in which, or at a place at which, no parent is present, such party;
+(e) “present” means a gift of any property not being a bridal gift or dowry, given before, at or after the marriage, either directly or indirectly, to either party to a marriage in connection with the marriage or to the relatives of the bride or bridegroom but does not include neundra and salami;
+(f) “property” means property, both moveable and immoveable, and includes any valuable security as defined in the Pakistan Penal Code (Act XLV of 1860); and
+(g) “Registrar” means a Nikah Registrar licensed under the Muslim Family Laws Ordinance, 1961(VIII of 1961.) and such other person as may be designated from time to time to perform the functions of the Registrar.

@@ -1,0 +1,1 @@
+6. Expenditure on marriage. The total expenditure on a marriage, excluding the value of dowry, bridal gifts and presents, but including the expenses on menhdi, barat and valima, incurred by or on behalf of either party to the marriage shall not exceed two thousand and five hundred rupees.

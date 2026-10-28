@@ -1,0 +1,1 @@
+5. Vesting of dowry etc., in the bride. All property given as dowry or bridal gifts and all property given to the bride as a present shall vest absolutely in the bride and her interest in property however derived shall hereafter not be restrictive, conditional or limited.
