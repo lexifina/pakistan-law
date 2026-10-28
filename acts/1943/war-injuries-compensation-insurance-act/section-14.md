@@ -1,0 +1,5 @@
+14. Recovery of premium unpaid.⸻(1) Without prejudice to the provisions of sub-section (2) of section 9, where any person has failed to insure as or to the full amount required by this Act and the Scheme and has thereby evaded the payment by way of premium of any money which he would have had to pay in accordance with the provisions of the Scheme but for such failure, an officer authorised in this behalf by the [^28][Federal Government] may determine the amount payment of which has been so evaded, and the amount so determined shall be payable by such person and shall be recoverable from him as provided in sub-section (2).
+(2) Any sum payable in accordance with the provisions of the Scheme by way of premium on a policy of insurance issued under the Scheme and any amount determined as payable under sub-section (1) shall be recoverable as an arrear of land-revenue.
+(3) Any person against whom a determination is made under sub-section (1) may, within the prescribed period, appeal against such determination to the [^28][Federal Government] whose decision shall be final.
+
+[^28]: Subs. by F. A.O., 1975, Art. 2 and Table, for “Central Government”.

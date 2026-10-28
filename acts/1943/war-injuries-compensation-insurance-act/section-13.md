@@ -1,0 +1,5 @@
+13. Power of Federal Government to obtain information.⸻(1) Any person authorised in this behalf by the [^28][Federal Government] may, for the purpose of ascertaining whether the requirements of this Act and of the Scheme have been complied with, require any employer to submit to him such accounts, books or other documents or to furnish to him such information or to give such certificates as he may reasonably think necessary.
+(2) Whoever willfully obstructs any person in the exercise of his powers under this section or fails without reasonable excuse to comply with any request made thereunder shall, in respect of each occasion on which any such obstruction or failure takes place, be punishable with fine which may extend to one thousand rupees.
+(3) Whoever in purporting to comply with his obligations under this section knowingly or recklessly makes a statement false in a material particular shall be punishable with fine which may extend to one thousand rupees.
+
+[^28]: Subs. by F. A.O., 1975, Art. 2 and Table, for “Central Government”.

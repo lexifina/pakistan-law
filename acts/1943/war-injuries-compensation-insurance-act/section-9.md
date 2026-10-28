@@ -1,0 +1,9 @@
+9. Compulsory insurance.__ (1) Every employer of workmen to whom this Act applies or is subsequently made applicable [^17][except an employer whose total wages bill for any quarter after the commencement of this Act has never exceeded fifteen hundred rupees] shall, before such date as may be prescribed, or before the expiry of such period as may be prescribed after his having first become such an employer, take out a policy of insurance issued in accordance with the Scheme, whereby he is insured until the termination of [^19][* *] hostilities or until the date, if any, prior to the termination of [^19][* *] hostilities at which he ceases to be an employer to whom this section applies, against all liabilities imposed on him by this Act.
+(2) Whoever contravenes the provisions of sub-section (1) or, having taken out a policy of insurance as required by that sub-section, fails to make any payment by way of premium thereon which is subsequently due from him in accordance with the provisions of the Scheme shall be punishable with fine which may extend to one thousand rupees and shall also be punishable with a further fine which may extend to five hundred rupees for every day after having been so convicted on which the contravention or failure continues.
+(3) This section shall not bind the [^20][Government] nor, unless the [^21][Federal Government] by notification in the official Gazette otherwise orders, any [^22][Government] Railway.
+
+[^17]: Ins. by the War Injuries (Compensation Insurance) Amdt. Ordinace, 1944 (LIV of 1944), ss. 5 and 6.
+[^19]: The original words “the present’ omitted by the War Injuries (Compensation Insurance) (Amdt.) Ordinance, 1965 (XXXIV of 1965), s. 5.
+[^20]: Subs. by A. O., 1961, Art. 2, for “Crown” (with effect from the 23rd March, 1956).
+[^21]: Subs. by F. A.O., 1975, Art. 2 and Sch., for “Provincial Government”.
+[^22]: Subs. by A. O., 1961, Art. 2 and Sch., for “Federal” (with effect from the 23rd March, 1956).
