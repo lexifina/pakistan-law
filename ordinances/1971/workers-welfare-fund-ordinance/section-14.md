@@ -1,0 +1,1 @@
+14. Protection of persons acting under this Ordinance. No suit, prosecution or other legal proceedings shall lie against any person for any thing which is in good faith done or intended to be done under this Ordinance.

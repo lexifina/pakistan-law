@@ -1,0 +1,2 @@
+11. Maintenance of books of account, etc. The Governing Body shall—
+(a) cause to be maintained such books of accounts as may be prescribed; (b) cause to be prepared in the prescribed manner an annual statement of account; (c) cause the accounts of the Fund to be audited annually by 4[the Auditor General of Pakistan or] an auditor who is a chartered accountant within the meaning of the Chartered Accountants Ordinance, 1961 (X of 1961.); and (d) submit to the 5[Federal Government] the statement referred to in clause (b) together with the report of the auditor thereon.
