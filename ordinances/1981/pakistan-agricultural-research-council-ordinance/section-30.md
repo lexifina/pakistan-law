@@ -1,0 +1,10 @@
+30. Notice of suit Against Council, etc. ___ (1) [^1][A suit may] be instituted against the Council or any member or any person associated with the Council or against any officer or employee of the Council or against any person acting under the direction or authority of the Council, the Chairman or of any officer or employee of the Council in respect of any act purporting to be done under this Ordinance or the rules or regulations [^2][after] the expiration of [^3][two months] from the delivery of a written notice at the head office of the Council or the place of abode of such member, officer, employee or person stating the cause of action, the name and address of the intending plaintiff and the nature of the relief sought.
+(2) In every such suit the plaint shall contain a statement that such notice has been so delivered.
+[^4][(2A) Where any such suit is instituted without delivering or leaving such notice as aforesaid or before the expiration of the said period of two months, or where the plaint does not contain a statement that such notice has been so delivered, or left, the plaintiff shall not be entitled to any costs if settlement as regards the subject-matter of the suit is reached or the Council or the member, officer, employee or person concedes the plaintiff's claim, within the period of two months from the date of the institution of the suit:
+Provided that, in a suit instituted without such notice, the Court shall allow not less than three months to the Council to submit its written statement.]
+(3) Notwithstanding anything contained; in the Limitation Act, 1908 (IX of 1908), no such suit as is described in sub-section (1) shall, unless it is a suit for the recovery of immovable property or for a declaration of title thereto, commence otherwise than within six months next after the accrual of the cause of action.
+
+[^1]: Subs. by the Pakistan Agricultural Research Council (Amdt.) Ordinance, 1985 (10 of 1985), s.2, for “No. suit shall”.
+[^2]: Subs. ibid., for “Until”.
+[^3]: Subs. ibid., for “one month”.
+[^4]: Ins. ibid.,

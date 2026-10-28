@@ -1,0 +1,1 @@
+28. Ordinance XXIII of 1969 not to apply to Council. Nothing contained in the Industrial Relations Ordinance, 1969 (XXIII of 1969), shall apply to or in relation to the Council or its establishments or any of the officers or employees of the Council.

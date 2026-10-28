@@ -1,0 +1,4 @@
+19. Budget and accounts.___(1) The Council shall, in respect of each financial year, submit for the approval of the Federal Government, by such date and in such form as may be prescribed by rules, a statement showing the estimated receipts and expenditure and the sums which are likely to be required from the Federal Government during the financial year.
+(2) The Council may open accounts in any scheduled bank in Pakistan.
+(3) The accounts of the Council shall be maintained in such form and manner as the Federal Government may determine in consultation with the Auditor-General of Pakistan.
+(4) The accounts of the Council shall be audit by one or more auditors who are chartered accountants within the meaning of the Chartered Accountants Ordinance, 1961 (X of 1961) and are appointed by the Federal Government in consultation with the Auditor-General of Pakistan on such remuneration, to be paid by the Council, as the Federal Government may fix.

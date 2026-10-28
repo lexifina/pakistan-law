@@ -1,0 +1,1 @@
+21. Investment of funds. Subject to such instructions as the Federal Government may, from time to time, issue, the Council may invest its funds, in any security of the Federal Government or a Provincial Government or in any of the securities enumerated in section 20 of the Trusts Act, 1882.

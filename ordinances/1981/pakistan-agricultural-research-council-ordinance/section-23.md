@@ -1,0 +1,1 @@
+23. Financial Assistance to Council. The Council may, with the approval of the Federal Government, accept financial or any other assistance and grants of any kind in furtherance of its objects and in order to discharge its functions.
