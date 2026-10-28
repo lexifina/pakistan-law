@@ -1,0 +1,5 @@
+[^4][10. Cognizance of offences. — (1) Notwithstanding anything contained in the Code, a Magistrate of the First Class shall try an offence punishable under this Act and may impose any punishment provided under this Act:
+Provided that if an offence involves transportation of the victim into or out of Pakistan and it constitutes part of the transaction constituting the offence, the Special Court (Central) constituted under the Pakistan Criminal Law Amendment Act, 1958 (XL of 1958) shall try such offence, punishable under this Act and may impose any punishment provided under this Act.
+(2) Where in any trial before a Special Court of an offence punishable under sections 3, 4 and 5, it is proved that an accused person has accepted or obtained, or has agreed to accept for himself or any other person, any financial or material benefit from a victim or any person on his behalf, it shall be presumed unless the contrary is proved, that he accepted or obtained, that financial or material benefit, or as the case may be, as such as is mentioned in sections 3, 4 and 5.]
+
+[^4]: Subs. by Act No. IX of 2025, s.7.
