@@ -1,0 +1,1 @@
+33. Business transactions of partner with limited liability partnership.__ A partner may lend money to and transact other business with the limited liability partnership as may be prescribed and shall have the same rights and obligations with respect to the loan or other transactions as a person who is not a partner.

@@ -1,0 +1,9 @@
+## PART VII
+## FINANCIAL DISCLOSURES
+20. Maintenance of books of accounts, other records and audit, etc.—(1) The limited liability partnership shall maintain such proper books of accounts as may be prescribed by the Commission through regulations relating to its affairs for each year of its existence on accrual basis and according to double entry system of accounting and shall maintain the same at its registered office for such period as may be prescribed through such regulations.
+(2) Every limited liability partnership shall, within a period of four months from the end of each financial year, prepare a statement of accounts for the said financial year as at the last day of the said financial year and the designated partners of the limited liability partnership shall put their signature on such statement evidencing their acceptance thereof.
+(3) The Commission may, through notification in the official Gazette, specify such class or classes of limited liability partnerships who shall file the statement of accounts prepared pursuant to sub-section (2) with the Registrar every year in such form and manner and accompanied by such fee as may be prescribed by the Commission through regulations.
+(4) The statement of accounts of limited liability partnerships shall be audited in accordance with the regulations as may be prescribed by the Commission:
+Provided that the Commission may, by notification, exempt any class or classes of limited liability partnerships from the requirements of this sub-section.
+(5) A person shall not be qualified to be the auditor of a limited liability partnership unless he is a chartered accountant.
+(6) Any limited liability partnership which fails to comply with the provisions of this section, unless otherwise provided, shall be punishable with fine which may extend to two million rupees and the designated partners of such limited liability partnership shall be punishable with fine which may extend to one million rupees.

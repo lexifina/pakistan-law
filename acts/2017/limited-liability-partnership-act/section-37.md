@@ -1,0 +1,3 @@
+37. Power of Registrar to strike defunct limited liability partnership off register.___
+Where the Registrar has reasonable cause to believe that a limited liability partnership is not carrying on business or its operation in accordance with the provisions of this Act, or has failed to comply with any provision of this Act the name of the limited liability partnership may be struck off the register of limited liability partnerships in such manner and following such procedure as may be prescribed by the Commission through regulations:
+Provided that the Commission through regulations may provide for provisions related to voluntary strike off from the register and dormant limited liability partnerships.

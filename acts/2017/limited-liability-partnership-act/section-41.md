@@ -1,0 +1,2 @@
+41. Appeal to Appellate Bench. ___ Any person aggrieved by an order or decision of Registrar or any Commissioner or officer of the Commission may prefer an appeal to the Appellate Bench and the provisions of section 33 of the Securities and Exchange Commission of Pakistan Act, 1997 (XLII of 1997), shall be applicable in respect of such appeal:
+Provided that such appeal shall be filed within sixty days of the date of the decision and shall be accompanied by such fee as may be notified by the Commission.

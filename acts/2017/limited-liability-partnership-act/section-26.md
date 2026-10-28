@@ -1,0 +1,1 @@
+26. Conversion from private limited company to limited liability partnership.— The provisions of the Third Schedule shall apply to the conversion from private limited company to a limited liability partnership.

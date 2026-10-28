@@ -1,0 +1,1 @@
+54. Power of the Commission to alter Schedules.___ The Commission may by notification in the official Gazette, alter or add any entry in the Schedules and such alterations or additions shall have the effect as if enacted in this Act and shall come into force on the date of the notification, unless the notification otherwise directs.

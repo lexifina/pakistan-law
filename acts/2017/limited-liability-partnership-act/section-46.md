@@ -1,0 +1,7 @@
+46. Investigation of affairs of limited liability partnership.—(1) The Commission may appoint one or more competent persons as investigators on receipt of a report under sub-section (5) of section 44, to investigate the affairs of any limited liability partnership and to report thereon in such manner as the Commission may direct.
+(2) A person appointed as inspector under this section, for the purposes of his investigation, have the same powers as are vested in a court under the Code of Civil Procedure, 1908 (Act V of 1908), while trying a suit, in respect of the following matters, namely:—
+(a) enforcing the attendance of persons and examine them on oath or affirmation;
+(b) compelling the discovery and production of books and papers and any material objects; and
+(c) issuing commissions for the examination of witnesses;
+and every proceeding before such person shall be deemed to be judicial proceeding within the meaning of sections 193 and 228 of the Pakistan Penal Code, 1860 (Act XLV of 1860).
+(3) Any contravention of or non-compliance with any orders, directions or requirement of the inspector exercising powers of a court under sub-section (2) shall, in all respects, entail the same liabilities, consequences and penalties as are provided for such contravention, non-compliance or default under the Code of Civil Procedure, 1908 (Act V of 1908) and the Pakistan Penal Code, 1860 (Act XLV of 1860).

@@ -1,0 +1,12 @@
+13. Cessation of partnership interest.—(1) A person may cease to be a partner of a limited liability partnership in accordance with an agreement with the other partners or, in absence of the agreement with the other partners as to cessation of being a partner, by giving a notice of not less than thirty days to the other partners of his intention to cease as partner:
+Provided that a notice in writing to this effect shall be delivered by the limited liability partnership to the Registrar.
+(2) A person may also cease to be a partner of a limited liability partnership by his death or by dissolution of the limited liability partnership.
+(3) Where a person has ceased to be a partner of a limited liability partnership, hereinafter referred to as “former partner”, the former partner is to be regarded (in relation to any person dealing with the limited liability partnership) as still being a partner of the limited liability partnership unless,__
+(a) the person has notice that the former partner has ceased to be a partner of the limited liability partnership; or
+(b) notice, that the former partner has ceased to be a partner of the limited liability partnership, has been delivered to the Registrar.
+(4) The cessation of a partner from the limited liability partnership does not by itself discharge the partner from any obligation to the limited liability partnership or to the other partners or to any other person which he incurred while being a partner.
+(5) Where a partner of a limited liability partnership ceases to be a partner, unless otherwise provided in the limited liability partnership agreement, the former partner or a person entitled to his share in consequence of the death or insolvency of the former partner, shall be entitled to receive from the limited liability partnership an amount,—
+(a) equal to the capital contribution of the former partner actually made to the limited liability partnership; and
+(b) his right to share in the accumulated profits of the limited liability partnership after the deduction of losses of the limited liability partnership determined as at the date the former partner ceased to be a partner.
+(6) A former partner or a person entitled to his share in consequence of death or insolvency of the former partner shall not have any right to interfere in the management of the limited liability partnership.
+(7) Any former partner or the former partner's personal representative or liquidator who fails to comply with sub-section (6) commits an offence.

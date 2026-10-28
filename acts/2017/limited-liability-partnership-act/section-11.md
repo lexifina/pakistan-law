@@ -1,0 +1,1 @@
+11. Joint liability.___ If the limited liability partnership contravenes the provisions of sections 8, 9 and 10, the limited liability partnership and every designated partner commits an offence and shall be punishable with fine which may extend to one million rupees.

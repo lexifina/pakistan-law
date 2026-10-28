@@ -1,0 +1,1 @@
+55. Power to remove difficulty.___ If any difficulty arises in giving effect to the provisions of this Act, the Federal Government may, by order published in the official Gazette, make such provisions, as may appear to it to be necessary for removing the difficulty.
