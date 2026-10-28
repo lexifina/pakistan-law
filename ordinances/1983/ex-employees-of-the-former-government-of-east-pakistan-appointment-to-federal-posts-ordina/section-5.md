@@ -1,0 +1,1 @@
+5. Pension. The service rendered under the former Government of East Pakistan, which qualified for pension under that Government by an employee who is appointed to a post under section 3 shall count for the purposes of pension under the Federal Government.

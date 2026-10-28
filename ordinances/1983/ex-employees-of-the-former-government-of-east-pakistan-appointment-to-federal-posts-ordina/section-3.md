@@ -1,0 +1,2 @@
+3. Appointment. An employee may, with the approval of the competent Authority, be appointed to an existing or supernumerary post in the Grade, as far as practicable, equivalent to the scale of the former post of such employee from the date he holds such post.
+Explanation.___ In this section, “competent authority”, in relation to a post, means the authority competent under the Civil Servants Act, 1973 (LXXI of 1973), to make appointment to that post.
