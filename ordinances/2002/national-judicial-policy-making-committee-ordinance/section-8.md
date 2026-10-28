@@ -1,0 +1,1 @@
+8. Secretariat assistance. ⎯ Secretariat assistance to the Committee shall be provided by the Secretariat of the Commission and Secretary of the Commission shall act as the Secretary of the Committee.

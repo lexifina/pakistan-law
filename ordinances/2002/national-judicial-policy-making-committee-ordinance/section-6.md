@@ -1,0 +1,1 @@
+6. Constitution of sub-committees.⎯ The Committee may constitute sub-committees consisting of its one or more Members, as it deems fit, and may assign them any matter relevant to the functions of the Committee.
