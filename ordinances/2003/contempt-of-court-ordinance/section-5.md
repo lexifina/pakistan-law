@@ -1,0 +1,5 @@
+5. Punishment.__ (1) Subject to sub-section (2), any person who commits contempt of court shall be punished with imprisonment which may extend to six months simple imprisonment, or with fine which may extend to one hundred thousand rupees, or with both.
+(2) A person accused of having committed contempt of court may, at any stage, submit an apology and the court, if satisfied that it is bona fide, may discharge him or remit his sentence.
+Explanation.__ The fact that an accused person genuinely believes that he has not committed contempt and enters a defence shall not detract from the bona fides of an apology.
+(3) In the case of a contempt having been committed, or alleged to have been committed, by a company, the responsibility therefore shall extend to the persons in the company, directly or indirectly, responsible for the same, who shall also be liable to be punished accordingly.
+(4) Notwithstanding anything contained in any judgement, no court shall have the power to pass any order of punishment for or in relation to any act of contempt save and except in accordance with sub-section (1).

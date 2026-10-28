@@ -1,0 +1,1 @@
+15. Innocent publication.__ No person shall be guilty of contempt of court for making any statement, or publishing any material, pertaining to any matter which forms the subject of pending proceedings, if he was not aware of the pendency thereof.

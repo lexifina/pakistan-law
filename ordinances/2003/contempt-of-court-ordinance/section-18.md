@@ -1,0 +1,3 @@
+18. Substantial detriment.__ (1) No person shall be found guilty of contempt of court, or punished accordingly, unless the court is satisfied that the contempt is one which is substantially detrimental to the administration of justice or scandalizes the court or otherwise tends to bring the court or Judge of the court into a hatred or ridicule.
+(2) In the event of a person being found not guilty of contempt by reason of sub-section (1) the court may pass an order deprecating the conduct, or actions, of the person accused of having committed contempt.
+(3) Subject to the provisions of this Ordinance, truth shall be a valid defence in cases of contempt of court.
