@@ -1,0 +1,6 @@
+50. Tripartite mobility.—(1) Any officer, teacher, or employee of the University shall, as the Chancellor may direct, serve in a Government department or in any other university or an educational or research institution in public interest:
+Provided that the terms and conditions offered to him/her shall not be less favorable than those admissible to him/her in the University and full benefit of his/her previous service shall be allowed to him/her:
+Provided further that, in the case of a teacher, such directions shall be issued after consulting the Syndicate.
+(2) The Chancellor may place the services of an employee of the Government of Pakistan or of any other University or an educational or research institution at the disposal of the University in public Interest:
+Provided that the terms and conditions offered to him/her shall not be less favorable than those enjoyed by him/her immediately before his/her services are placed at the disposal of the University and that full benefit of his/her previous service shall be allowed to him/her.
+Provided further that, in the case of a teacher, the Chancellor may consult the Selection Board of the University before placing his/her services at the disposal of the University.

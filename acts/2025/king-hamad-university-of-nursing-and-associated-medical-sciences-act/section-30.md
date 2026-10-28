@@ -1,0 +1,1 @@
+30. Amendment and repeal of Statutes, Regulations and Rules.—The procedure for adding to, amending or repealing the Statutes, the Regulations, and the Rules shall be the same as that prescribed respectively for framing and approval thereof,

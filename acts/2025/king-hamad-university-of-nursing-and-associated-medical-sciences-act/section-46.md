@@ -1,0 +1,1 @@
+46. Cessation of membership of an ex-officio Member.—Notwithstanding anything contained in this Act, a person nominated or appointed to any Authority or body under this Act, shall cease to be a member of such Authority or body as soon as he/she ceases to hold the position by virtue of which he/she was nominated or appointed to the Authority or body.

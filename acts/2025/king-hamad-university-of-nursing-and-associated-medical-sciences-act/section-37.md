@@ -1,0 +1,1 @@
+37. Appeal.—An appeal shall lie to the Chancellor against the decision of the Senate refusing to affiliate an institution, or withdrawing in whole or in part, the rights conferred on such institution by affiliation, or against modification of such rights,

@@ -1,0 +1,1 @@
+44. Benefits and Incentives.—The University shall constitute for the benefit of its officers, teachers and other employees the schemes, in such manner and subject to such conditions as may be prescribed; such as pension, gratuity, provident fund, benevolent fund, health and life insurance, and other fringe benefits.

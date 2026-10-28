@@ -1,0 +1,3 @@
+35. Inspection and report.—(1) Every institution affiliated to the University shall furnish such reports, returns and other information as the University may require enabling it to judge the efficiency of the institution.
+(2) The University shall cause every such institution to be inspected from time to time, through a committee of competent persons comprised of not than three (03) persons, authorized in this behalf.
+(3) The University may call upon any institution affiliated to it to take, within a specified period of time, such action as may appear to the University to be necessary in respect of any of the matters referred to in sub-section (1) of section 32.

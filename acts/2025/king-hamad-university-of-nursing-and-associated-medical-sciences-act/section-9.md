@@ -1,0 +1,9 @@
+9. Chancellor.—(1) The President of the Islamic Republic of Pakistan shall be the Chancellor of the University and the Chairperson of the Senate.
+(2) The Chancellor shall, when present, preside over the meetings of the Senate and the convocation of the University.
+(3) The members of the Senate as well as the Vice-Chancellor shall be appointed by the Chancellor from amongst the persons recommended by the Representation Committee set up for this purpose or the Search Committee established in accordance with this Act and the Statutes, as the case may be, along with those elected.
+(4) Every proposal to confer an honorary degree shall be subject to confirmation by the Chancellor.
+(5) If the Chancellor is satisfied that serious irregularity or mismanagement with respect to the affairs of the University has occurred, he may.
+(a) as regards the proceedings of the Senate, direct that specified proceedings be reconsidered, and appropriate action taken within one month of the direction having been issued:
+Provided that if the Chancellor is satisfied that either no reconsideration has been carried out or that the reconsideration has failed to address the concern expressed, he/she may, after calling upon the Senate to show cause in writing, appoint a five-member Review Panel to examine and report to the Chancellor on the functioning of the Senate.
+The report of the Review Panel shall be submitted within such time as may be determined by the Chancellor, The Review Panel shall be drawn from persons of eminence in academic and in the fields of law, nursing, accountancy and administration or other such person of eminence as deemed appropriate by the Chancellor; and
+(b) as regards the proceedings of any Authority or with respect to the matters within the competence of any Authority other than the Senate, direct the Senate to exercise powers under section 20.

@@ -1,0 +1,13 @@
+## CHAPTERE-II
+## THE UNIVERSITY
+3. Establishment and incorporation of the university.—(1) There shall be established a public sector University to be called the King Hamad University of Nursing and Associated Medical Sciences, Islamabad, in accordance with the provisions of this Act and shall consist of the following, namely:—
+(a) the Chancellor, the Vice-Chancellor, and the members of the Senate;
+(b) the members of the authorities of the University established under section 18;
+(c) all the University teachers, professor emeritus, and persons recognized as students of the University in accordance with terms prescribed time to time; and
+(d) all other full-time officers and members of the staff of the University.
+(2) The University shall be a body corporate by the name of King Hamad University of Nursing and Associated Medical Sciences and shall have perpetual succession and a common seal and may sue and be sued by the said name.
+(3) The University shall be competent to borrow and lend money, to acquire and hold both movable and immovable property, and to lease, sell off or otherwise transfer any movable and immovable property which may have become vested in or been acquired by it, and to do all such activities as may be necessary for the purposes of its constitution.
+(4) Notwithstanding anything contained in any other law for the time being in force, the University shall have academic, financial and administrative autonomy, including the power to employ officers, teachers and other staff on such terms as may be prescribed, subject to the terms of this Act, or to the terms as may be provided in the laws of the competent professional accrediting and recognizing councils or other bodies, or the Commission. In particular, and without prejudice to the authority granted to the Commission by law, the Government or an authority or auditor appointed by the Government shall have no power to question the policy underlying the allocation of resources approved by the Senate in the annual budget of the University.
+(5) The University shall be liable to provide facilities to the representatives of the Commission, or such similar relevant organizations for visitation to enable them to verify that the University is maintaining appropriate academic standards.
+(6) The University shall be required to strictly comply with the constitutional provisions, ideology of Pakistan, law and abide by the social, religious, ethical and cultural ethos, values, and respect cultural and religious sensitivities.
+(7) The principal seat of the University shall be at Islamabad, and it may set up any number of campuses at such other places in Pakistan and abroad with prior approval of the Senate and the Commission.

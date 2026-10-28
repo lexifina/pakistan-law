@@ -1,0 +1,1 @@
+34. Extension of affiliation.—Where an institution desires to add to the courses of instruction in respect of which It is affiliated, the procedure prescribed for affiliation of institution shall, so far as may be, be followed,
