@@ -1,0 +1,1 @@
+8. Payment of further amounts.― There shall be paid from time to time to the President such further amounts as may be necessary to enable him to discharge conveniently and with dignity the duties of his office as he may by general or special order authorize, and any such order may be given retrospective effect whenever necessary.
