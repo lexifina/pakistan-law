@@ -1,0 +1,2 @@
+5. Ordinance to override other laws.___(1) Subject to subsection (2), the provisions of this Ordinance shall have effect notwithstanding anything contained in the Foreign Exchange Regulation Act, 1947 (VII of 1947) the Customs Act, 1969 (IV of 1969), the Income Tax Ordinance, 1979 (XXXI of 1979) or any other law for the time being in force.
+(2) The protection provided to a foreign currency account holder under this Ordinance shall be in addition to, and not in derogation of, the protection provided under the Protection of Economic Reforms Act, 1992 (XII of 1992).

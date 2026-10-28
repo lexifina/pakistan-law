@@ -1,0 +1,1 @@
+4. Indemnity.___No suit or other legal proceedings shall lie against the Federal Government or any person for anything in good faith done or intended to be done in pursuance of this Ordinance or any rule; direction or order made thereunder.
