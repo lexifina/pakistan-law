@@ -1,0 +1,1 @@
+7. Application for fixation of urgent matters.__ An application pleading urgency or seeking interim relief, filed in a cause, appeal or matter, shall be fixed for hearing within fourteen days from the date of its filing.

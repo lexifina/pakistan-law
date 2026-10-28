@@ -1,0 +1,1 @@
+7B. Recording and transcript of proceedings.__ Hearing of every cause, matter or appeal in the Supreme Court shall be recorded and transcript thereof duly prepared. For the purposes of reliance thereon in any court proceedings, only a certified copy of the transcript against payment of a fee amounting to Rupees fifty per page shall be used.]
