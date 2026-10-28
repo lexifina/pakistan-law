@@ -1,0 +1,1 @@
+14. Punishment.- Whoever commits a breach of the provisions of this Ordinance and the rules made thereunder shall be punished with simple imprisonment which may extend to three months, or with fine which may extend to one hundred rupees, or with both.

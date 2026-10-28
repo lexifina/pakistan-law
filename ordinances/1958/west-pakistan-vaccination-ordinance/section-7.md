@@ -1,0 +1,1 @@
+7. Re-vaccination in case of unsuccessful vaccination. - When it is ascertained as aforesaid that the vaccination has been unsuccessful the parent or guardian shall, if the vaccinator so directs cause the child to be forthwith again vaccinated and subsequently inspected in the manner hereinbefore provided.
