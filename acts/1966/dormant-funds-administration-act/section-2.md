@@ -1,0 +1,3 @@
+2. Vesting of dormant funds in the President and their utilisation.— (1) Notwithstanding anything contained in any other law or instrument, the funds specified in the Schedule, together with interest and profit accruing thereon, shall vest forthwith in the President.
+(2) The amounts in the aforesaid funds, other than that in the Palestine Aid Fund, shall be transferred to the President’s Relief Fund instituted on the 16th May, 1965, and shall be utilised for purposes of relief or for purposes as nearly as possible, to those for which they were raised.
+(3) The amount in the Palestine Aid Fund shall be utilised for the Palestine cause.
