@@ -1,0 +1,1 @@
+7. Administrative Division.—The Division concerned shall be the sponsoring and administrative division of the University to coordinate the processes and grants as may be desired by the University from time to time for its purposes.

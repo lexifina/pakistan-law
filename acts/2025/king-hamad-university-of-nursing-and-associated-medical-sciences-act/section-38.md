@@ -1,0 +1,1 @@
+38. Taking over an institution.—(1) The Chancellor may on request of any institution established under a Government or a regulatory authority or body including from the institutions affiliated to, associated with, or admitted to the privileges of, the University direct to the Senate that the control and management of such institution may be taken over by the University.

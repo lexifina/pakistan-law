@@ -1,0 +1,6 @@
+17. Controller of Examinations.—(1) There shall be a Controller of Examinations, to be appointed by the Senate on the recommendation of the Selection Board, on such terms and conditions as may be prescribed.
+(2) The minimum qualifications necessary for appointment to the post of the Controller of Examinations shall be as such may be prescribed.
+(3) The Controller of Examinations shall be a full-time officer of the University and shall be responsible for all matters connected with the conduct of examinations and shall perform such other duties as may be prescribed.
+(4) The Controller of Examinations shall be appointed for a renewable term of three years:
+Provided that the Senate may, on the advice of the Vice-Chancellor, terminate the appointment of the Controller of Examinations on grounds of inefficiency or misconduct in accordance with prescribed procedure.
+(5) When the office of the Controller of Examination is vacant or the Controller of Examination is absent or unable to perform his functions owing to any cause, the Senate shall make temporary arrangements for performance of duties of the Controller of Examination, but the period of such temporary arrangements shall not exceed six months and the regular Controller of Examinations shall be appointed during that period.

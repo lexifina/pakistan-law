@@ -1,0 +1,1 @@
+53. Transitory provisions.—(1) A Chancellor’s Committee shall be constituted by the Chancellor upon recommendations of the Vice-Chancellor to exercise the powers assigned to the Syndicate under this Act till such time the Syndicate is constituted in accordance with the provisions of this Act.

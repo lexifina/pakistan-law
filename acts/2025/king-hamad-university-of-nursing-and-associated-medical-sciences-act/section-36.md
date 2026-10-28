@@ -1,0 +1,3 @@
+36. Disaffiliation.—(1) If an institution affiliated to the University has filled to observe any of the conditions of its affiliation, or its affairs are conducted In a manner which is prejudicial to the interests of education and community as a whole, the rights referred on the institution by affiliation may, on a report made by the Affiliation Committee and with the approval of the Senate, be withdrawn in whole or in part or modified:
+Provided that the Senate may on a report of the Affiliation Committee, and after considering such representation as the institution may wish to make, restore to it such rights either in whole or in part.
+(2) The procedure to be followed for the withdrawal of affiliation shall be as may be prescribed.

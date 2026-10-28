@@ -1,0 +1,2 @@
+26. Appointment of committees by certain Authorities.—(1) The Senate, Syndicate, Academic Council, and other Authorities may, from time to time, appoint such standing, special or advisory committees, as they may deem fit, and may appoint on such committee the persons who are not the members of the Authorities appointing these committees.
+(2) The constitution, functions, and powers of the Authorities for which no specific provision has been made in this Act shall be such as may be prescribed by Statutes or Regulations.

@@ -1,0 +1,2 @@
+11. Revisional powers of the Chancellor.—The Chancellor may, of his own motion or on the request of Commission or otherwise, call for and examine the record of any proceedings in which an order has been passed by any Authority, for the purpose of satisfying himself as to the correctness, legality or propriety of any finding or order and may pass such order as he may deem fit:
+Provided that no order under this section shall be passed unless the person to be effected thereby is afforded an opportunity of being heard.
