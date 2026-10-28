@@ -1,0 +1,1 @@
+40. Extinction on expiration of limited period or happening of dissolving condition. —An easement is extinguished where it has been imposed for a limited period, or acquired on condition that it shall become void on the performance or non -performance of a specified act, and the period expires or the condition is fulfilled.

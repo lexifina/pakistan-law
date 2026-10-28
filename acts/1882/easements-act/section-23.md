@@ -1,0 +1,7 @@
+23. Right to alter mode of enjoyment. —Subject to the provisions of section 22, the dominant owner may, from time to time, alter the mode and place of enjoying the easement, provided that he does not thereby impose any additional burden on the servient heritage.
+Exception.___ The dominant owner of a right of way cannot vary his line of passage at pleasure, even though he does not thereby impose any additional burden on the servient heritage.
+Illustrations
+(a) A, the owner of a saw-mill, has a right to a flow of water sufficient to work the mill. He may convert the saw-mill into a corn-mill, provided that it can be worked by the same amount of water.
+(b) A has a right to discharge on B’s land the rain-water from the eaves of A’s house. This does not entitle A to advance his eaves if, by so doing, he imposes a greater burden on B’s land.
+(c) A, as the owner of a paper-mill, acquires a right to pollute a stream by pouring in the refuse-liquor produced by making in the mill paper from rags. He may pollute the stream by pouring in similar liquor produced by making in the mill paper by a new process from bamboos, provided that he does not substantially increase the amount, or injuriously change the nature, of the pollution.
+(d) A, a riparian owner, acquires, as against the lower riparian owners, a prescriptive right to pollute a stream by throwing sawdust into it. This does not entitle A to pollute the stream by discharging into it poisonous liquor.

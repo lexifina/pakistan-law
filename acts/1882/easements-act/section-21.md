@@ -1,0 +1,4 @@
+21. Bar to use unconnected with enjoyment. —An easement must not be used for any purpose not connected with the enjoyment of the dominant heritage.
+Illustrations
+(a) A, as owner of a farm Y, has a right of way over B’s land to Y. Lying beyond Y, A has another farm Z, the beneficial enjoyment of which is not necessary for the be neficial enjoyment of Y. He must not use the easement for the purpose of passing to and from Z.
+(b) A, as owner of a certain house, has a right of way to and from it. For the purpose of passing to and from the house, the right may be used, not only by A, but by the members of his family, his guests, lodgers, servants, workmen, visitors and customers; for this is a purpose connected with the enjoyment of the dominant heritage. So, if A lets the house, he may use the right of way for the purpose of collecting the rent and seeing that the house is kept in repair.
