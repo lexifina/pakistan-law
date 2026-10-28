@@ -1,0 +1,1 @@
+3. Application of the Act.__Notwithstanding anything contained in any other law, the provisions of this Act shall apply in relation to the matters contained herein, including, but not limited to, the powers and functions of the BOI, Government Agencies, and the Cabinet Committee.

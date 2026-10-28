@@ -1,0 +1,1 @@
+10. Public comments.__The laws and RLCOs entered on the Registry shall be made accessible to the public for a period of not less than thirty days, inviting comments in the manner specified on the Registry, and public awareness in this regard shall be ensured by publicity through electronic, digital and print media.
