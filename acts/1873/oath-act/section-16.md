@@ -1,0 +1,1 @@
+16. Official oaths abolished. Subject to the provisions of sections 3 and 5, no person appointed to any office shall, before entering on the execution of the duties of his office, be required to make any oath, or to make or subscribe any affirmation or declaration whatever.
