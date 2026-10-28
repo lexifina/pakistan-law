@@ -1,0 +1,1 @@
+10. Appointment and removal of Patron.—The Patron may be appointed for a fixed period of time two years and can be extended for another term of same length. He may be removed before expiry of his term by the Board of trustees resolution on any misconduct.
