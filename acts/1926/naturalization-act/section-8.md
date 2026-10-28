@@ -1,0 +1,23 @@
+8. Revocation of certificate.___(1) [^19][Where the [^20][Secretary of the administrative division]] is satisfied that a certificate of naturalization granted under this Act [^23][* * *]] was obtained by false representation or fraud or by concealment of material circumstances, or that the person to whom the certificate has been granted has shown himself by act or speech to be disaffected or disloyal to [^24][Pakistan], [^19][the [^20][Secretary of the administrative division]] shall, by order in writing, revoke the certificate.
+(2) Without prejudice to the foregoing provisions, [^19][the [^20][Secretary of the administrative division]] shall, by order in writing, revoke such a certificate of naturalization as aforesaid in any case in which [^20][he] is satisfied that the person to whom the certificate was granted___
+(a) has, during any war in which [^24][Pakistan] is engaged unlawfully traded or communicated with the enemy, or with a subject of an enemy state, or been engaged in, or associated with, any business which is to his knowledge carried on in such a manner as to assist the enemy in such war; or
+(b) has, within five years of the date of the grant of the certificate, been sentenced by any Court [^25][in Pakistan] [^26][* * *] to imprisonment for a term of not less than twelve months, or to pay a fine of not less than one thousand rupees; or
+(c) was not of good character at the date of the grant of the certificate; or
+[^27][(d) has since the grant of the certificate been, for a period of not less than seven years, ordinarily resident out of Pakistan otherwise than as a representative of a citizen of Pakistan, or of a Pakistan firm or company or a Pakistan institution, or in the service of a Government in Pakistan or in the armed forces of Pakistan, and has not maintained substantial connection with Pakistan; or]
+(e) remains, according to the law of a state at war with [^28][Pakistan], a subject of that state; and that the continuance of the certificate is not conducive to the public good.
+(3) [^29][* * * * * * *]
+(4) [^29][The [^30][Secretary of the administrative division]] may, if [^30][he] thinks fit, before making an order under this section, refer the case for such inquiry as is hereinafter specified, and, in any case to which sub-section (1) or clause (a), clause (c) or clause (e) of sub-section (2) applies, [^29][the [^30][Secretary of the administrative division]] shall by notice given to or sent by post to the last known address of, the holder of the certificate, give him an opportunity of claiming that the case be referred for such inquiry, and, if the holder so claims in accordance with the notice, [^29][the[^30][Secretary of the administrative division]] shall refer the case for inquiry accordingly.
+(5) An inquiry under this section shall be held by such person or persons and in such manner as [^29][the [^30][Secretary of the administrative division]] may direct in each case.
+(6) Where a certificate is revoked under this section, the revocation shall have effect from such date as may be directed by [^29][the [^30][Secretary of the administrative division]], and thereupon the certificate shall be given up and cancelled; and any person who, without reasonable cause the burden of proving which shall lie upon him, fails to give up his certificate within one month from the aforesaid date, shall be punishable with fine, which may extend to one thousand rupees.
+(7) For the purposes of this section, any person who has acquired any of the rights, privileges or capacities of naturalization under sub-section (2) of section 5 or sub-section (2) of section 7 by reason of the grant to his parent of a certificate of naturalization, may, after he has attained majority, be deemed to be a person to whom a certificate of naturalization has been granted.
+
+[^19]: Subs. by the Government of India (Adaptation of Indian Laws) Order, 1937.
+[^20]: Subs. by Act No. XVI of 2025, ss. 5, 6 and 7.
+[^23]: Omitted by the Federal Laws (Revision and Declaration) Ordinance, 1981 (Ord. No.XXVII of 1981), s. 3 and Sch. II.
+[^24]: Subs. by Act No. XXIII of 1951, s. 10.
+[^25]: Ins. by the Central Laws Adaptation Order, 1961 (P. O. 1 of 1961), Art. 2 and Sch. (with effect from the 23rd March, 1956).
+[^26]: Omitted by the Federal Laws (Revision and Declaration) Ordinance, 1981 (Ord. No. XXVII of 1981), s. 3 and Sch. II.
+[^27]: Subs. by Act No. LXI of 1952, s. 7.
+[^28]: Subs. by Act No. XXIII of 1951, s. 10.
+[^29]: Omitted and subs. by the Government of India (Adaptation of Indian Laws) Order, 1937.
+[^30]: Subs. by Act No. XVI of 2025, s.7.
