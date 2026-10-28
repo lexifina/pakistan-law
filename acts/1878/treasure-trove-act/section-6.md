@@ -1,0 +1,1 @@
+6. Forfeiture of right on failure to appear. Any person having any right to such treasure or any part thereof, as owner of the place in which it was found or otherwise, and not appearing as required by the notification issued under section 5, shall forfeit such right.

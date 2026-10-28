@@ -1,0 +1,1 @@
+14. Settlement of such dispute. Any person who has so appeared and claimed may, within one month from the date of such order, institute a suit in the Civil Court to obtain a decree declaring his right; and in every such suit the finder of the treasure and all persons disputing such claim before the Collector shall be made defendants.
