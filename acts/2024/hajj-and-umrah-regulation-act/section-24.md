@@ -1,0 +1,1 @@
+24. Indemnity.—No suit, prosecution or other legal proceedings shall lie against the Federal Government, any of its officers and officials in respect of anything done or intended to be done in good faith under this Act or the rules or regulations made thereunder.

@@ -1,0 +1,3 @@
+6. Maintenance of record.—(1) The division concerned shall maintain complete record of all licences issued to all the HGOs including information of licences suspended or rescinded.
+(2) Hajj group organizers licenced under this Act shall in the manner as may be prescribed seek prior permission of the division concerned before dis-continuance, transfer to the extent of management and shares or re-organization of its business or change of its address, as the case may be:
+Provided that in case of transfer the transfree shall be liable to clear all liabilities and debt outstanding against the transferor HGO.

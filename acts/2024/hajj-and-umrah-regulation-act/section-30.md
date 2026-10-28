@@ -1,0 +1,1 @@
+30. Removal of difficulties.—If any difficulty arises in giving effect to any of the provisions of this Act, the Federal Government may make such order, not inconsistent with the provisions of this Act, as it may consider necessary for removal of the difficulty.

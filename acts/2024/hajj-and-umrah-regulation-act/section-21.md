@@ -1,0 +1,1 @@
+21. Bank accounts.—The division concerned shall open and maintain account in the public account of Federation or Shariah compliant bank account in scheduled banks for various funds under this Act, as and when required, with the prior approval of Finance Division.

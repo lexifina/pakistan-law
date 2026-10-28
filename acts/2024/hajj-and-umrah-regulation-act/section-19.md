@@ -1,0 +1,4 @@
+19. Hajj operation fund.—(1) There shall be a Hajj operation fund for the purpose of Hajj operation, to be administered and controlled by the competent authority.
+(2) The pilgrim welfare fund which exists prior to commencement of this Act shall stand transferred to and become part of the Hajj operation fund (HOF) to be maintained in a single account in any scheduled bank.
+(3) Hajj dues to be deposited by the intending pilgrims in the designated branches of the scheduled banks in Shariah compliant account, profit on retention of Hajj dues and maintenance of accounts, receipts by virtue of utilization of services at all directorates of Hajj in Pakistan or abroad and refundable performance guarantees of the HGO or any other receipts which the division concerned may prescribe shall be deposited in the account, maintained for the fund under sub-section (2).
+(4) The expenditure from HOF shall be made in the manner as may be prescribed.

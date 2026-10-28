@@ -1,0 +1,2 @@
+14. Composition and powers of complaint disposal committees.—(1) There shall be a four-members CDC chaired by an officer not below the rank of BPS-20 or equivalent for disposal of all complaints pertaining to violation of agreements during performance of Hajj or Umrah resulting in hardship to the pilgrims.
+(2) The CDC shall have powers to decide complaints subject to provisions of this Act and rules made thereunder.
