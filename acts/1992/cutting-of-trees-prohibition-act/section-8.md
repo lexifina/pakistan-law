@@ -1,0 +1,1 @@
+8. Provincial Governments to demarcate zones. The Provincial Governments may, whenever it may deem expedient, cause the zones defined in section 2 to be demarcated and the trees growing in any zone to be enumerated.

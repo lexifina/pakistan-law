@@ -1,0 +1,1 @@
+7. Power to prevent commission of offences. The authorised officer shall prevent the commission of any offence under this Act and for that purpose may take such measures as may be prescribed by the rules under this Act.
