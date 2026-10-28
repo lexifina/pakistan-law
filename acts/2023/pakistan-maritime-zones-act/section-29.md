@@ -1,0 +1,1 @@
+29. Punishment for piracy.—Whoever commits piracy shall be punishable with imprisonment which may extend to ten years and if, while committing the offence, commits murder shall also be liable to imprisonment for life or with death.

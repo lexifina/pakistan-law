@@ -1,0 +1,1 @@
+21. Attempt and abetment.—Whoever attempts to contravene or abets the contravention of any provision of this Act shall be deemed to have contravened the provisions of this Act and rules made thereunder.

@@ -1,0 +1,1 @@
+26. Disposal of perishable property.—In case any property taken into custody under section 23 is a perishable item, the same may be disposed of under orders of the court having jurisdiction in the ease and if it is sold, its value shall be treated as property taken into custody under that section.
