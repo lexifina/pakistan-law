@@ -1,0 +1,3 @@
+6. Public records to be surrendered on demand.—Any person in possession of public records, whether such possession is authorised or unauthorised, shall on the demand of the Director General in writing deposit them with the National Archives :
+Provided that any public records exempted under section 5 from being transferred to the National Archives shall not be required to be so deposited :
+Provided further that nothing contained in this section shall be deemed to apply to any public records which may be legally in the possession of any person otherwise than in his capacity of an officer or employee of a public office.
