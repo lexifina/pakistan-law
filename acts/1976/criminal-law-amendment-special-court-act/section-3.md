@@ -1,0 +1,5 @@
+3. Certain offences triable by Special Court.—(1) Any offence punishable under sections 121, 121A, 122, 123 and 123A of the Pakistan Penal Code (Act XLV of 1860), and any offence punishable under the High Treason (Punishment) Act, 1973 (LXVIII of 1973), including an offence of conspiracy to commit any such offence, whether committed before or after the commencement of this Act, shall be tried by [^3][a Special Court] in accordance with the provisions of this Act.
+(2) No court other than the Special Court shall try an offence which is triable by the Special Court under sub-section (1).
+(3) If, in the course of a trial before the Special Court, the Court is of opinion that an accused before it has committed or appears to have committed any offence other than an offence referred to in sub-section (1), the Special Court shall record such opinion and refer such accused for the trial of such other offence to a court having jurisdiction to try the offence.
+
+[^3]: Subs.ibid “the Special Court”.

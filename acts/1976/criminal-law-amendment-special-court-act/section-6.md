@@ -1,0 +1,20 @@
+6. Powers and procedure of Special Court.— (1) The Special Court shall have, in respect of a case triable by it, all the powers which a High Court has in relation to trial before it under the Code, but shall, notwithstanding anything contained in the Code, proceed with the trial in the following manner, namely:—
+[^7][(a) as soon as the accused appear or are brought before the Special Court, the formal charges referred to in section 5 shall be read and explained to them, and each one of them shall be asked whether he is guilty;]
+(b) if the accused pleads guilty, the Special Court shall record the plea, and may in its discretion convict him thereon;
+(c) if the accused pleads not guilty or refuses to plead, or claims to be tried, the Special Court shall proceed to take all such evidence as may be produced in support of the prosecution;
+[^8][Explanation.— For the purposes of this clause and clause (cc), an accused who refuses to plead or claims to be tried shall be deemed to be pleading not guilty].
+[^9][(cc) if any accused is added to the list of accused persons referred to in sub-section (1) of section 5 after the examination of any witness and if such accused pleads not guilty or refuses to plead, or claims to be tried, or is not convicted by the Special Court on his plea of guilt (if made), the Special Court may recall and rehear all such witnesses whose evidence in its opinion affects such accused;]
+(d) on the close of the evidence of the prosecution, the Special Court shall examine the accused and record his statement as required by section 342 of the Code and, if the accused puts in any written statement, the Special Court shall file it with the record;
+(e) after such statement of the accused as is referred to in clause (d) is recorded, the Special Court shall call upon the accused to enter upon his defence, and shall examine all such witnesses as may be produced by the accused or called at the instance of the accused:
+Provided that the Special Court may refuse to examine or call any such witness, if the Special Court is satisfied that the accused intends to call or examine such witness to cause vexation or delay or to defeat the ends of justice;
+(f) after all the evidence referred to in the foregoing clauses is recorded, the Special Court shall hear the prosecutor and defence counsel, and on conclusion of the same shall proceed to pronounce its judgment;
+(g) the persons mentioned in the list of accused persons referred to in [^10]* * * section 5 and the offences with which they are charged shall be tried together;
+(h) the proceedings of the special Court shall be recorded under its direct supervision:
+Provided that, if the special Court so directs, the evidence of any witness may be taken down in shorthand or typescript by a person specially appointed for the purpose; and the transcript of the shorthand or the typescript with necessary corrections shall form part of the record; and
+(i) all orders and proceedings and the evidence of each witness shall be signed by at least two members of the Special Court and the final judgment shall be signed by each of the three members.
+(2) The Special Court shall have the power to punish any person who obstructs or abuses its process or disobeys any of its orders or directions, or does anything which tends to prejudice the case of a party before it, or tends to bring it or any of its members into hatred or contempt, or does anything which, by law, constitutes contempt of court, with simple imprisonment for a term which may extend to six months or with fine which may extend to two hundred rupees, or with both.
+
+[^7]: Subs. by the Criminal Law Amendment (Special Court) (Amdt.) Act, 1976 (66 of 1976), s. 2, for the original clause (a).
+[^8]: Ins. by the Criminal Law Amendment (Special Court) (Amdt.) Act, 1976 (66 of 1976), s. 2.
+[^9]: New clause (cc) ins. by the Criminal Low Amendment (Special Court) (Amdt.) Act, 1976 (41 of 1976), s. 3.
+[^10]: The words “sub-section (1) of” omitted ibid., s. 3.
