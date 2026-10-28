@@ -1,0 +1,7 @@
+4. Proceedings before Authorized Officer.—(1) Upon receipt of complaint under section 3, the Authorized Officer shall forthwith issue notice to the person against whom the complaint has been made calling upon him to show cause why he should not be evicted from the land or building occupied by him, and after giving such person an opportunity of being heard, and if necessary, after making such further enquiry as he may think fit, the Authorized Officer, shall, by an order in writing, either—
+(a) permit such person to continue in occupation of the land or building, subject to such conditions as may be specified in the order ; or
+(b) direct such person to vacate and deliver to the Port Authority vacant possession of the land or building, and to remove structures, if any, erected or built thereon by him, within the period specified in the order.
+(2) If any person fails to comply with a direction under clause (b) of sub-section (1), the Authorized Officer may, notwithstanding anything contained in any other law for the time being in force, but subject to any order [^2][on appeal] under section 5, enter upon the land or building to which the direction relates, and evict such person by such force as he may consider necessary, and demolish any or all of the said structures.
+(3) No person shall be evicted under sub-section (2) between sunset and sunrise.
+
+[^2]: Subs. by the Port Authorities Lands and Buildings (Recovery of Possession) (Amdt.) Act, 1968 (6 of 1968), s. 2, for “of the District Magistrate”.
