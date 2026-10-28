@@ -1,0 +1,1 @@
+3. Powers to declare no-smoking places of public work of use:__ As soon as may be after the commencement of this Ordinance the Federal Government may from time to time, by notification in the official Gazette, declare any place of public work or use to be a no-smoking and no-tobacco use place for the purposes of this Ordinance.

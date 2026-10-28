@@ -1,0 +1,1 @@
+6. Prohibition of smoking in public service vehicles:― without prejudice to the provisions of the Provincial Motor Vehicle Ordinance, 1965 (W.P. Ordinance XIX of 1965), no person shall smoke or use tobacco in any other form in a public service vehicle.

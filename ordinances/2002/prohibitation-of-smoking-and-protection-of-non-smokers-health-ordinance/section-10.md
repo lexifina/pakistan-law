@@ -1,0 +1,1 @@
+10. Display and exhibition of board:__ The owner or manager or incharge of the affairs of every place of public work or use shall display and exhibit a board at each conspicuous place in and outside the premises visited or used by general public prominently stating that the place is a “No Smoking Zone” and that “Smoking is an Offence.”

@@ -1,0 +1,1 @@
+5. Prohibition of smoking and others tobacco use:―No person shall smoke or use tobacco in any other form in any place of public work or use. The Federal Government may however issue guidelines for permitting designated smoking areas in premises or places where adequate arrangements are made to protect the health of non-smokers.

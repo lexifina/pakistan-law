@@ -1,0 +1,3 @@
+11. Penalties:―Any person, who contravenes the provisions of––
+(a) section 5, 6 or 10 shall be punishable with fine which may extend to one thousand rupees and in case of second or subsequent offence, shall be punishable with a fine which shall not be less then one thousand rupee, and may extend to one hundred thousand rupees; and
+(b) section 7, 8 or 9 shall be punishable with fine which may extend to five thousand rupees and in case of second or subsequent offence, shall be punishable with imprisonment which may extend to three months or with a fine which shall not be less then one hundred thousand rupees, or with both.
