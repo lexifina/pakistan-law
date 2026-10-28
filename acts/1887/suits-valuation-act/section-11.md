@@ -1,0 +1,13 @@
+## PART III
+## SUPPLEMENTAL PROVISIONS
+[^11]11. Procedure where objection is taken on appeal or revision that a suit or appeal was
+not properly valued for jurisdictional purposes.—(1) Notwithstanding anything in section [^12][99 of the Code of Civil Procedure, 1908 (Act V of 1908)], an objection that by reason of the overvaluation or under-valuation of a suit or appeal a Court of first instance or lower appellate Court which had not jurisdiction with respect to the suit or appeal exercised jurisdiction with respect thereto shall not be entertained by an appellate Court unless—
+(a) the objection was taken in the Court of first instance at or before the hearing at which issues were first framed and recorded, or in the lower appellate Court in the memorandum of appeal to that Court, or
+(b) the appellate Court is satisfied, for reasons to be recorded by it in writing, that the suit or appeal was over-valued or under-valued, and that the over-valuation or under-valuation thereof has prejudicially affected the disposal of the suit or appeal on its merits.
+(2) If the objection was taken in the manner mentioned in clause (a) of sub-section (1), but the appellate Court is not satisfied as to both the matters mentioned in clause (b) of that sub- section and has before it the materials necessary for the determination of the other grounds of appeal to itself, it shall dispose of the appeal as if their had been no defect of jurisdiction in the Court of first instance or lower appellate Court.
+(3) If the objection was taken in that manner and the appellate Court is satisfied as to both those matters and has not those materials before it, it shall proceed to deal with the appeal under the rules applicable to the Court with respect to the hearing of appeals; but if it remands the suit or appeal, or frames and refers issues for trial, or requires additional evidence to be taken, it shall direct its order to a Court competent to entertain the suit or appeal.
+(4) The provisions of this section with respect to an appellate Court shall, so far as they can be made applicable, apply to a Court exercising revisional jurisdiction under section [^12][115 of the Code of Civil Procedure, 1908 (Act V of 1908)] or other enactment for the time being in force.
+3 (5) This section extends to [the whole of Pakistan], and shall come into force on the first day of July, 1887.
+
+[^11]: This section has been amended in the Punjab by Punjab Act No. XIII of 1942, s. 3.
+[^12]: Subs. by Federal Laws (Revision and Declaration) Ordinance No. XXVII of 1981, s. 5, Sch. IV (only to the extent of Islamabad capital territory).
