@@ -1,0 +1,6 @@
+6. Composition of the Authority.—(1) The Authority shall comprise the Chairperson, Member (Adaptation), Member (Mitigation), Member (Climate Finance), Member (Coordination) and one Member from each province to be nominated by the respective Provincial Ministers-in-charge.
+(2) The members including Chairperson of the Authority shall be appointed by the Prime Minister on such terms and conditions as he may deem fit, keeping in view their qualifications and experience.
+(3) The Chairperson and members shall be scientists, academicians, professionals, serving or retired government servants, industrialists, agriculturists or other technocrats with at least fifteen year's experience in fields related to climate change and the environment, with a distinguished service record.
+(4) If the office of the Chairperson falls vacant for any reason, the senior-most member shall act as Chairperson till such time as his successor is appointed.
+(5) The Authority shall be properly constituted notwithstanding a vacancy in the office of the Chairperson or any member.
+(6) The Authority may, for assistance in performance of its functions, invite a representative of any Government Agency or non-governmental organization or technical expert or other person possessing specialized knowledge of any subject.

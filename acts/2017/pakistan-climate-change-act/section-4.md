@@ -1,0 +1,9 @@
+4. Functions and powers of the Council.-(1) The Council shall—
+(a) co­ordinate and supervise enforcement of the provisions of this Act;
+(b) monitor implementation of international agreements relating to climate change specified in the Schedule;
+(c) coordinate, supervise and guide mainstreaming of climate change concerns into decision- making by Federal and Provincial Government's ministries, divisions, departments and agencies so as to create enabling conditions for integrated climate-compatible and climate-resilient development processes in various sectors of the economy;
+(d) approve and monitor implementation of comprebensive adaptation and mitigation policies, strategies, plans, programmes, projects and other measures formulated by the Authority to meet Pakistan's obligations under international conventions and agreements relating to climate change including in particular the Sustainable Development Goals (SDGs);
+(e) monitor implementation of the National Adaptation Plan and its constituent provincial and local adaptation action plans, the National Appropriate Mitigation Action Framework and National Communication submitted to the concerned Secretariat of the United Nations Framework Convention on Climate Change (UNFCCC);
+(f) approve guidelines for the protection and conservation of renewable and non­renewable resources, species, habitats; and biodiversity in general adversely affected or threatened by climate change; and
+(g) consider the National Climate Change Report and give appropriate directions thereon.
+(2) The Council may, either itself or on the request of any person or organization, direct the Authority or any Government Agency to prepare, submit, promote or implement projects for adaptation or mitigation of the adverse effects of climate change, to promote climate-compatible, climate-resilient and sustainable development or to undertake research in any aspect of climate change.

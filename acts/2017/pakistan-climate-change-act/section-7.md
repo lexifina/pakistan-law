@@ -1,0 +1,4 @@
+7. Officers and staff of the Authority.—(1) All professional, technical and administrative officers and staff of the Authority shall be appointed by the Authority, or obtained from other Federal or Provincial Government agencies on deputation basis, and shall be entitled to such salaries, allowances and other terms and conditions of service as may be prescribed by regulations.
+(2) The Authority shall ensure that all appointments are made in a transparent manner and adequate and equal treatment is given to women, minorities and disabled persons.
+(3) The officers and staff of the Authority shall have such powers and shall perform such functions as may be assigned to them by the Chairperson.
+(4) The officers and staff of the Authority, shall act in accordance with the mandate assigned and the directives given by the Chairperson.
