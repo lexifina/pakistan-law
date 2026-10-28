@@ -1,0 +1,11 @@
+4. Presentation of pass book.—(1) A Land owner applying to any bank for the grant of a loan or advance may, for the purpose of enabling the bank to take action in accordance with sub-section (4), produce before the bank a pass book prepared in the prescribed form and manner [^5][ * * * * * * *].
+(2) The entries in the pass book shall be authenticated by the Revenue Officer and shall be prima facie evidence of the title of the holder of the pass book to the parcels of land entered in the pass book, free of any prior encumbrance, unless otherwise specified therein.
+(3) The pass book shall be deemed to be a title deed and accepted as such by the bank for granting a loan or advance to a land-owner on the security of such land entered therein as he may indicate.
+(4) If the bank grants a loan or advance to the land-owner on the production of the pass book, the bank shall endorse the pass book against the entry relating to the land on the security of which the loan or advance is granted by it.
+(5) The endorsement made in the pass book under sub-section (4) shall create a charge in favour of the bank on the land against the entry relating to which the endorsement has been made and the land-owner shall be debarred from alienating the land until the outstanding amount of the loan or advance granted by the bank has been repaid.
+[^6][(5A) A charge on any land created under sub-section (5) shall be entered in the relevant revenue records against the entry relating to such land.]
+(6) Any alienation of land in contravention of sub-section (5) shall be void.
+(7) If the land-owner fails to repay the amount of the loan or advance in accordance with the terms of his agreement with the bank, the bank may, without prejudice to any other legal remedy available to it, apply to the Collector for the recovery of the amount in default as an arrear of land revenue and thereupon all the provisions of the Revenue Recovery Act, 1890 (I of 1890), shall apply to the recovery of the amount in default as they apply to the recovery of an arrear of land revenue.
+
+[^5]: Ins. by Act, The Loans for Agricultural, Commercial and Industrial Purposes (Amendment) Act, 2021 (XXXVI of 2021), ss. 2-3
+[^6]: Added by the Finance Act, 1986 (1 of 1986), s. 8
