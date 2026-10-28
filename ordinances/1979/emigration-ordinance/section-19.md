@@ -1,0 +1,1 @@
+19. False representation of Government authority.― Whoever falsely represents that any emigrant is required by the Government or is to be engaged on behalfe of the Government, shall be punishable with imprisonment for a term which may extend to five years, or with fine, or with both.
