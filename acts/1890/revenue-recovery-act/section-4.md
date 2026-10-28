@@ -1,0 +1,7 @@
+4. Remedy available to person denying liability to pay amount recovered under last
+foregoing section.—(1) When proceedings are taken against a person under the last foregoing section for the recovery of an amount stated in a certificate, that person may, if he denies his liability to pay the amount or any part thereof and pays the same under pro test made in writing at the time of payment and signed by him or his agent, institute a suit for the repayment of the amount or the part thereof so paid.
+(2) A suit under-sub-section (1) must be instituted in a Civil Court having jurisdiction in the local area in which the office of the Collector who made the certificate is situate, and the suit shall be determined in accordance with the law in force at the place where the arrear accrued or the liability for the payment of the sum arose.
+(3) In the suit the plaintiff may, notwithstanding anything in the last foregoing section, but subject to the law in force at the place aforesaid, give evidence with respect to any matter stated in the certificate.
+[^5][(4) This section shall apply if under this Act as in force as part of the law of India, or under any other similar Act forming part of the law of India, proceedings are taken against a person in India for the recovery of an amount stated in a certificate made by a Collector in Pakistan.]
+
+[^5]: Sub-section (4) which was previously ins. by, A.O, 1937, has been subs. by Federal Laws (Revision and Declaration) Ordinance, 1981 (27 of 1981), s.3 and 2nd Sch.
