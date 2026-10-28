@@ -1,0 +1,1 @@
+28. Investment of funds.⸺The Corporation may invest its funds in any securities of the Federal Government or a Provincial Government and may make such other investments as may be approved by the Board.

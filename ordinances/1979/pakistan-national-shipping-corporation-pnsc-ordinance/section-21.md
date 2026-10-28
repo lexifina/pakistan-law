@@ -1,0 +1,2 @@
+21. Appointment of officers, etc.⸺(1) The Corporation may appoint such officers, consultants, advisers and employees as it considers necessary for the efficient performance of its functions, on such terms and conditions as it may deem fit.
+(2) If at any time the Board considers it necessary to dispense with the services of any office, consultant, adviser or employee, his services shall, notwithstanding anything contained in any law, or in any agreement, deed, document of other instrument, be dispensed with accordingly.

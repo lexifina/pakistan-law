@@ -1,0 +1,6 @@
+11. Share Capital.⸺(1) The authorised capital of the Corporation shall be fifty crores of rupees divided into five crores of fully subscribed shares of ten rupees each, to be issued as and when required.
+(2) The Federal Government shall not at any time hold shares of a value less than fifty-one per cent of the subscribed capital.
+(3) Subject to the other provisions of this Ordinance, the subscribed capital of the Corporation shall in the first instance comprise shares allotted against entitlements resulting in accordance with the provisions of sub-section (4) of section 9, and such further allotments, if any, as may be necessary to complete the minimum shareholding of the Federal Government required by sub-section (2).
+Explanation.⸺ In this sub-section and in sub-section (2), “Federal Government” means the Federal Government and the institutions owned or controlled by the Federal Government.
+(4) The Corporation may, with the previous sanction of the Federal Government accorded by notification in the official Gazette, increase its authorised capital whenever it thinks fit.
+(5) All issues and transfers of shares of the Corporation shall be subject to the provisions of this Ordinance and the rules and regulations.

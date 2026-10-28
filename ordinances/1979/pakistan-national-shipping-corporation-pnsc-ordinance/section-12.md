@@ -1,0 +1,2 @@
+12. Shares to be approved securities, etc.⸺(1) The shares of the Corporation shall be deemed to be approved securities and approved investments for the purposes of the InsuranceAct, 1938 (IV of 1938).
+(2) Such of the shares of the Corporation as are issued in lieu of N. S. C. shares in accordance with section 9 shall be deemed to be included among the securities enumerated in section 20 of the Trusts Act, 1882 (II of 1882).

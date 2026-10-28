@@ -1,0 +1,1 @@
+25. Vacancy, etc., not to invalidate acts or proceedings of Board.⸺ No act or proceeding of the Board shall be invalid by reason only of the existence of any vacancy, in, or defect in the constitution of, the Board.

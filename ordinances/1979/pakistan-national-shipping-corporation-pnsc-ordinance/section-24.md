@@ -1,0 +1,1 @@
+24. Committees of the Board.⸺The Board may, from time to time appoint, from amongst the Directors, such committees as may be necessary to discharge such functions as may be assigned to them by the Board, or to assist the Board in the performance of its functions.
