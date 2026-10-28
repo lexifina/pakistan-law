@@ -1,0 +1,1 @@
+15. Power to delegate:—The Federal Government may, by notification in the official Gazette, direct that all or any of, its powers under this Ordinance or the rules shall, subject to such conditions, if any, as may be specified therein be exercisable also by any officer or authority subordinate to the Federal Government or Provincial Government.

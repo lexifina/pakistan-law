@@ -1,0 +1,1 @@
+12. Ejectment of violators from any place of public work or use:__ Any authorize officer or a police officer not below the rank of sub-Inspector may eject any person from any place of public work or use who contravenes the provisions of this Ordinance.
