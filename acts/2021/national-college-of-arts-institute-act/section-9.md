@@ -1,0 +1,1 @@
+9. Chairperson.― The Minister incharge of the concerned Ministry shall be the Chairperson of the Board of Governors who shall preside over the meetings of the Board of Governors. In the absence of the Chairperson his nominee may preside over the meeting of the Board of Governors.

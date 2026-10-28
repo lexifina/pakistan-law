@@ -1,0 +1,1 @@
+42. Indemnity.― No suit or legal proceedings shall lie against the Government, the College or any Authority, officer or employee of the Government or the College or any person in respect of anything which is done ingood faith under this Act.

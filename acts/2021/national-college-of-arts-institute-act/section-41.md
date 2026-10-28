@@ -1,0 +1,1 @@
+41. Act to override other instruments, etc.― The provisions of this Act shall have effect notwithstanding anything contained in any instrument, resolution or certificate of incorporation of the College.

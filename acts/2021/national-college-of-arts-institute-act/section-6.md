@@ -1,0 +1,4 @@
+6. Teaching and examination at the College.― (1) All academic programs of the College shall be conducted in the prescribed manner and the Board of Governors shall ensure that the courses of study, the curriculum and the practical work at the College are comparable in standard with other similar institutions.
+(2) All recognized teaching in various courses shall be conducted by the College in the prescribed manner and may include lectures, tutorials, discussions, seminars, demonstrations, distance learning and other methods of instruction as well as practical work in the laboratories, hospitals, workshops andother governmental or private organizations.
+(3) The authority responsible for organizing recognized academic programs shall be such as may be prescribed.
+(4) The College shall associate internal and external examiners in the conduct of examinations.

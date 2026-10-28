@@ -1,0 +1,3 @@
+27. Rules.― (1) Subject to the provision of sub-section (2), the Authorities and the other bodies of the College may make Rules, consistent with this Act, to regulate any matter relating to the affairs of the College including Rules to regulate the conduct of business and the time and place of meetings and related matters.
+(2) Rules shall become effective upon approval by the Syndicate.
+(3) Notwithstanding the provisions of sub-section (1), the Rules made by the College before the commencement of this Act shall, in so far as they are not inconsistent with the provisions of this Act, continue in force until they are repealed or amended under this Act.
