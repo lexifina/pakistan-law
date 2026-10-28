@@ -1,0 +1,1 @@
+22. Appointment of Committees by the Authorities. Any Authority may from time to time, constitute such standing, special or advisory committees as it may deem fit, and appoint to such committees persons who are not its members.

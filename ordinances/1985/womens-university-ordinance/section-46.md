@@ -1,0 +1,1 @@
+46. Indemnity. ___ No suit or legal proceeding shall lie against the Federal Government, the University or any Authority, officer or employee of the Federal Government or the University in respect of anything in good faith done or purporting to have been, or intended to be, done under this Ordinance.

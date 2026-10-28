@@ -1,0 +1,1 @@
+47. Removal of difficulties. ___ If any difficulty arises, within twelve months of the coming into force of this Ordinance, as to the implementation of any of the provisions of this Ordinance, the Chancellor may, on the recommendation of the Vice-Chancellor, give appropriate directions to remove such difficulty.

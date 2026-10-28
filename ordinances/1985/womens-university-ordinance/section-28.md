@@ -1,0 +1,2 @@
+28. Inspection and reports.___ (1) Every affiliated college shall furnish such reports, returns and other information as the University may require to enable it to Judge the efficiency of the college.
+(2) The University may call upon any affiliated college to take, within a specified period, such action in respect of any matter mentioned in subsection (1) of section 26 as the University may deem fit.
