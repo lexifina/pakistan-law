@@ -1,0 +1,1 @@
+5. Tenure of office.—The Chairman and members of the Tribunal shall hold office for a period of three years which may be extended by the Federal Government for another term subject to consent of the Chief Justice of Pakistan to the extended term of the Chairman and the consent of the Chairman to the extended term of a member.
