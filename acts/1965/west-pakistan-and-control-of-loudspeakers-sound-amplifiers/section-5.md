@@ -1,0 +1,1 @@
+5. Offences to be cognizable. Notwithstanding anything to the contrary contained in the Code of Criminal Procedure, 1898 (v of 1898), or in any other law for the time being in force, an offence under this Ordinance shall be cognizable within the meaning of the said Code.

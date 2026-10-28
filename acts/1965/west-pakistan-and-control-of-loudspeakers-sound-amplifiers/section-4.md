@@ -1,0 +1,2 @@
+4. Power of seizure. (1) Any police officer not below the rank of Sub-Inspector may seize and take possession of any loudspeaker or sound amplifier used or reasonably suspected to have been used in the commission of an offence under this Ordinance.
+(2) Any loudspeaker or sound amplifier seized or taken possession of under the provisions of this section shall, as soon as may be, be produced before the Court having jurisdiction to try offences under this Ordinance.
