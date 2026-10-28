@@ -1,0 +1,1 @@
+16. Application of specific procedures sought by the requesting country.—A request for assistance shall be executed in accordance with any procedure specified in the request, unless such execution is contrary to the provisions of any law or the Constitution of the Islamic Republic of Pakistan.
