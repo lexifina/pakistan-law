@@ -1,0 +1,1 @@
+19. Reopening of an investigation.—Where it appears to the Secretary that any new and material evidence has become available after completion of the investigation, he may, with the approval of the Minister, direct the Director to re-open the investigation.

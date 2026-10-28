@@ -1,0 +1,1 @@
+39. Standing Orders.—The Director may, with the approval of the Minister, make Standing Orders, not inconsistent with this Act and the rules, to provide for any matter and for which provision is necessary or expedient for carrying out the purpose of this Act.

@@ -1,0 +1,1 @@
+28. Cognizance of offences.—No court shall take cognizance of an offence under this Act except upon a complaint in writing by the Director or an officer of the Bureau authorized by him for this purpose.

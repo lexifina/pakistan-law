@@ -1,0 +1,3 @@
+9. Objective of investigations by the Bureau.—(1) The sole objective of and investigation under this Act shall be the prevention of accidents, serious incidents and incidents and not to apportion blame or liability.
+(2) An investigation under this Act shall not refrain from fully reporting the causes or contributing factors of an accident, serious incident or incident merely because any fault or liability might be inferred from it.
+(3) An investigation under this Act shall be separate from and shall not affect any other proceeding to apportion blame or liability for an accident, serious incident or incident.
