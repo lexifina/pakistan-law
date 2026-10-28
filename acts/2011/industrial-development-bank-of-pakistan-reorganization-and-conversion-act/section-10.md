@@ -1,0 +1,1 @@
+10. Indemnity. No suit, prosecution or other legal proceedings shall lie against the Federal Government, State Bank of Pakistan, IDBP, the Company or any other person for anything which is in good faith done or intended to be done under this Act or any rule or order made thereunder.

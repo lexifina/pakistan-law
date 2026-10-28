@@ -1,0 +1,1 @@
+9. Bar of jurisdiction. No court, tribunal, arbitrator or authority shall question or permit to be called in question, any transfer or order made, anything done or action taken or purported to be made, done or taken under this Act.

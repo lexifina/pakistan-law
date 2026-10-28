@@ -1,0 +1,1 @@
+11. Act to override other laws, etc. The provisions of this Act shall have effect notwithstanding anything contrary contained in any other law for the time being in force, or in any agreement, contract, decree, order or any other instrument whatsoever.

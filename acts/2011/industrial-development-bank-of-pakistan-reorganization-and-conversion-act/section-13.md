@@ -1,0 +1,5 @@
+13. Removal of difficulties. If any difficulty arises in giving effect to any provision of this Act, the Federal Government may make such order, not inconsistent with the provisions of this Act, as may appear to it to be necessary, for the purpose of removing the difficulty:
+Provided that no such power shall be exercised after the expiry of two years from the commencement of this Act.
+14. Repeal. (1) Immediately after the dissolution of IDBP in pursuance of clause (c) of sub-section (2) of section 5, the Industrial Development Bank of Pakistan Ordinance, 1961 (XXXI of 1961), shall stand repealed.
+(2) This Act, save as is provided in sub-section (1) of section 3 and section 8, shall stand repealed after the expiry of a period of eighteen months from its commencement and subject to sub-section (3) the Company shall continue to operate.
+(3) The top management of the Company under section 6, as soon as may be possible after the commencement of this Act, shall make arrangements for a viable public private partnership or privatization of the Company.
