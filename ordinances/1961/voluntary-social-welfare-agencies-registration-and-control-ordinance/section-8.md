@@ -1,0 +1,3 @@
+8. Amendment of the constitution of registered agency.—(1) No amendment of the constitution of a registered agency shall be valid unless it has been approved by the Registration Authority, for which purpose a copy of the amendment shall be forwarded to the Registration Authority.
+(2) If the Registration Authority is satisfied that any amendment of the constitution is not contrary to any of the provisions of this Ordinance or the rules made thereunder, it may, if it thinks fit, approve the amendment.
+(3) Where the Registration Authority approves an amendment of the constitution, it shall issue to the agency a copy of the amendment certified by it, which shall be conclusive evidence that the same is duly approved.
