@@ -1,0 +1,1 @@
+10. Confidentiality of proceedings.__ All proceedings involving application for admission into the Programme and the action taken thereon shall be confidential in nature. No information or documents given or submitted in support thereof shall be released except upon written order of the department or the court of appropriate jurisdiction.

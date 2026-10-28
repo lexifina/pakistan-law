@@ -1,0 +1,2 @@
+3. Application of the Act and over-riding effect.__ (1) The provisions of this Act shall be applicable to the investigation, inquiry and trial of serious offences.
+(2) In case of any inconsistency, the provisions of this Act shall have effect notwithstanding anything inconsistent therewith contained in any provision of the Code of Criminal Procedure, 1898 (Act V of 1898), or in any provision of any other law for the time being in force.

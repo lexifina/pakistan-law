@@ -1,0 +1,2 @@
+11. Annual report.__ (1) The Government shall prepare an annual report relating to the general operation, performance and effectiveness of the Programme which shall be laid before the Parliament.
+(2) The Witness Protection Board or Unit, as the case may be, whenever considers it necessary to do so, present special report to the Government on any matter relating to the Programme which shall be laid before the parliament.
