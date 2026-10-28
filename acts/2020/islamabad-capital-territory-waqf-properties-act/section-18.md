@@ -1,0 +1,1 @@
+18. Use of waqf property and application of income therefrom.—Subject to the provisions of this Act, a waqf property shall be used for the purpose for which it was dedicated or has been used or for any purpose recognized by Islam as religious, pious or charitable, as the chief administrator may deem fit.

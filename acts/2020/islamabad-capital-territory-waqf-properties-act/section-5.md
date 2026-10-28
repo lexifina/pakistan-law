@@ -1,0 +1,2 @@
+5. General appointments.—(1) The chief administrator with the previous sanction of Chief Commissioner, ICT may, from time to time, determine the number, designation and grade of the officers and servants whom he considers necessary to employ for the purpose of this Act and the amount and nature of salary, fees and allowances to be paid to each such officer and servant.
+(2) All persons employed for the purpose of this Act shall be deemed to be public servants within the meaning of section 21 of the Pakistan Penal Code, 1860 (Act XLV of 1860).

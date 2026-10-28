@@ -1,0 +1,2 @@
+7. Waqf manager to obtain and hold information.—(1) Any waqf manager shall also obtain and hold the information as required under sub-section (2) of section 6, and shall ensure that the information is updated in a timely manner as prescribed.
+(2) Any waqf manager shall provide, upon request, any of the information held in accordance with sub-section (1) to the chief administrator in a timely manner as prescribed.

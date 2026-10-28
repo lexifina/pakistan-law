@@ -1,0 +1,1 @@
+14. No temporary injunction or order without prior notice.—No court including District Court or a High Court and any other forum established under any law shall issue an injunctive order without hearing the Government at the first instance and in no case the injunction shall extend for a period beyond six months.
