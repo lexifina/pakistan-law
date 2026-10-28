@@ -1,0 +1,6 @@
+88. Emblems of certain international organizations.___(1) A trade mark which consists of or contains any such emblem, abbreviations or name which is protected under the Paris Convention shall not be registered without the authorization of the international organization concerned, unless it is appears to the Registrar that the use of the emblem, abbreviation or name in the manner proposed—
+(a) is not such as to suggest to the public that a connection exists between the organization and the trade mark; or
+(b) is not likely to mislead the public as to the extent of a connection between the user and the organization.
+(2) The provisions of this section as to emblem of an international organization shall apply equally to anything which from a heraldic point of view imitates any such emblem.
+(3) When under this section the authorization of an international organizations is, or would be, required for the registration of a trade mark, that organization shall be entitled to restrain by injunction any use of the mark in Pakistan without its authorization.
+(4) Nothing in this section shall affect the rights of a person whose bona fide use of the trade mark in question began before the commencement of this Ordinance.

@@ -1,0 +1,2 @@
+92G. Duration and renewal of international registration.___(1) The international registration of a trade mark at the international bureau shall be for a period of ten years and may be renewed for a period of ten years from the expiry of the preceding period.
+(2) Subject to payment of a surcharge prescribed by the rules, a grace period of six months shall be allowed for renewal of the international registration.

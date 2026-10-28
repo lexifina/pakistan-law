@@ -1,0 +1,6 @@
+18. Meaning of “earlier trade mark”.___(1) In this Ordinance, “earlier trade mark” means___
+(a) a registered trade mark or a Convention trade mark as per the Paris Convention which has a date of application for registration earlier than that of the trade mark in question, taking account, where appropriate, of the priorities claimed in respect of the trade marks;
+(b) a trade mark filed under sub-section (1) of section 26; or
+(c) a trade mark which, on the date of application for registration of the trade mark in question, or where appropriate, of the priority claimed in respect of the application was entitled to protection under the Paris Convention as a well known trade mark.
+(2) References in this Ordinance to an earlier trade mark include a trade mark in respect of which an application for registration has been made and which, if registered, would be an earlier trade mark by virtue of clause (a) or (b) of sub-section (1), subject to its being so registered.
+(3) A trade mark shall, within clause (a) or (b) of sub-section (1), whose registration expires continue to be taken into account in determining the registrability of a later mark for a period of one year after the expiry unless the Registrar is satisfied that there was no bona fide use of the mark during two years immediately preceding the expiry.

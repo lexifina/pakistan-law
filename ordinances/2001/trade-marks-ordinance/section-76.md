@@ -1,0 +1,2 @@
+76. Exclusive license defined.___(1) In this Ordinance, an “exclusive license” means a license, whether general or limited, authorizing the licensee to the exclusion of all other persons including the person, granting the license, to use a registered trade mark in the manner authorised by the license and the expression “exclusive licensee” shall be construed accordingly.
+(2) An exclusive licensee shall have the same rights against a successor in title who is bound by the license as he has against the person granting the license.

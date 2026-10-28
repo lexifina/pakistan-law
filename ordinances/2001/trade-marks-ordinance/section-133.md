@@ -1,0 +1,1 @@
+133. Transitional.___The provisions of the Fourth Schedule shall have effect with respect to transitional matters, including the treatment of trade marks registered under the Trade Marks Act, 1940 (V of 1940), and applications for registration and other proceedings pending under that Act, on the commencement of this Ordinance.

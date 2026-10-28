@@ -1,0 +1,3 @@
+37. Alteration of registered trade mark.___(1) Subject to sub-section (2), a registered trade mark shall not be altered in the Register, during the period of registration or on renewal.
+(2) The Registrar may, at the request of the proprietor, allow the alteration of a registered trade mark where the mark includes the proprietor’s name or address and the alteration is limited to alteration of that name or address and does not substantially affect the identity of the mark.
+(3) In case any alteration is made under sub-section (2), the Registrar shall publish such alteration and the objections by any person claiming to be affected by it, in such manner as may be prescribed.

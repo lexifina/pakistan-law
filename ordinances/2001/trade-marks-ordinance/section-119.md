@@ -1,0 +1,1 @@
+119. Burden of proving use of trade mark.___If in any civil proceedings under this Ordinance, if a question arises as to the use to which a registered trade mark has been put, it shall be for the proprietor to show what use has been made of it.

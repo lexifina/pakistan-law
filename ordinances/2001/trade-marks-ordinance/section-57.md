@@ -1,0 +1,9 @@
+57. Notice of seizure.___The [^17][Director General, IPR (Enforcement), Director, IPR (Enforcement) or Collector of Customs or any competent authority under the Custom Act, 1969 (IV of 1969)] shall, as soon as practicable—
+(a) give, either personally or by urgent post, to the importer, consignee or owner of the goods a notice of seizure in writing identifying the goods and stating that they have been seized under section 56; and
+(b) give to the applicant a notice in writing___
+(i) identifying the goods and stating that they have been seized under section 56;
+(ii) giving the full name and address of the importer, consignee or owner of the goods and any information that the [^17][Director General, IPR (Enforcement), Director, IPR (Enforcement) or Collector of Customs or any competent authority under the Custom Act, 1969 (IV of 1969)] has and believes, on reasonable grounds, to be likely to help the applicant to identify the importer or the owner of the goods; and
+(iii) stating that the goods shall be released to the importer, consignee or owner of the goods unless the applicant brings an action for infringement of the registered trade mark in respect of goods before [^18][an IP Tribunal] having jurisdiction in the matter and gives the [^18][Director General, IPR (Enforcement), Director, IPR (Enforcement) or Collector of Customs or any competent authority under the Custom Act, 1969 (IV of 1969)] notice in writing of the action, within the period of ten working days after the applicant has been given the notice, or if the [^18][Director General, IPR (Enforcement), Director, IPR (Enforcement) or Collector of Customs or any competent authority under the Custom Act, 1969 (IV of 1969)] extends the period under sub-section (1) of section 60, within such extended period.
+
+[^17]: Subs. by Act No. LVIII of 2023, ss. 17-19
+[^18]: Subs. by Act No. LVIII of 2023, ss. 19-21.

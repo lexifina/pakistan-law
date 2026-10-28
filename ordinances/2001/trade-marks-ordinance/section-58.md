@@ -1,0 +1,3 @@
+58. Forfeiture of goods.___If the importer, consignee or owner of any seized goods, at any time before the applicant starts an action for infringement of the trade mark in respect of goods, by notice in writing to the [^18][Director General, TPR (Enforcement), Director, TPR (Enforcement) or Collector of Customs or any competent authority under the Custom Act, 1969 (IV of 1969)], gives consent to the goods being forfeited by the Collector of Customs, the goods shall be so forfeited by the [^18][Director General, TPR (Enforcement), Director, TPR (Enforcement) or Collector of Customs or any competent authority under the Custom Act, 1969 (IV of 1969)].
+
+[^18]: Subs. by Act No. LVIII of 2023, ss. 19-21.

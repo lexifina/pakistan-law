@@ -1,0 +1,1 @@
+130. Power to make reciprocal arrangements with any other Government.___Without prejudice to the provisions of Articles 3 and 4 of the Agreement on Trade Related Aspects of Intellectual Property Rights. 1994, the Federal Government may, by notification in the official Gazette, enter into reciprocal arrangements with other Governments for the purpose of this Ordinance.

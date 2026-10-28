@@ -1,0 +1,1 @@
+91. Nature of goods or services to which a mark is to be applied.___For the purposes of registration of a trade mark under this Ordinance, the nature of goods or services to which a trade mark is to be applied shall in no case form an obstacle to the registration of the trade mark.

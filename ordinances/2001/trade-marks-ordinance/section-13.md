@@ -1,0 +1,2 @@
+13. Publication of an alphabetical index of classification of goods and services.___(1) The Registrar may publish in the prescribed manner an alphabetical index of classification of goods and services.
+(2) Where any goods or services are not specified in the alphabetical index of goods and services, published under sub-section (1), the classification of goods and services shall be determined by the Registrar in accordance with sub-section (2) of section 12.

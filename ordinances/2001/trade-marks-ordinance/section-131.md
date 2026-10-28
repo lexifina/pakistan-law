@@ -1,0 +1,1 @@
+131. Power of the High Court to make rules.___The High Court may make rules consistent with the provisions of this Ordinance as to the conduct and procedure of all proceedings under this Ordinance before it.

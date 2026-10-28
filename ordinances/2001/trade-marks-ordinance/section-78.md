@@ -1,0 +1,18 @@
+78. Exclusive licensee having rights and remedies of assignee.___(1) An exclusive license may provide that the licensee shall have, to such extent as may be provided by the license, the same rights and remedies in respect of matters occurring after the grant of the license as if the license had been assignment. Where or to the extent that such provision is made, the licensee shall be entitled, subject to the provisions of the license and to the following provisions of this section, to bring infringement proceedings, against any person other than the proprietor, in his own name.
+(2) Any such rights and remedies of an exclusive licensee shall be concurrent with those of the proprietor of the registered trade mark, and references to the proprietor of a registered trade mark in this Ordinance relating to infringement shall be construed accordingly.
+(3) In an action brought by an exclusive licensee by virtue of this section, a defendant may avail himself of any defence which would have been available to him if the action had been brought by the proprietor of the registered trade mark.
+(4) Where proceedings for infringement of a registered trade mark brought by the proprietor or an exclusive licensee relate wholly or partly to an infringement in respect of which they have concurrent rights of action, the proprietor or, as the case may be, exclusive licensee may not, without the leave of the High Court or [^27][an IP Tribunal], proceed with the action unless the other is either joined as plaintiff or added as a defendant:
+Provided that this shall not affect the granting of interlocutory relief on an application by a proprietor or exclusive licensee alone.
+(5) A person who is added as a defendant as mentioned in sub-section (4) shall not be made liable for any costs in the action unless he takes part in the proceedings.
+(6) Where an action for infringement of a registered trade mark is brought which relates wholly or partly to an infringement in respect of which the proprietor and an exclusive licensee have or had concurrent rights of action—
+(a) the High Court or [^27][an IP Tribunal] shall in assessing damages take into account___
+(i) the terms of the license; and
+(ii) any pecuniary remedy already awarded or available to either of them in respect of the infringement;
+(b) no account of profits shall be directed if an award of damages has been made, or an account of profits has been directed, in favour of the other of them in respect of the infringement; and
+(c) the High Court or [^28][an IP Tribunal] shall if an account of profits is directed apportion the profits between them as it, subject to any agreement between them, considers just.
+(7) The provisions of sub-section (6) shall apply whether or not the proprietor and the exclusive licensee are both parties to the action, the High Court or [^28][an IP Tribunal] may give such directions as it thinks fit as to the extent to which the party to the proceedings shall hold the proceeds of any pecuniary remedy on behalf of the other.
+(8) The proprietor of a registered trade mark shall inform any exclusive licensee who has a concurrent right of action before applying for an order under section 48, and the High Court or [^28][an IP Tribunal] may, on the application of the licensee, make such order under that section as it thinks fit having regard to the license.
+(9) The provision of sub-sections (4) to (8) shall have effect subject to any agreement to the contrary between the exclusive licensee and the proprietor.
+
+[^27]: Subs. by Act No. LVIII of 2023, s.31-32
+[^28]: Subs. by Act No. LVIII of 2023, s.32.
