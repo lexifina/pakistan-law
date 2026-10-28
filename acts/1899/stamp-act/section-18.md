@@ -1,0 +1,6 @@
+18. Instruments other than bills and notes executed out of Pakistan.— (1) Every instrument chargeable with duty executed only out of [^39][Pakistan], and not being a bill of exchange, [^40]* or promissory note, may be stamped within three months after it has been first received in [^39][Pakistan].
+(2) Where any such instrument cannot, with reference to the description of stamp prescribed therefor, be duly stamped by a private person, it may be taken within the said period of three months to the Collector, who shall stamp the same, in such manner as the [^38][provincial Government] may by rule prescribe, with a stamp of such value as the person so taking such instrument may require and pay for.
+
+[^38]: Subs. by A.O., 1964, Art. 2 and Sch., for “Collecting Government” which had been subs. by A.O., 1937, for “G. G. in C.”.
+[^39]: Subs. by the Central Laws (Statute Reform) Ordinance, 1960 (Ordinance No. XXI of 1960), s. 3 and 2nd Sch. (with effect from the 14th October, 1955), for “the Provinces and the Capital of the Federation” which had been subs. by A.O., 1949, Arts. 3(2) and 4, for “British India”.
+[^40]: The word “cheque” rep. by the Indian Finance Act, 1927 (Act No. V of 1927), s.5.

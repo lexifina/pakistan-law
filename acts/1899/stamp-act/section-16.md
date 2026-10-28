@@ -1,0 +1,3 @@
+16. Denoting duty.—Where the duty with which an instrument is chargeable, or its exemption from duty, depends in any manner upon the duty actually paid in respect of another instrument, the payment of such last-mentioned duty shall, if application is made in writing to the Collector for that purpose, and on production of both the instruments, be denoted upon such first-mentioned instrument, by endorsement under the hand of the Collector or in such other manner. (if any) as the [^38][Provincial Government] may by rule prescribe.
+
+[^38]: Subs. by A.O., 1964, Art. 2 and Sch., for “Collecting Government” which had been subs. by A.O., 1937, for “G. G. in C.”.

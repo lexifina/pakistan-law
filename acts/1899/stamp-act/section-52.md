@@ -1,0 +1,4 @@
+52. Allowance for misused stamps.—
+(a) When any person has inadvertently used, for an instrument chargeable with duty, a stamp of a description other than that prescribed for such instrument by the rules made under this Act, or a stamp of greater value than was necessary, or has inadvertently used any stamp for an instrument not chargeable with any duty; or
+(b) when any stamp used for an instrument has been inadvertently rendered useless under section 15, owing to such instrument having been written in contravention of the provisions of section 13 ;
+the Collector may, on application made within six months after the date of the instrument, or, if it is not dated, within six months after the execution thereof by the person by whom it was first or alone executed, and upon the instrument, if chargeable with duty, being re-stamped with the proper duty, cancel and allow as spoiled the stamp so misused or rendered useless.

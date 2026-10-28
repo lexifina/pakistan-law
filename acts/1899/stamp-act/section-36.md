@@ -1,0 +1,1 @@
+36. Admission of instrument where not to be questioned.—Where an instrument has been admitted in evidence, such admission shall not, except as provided in section 61, be called in question at any stage of the same suit or proceeding on the ground that the instrument has not been duly stamped.

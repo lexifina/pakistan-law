@@ -1,0 +1,14 @@
+8. Bonds, debentures or other securities, issued on loans under Act XI, 1879.— (1) Notwithstanding anything in this Act, any local authority raising a loan under the provisions of the [^25][Local Authorities Loans Act, 1914 (IX of 1914)] or of any other law for the time being in force, by the issue of bonds, debentures or other securities, shall, in-respect of such loan, be chargeable with a duty of [^26][one per centum] on the total amount of the bonds, debentures or other securities issued by it, and such bonds, debentures or other securities need not be stamped, and shall not be chargeable with any further duty on renewal, consolidation, sub-division or otherwise.
+(2) The provisions of sub-section (1) exempting certain bonds, debentures or other securities from being stamped and from being chargeable with certain further duty shall apply to the bonds, debentures or other securities of all outstanding loans of the kind mentioned therein, and all such bonds, debentures or other securities shall be valid, whether the same are stamped or not:
+[^27][* * * * * * *]
+(3) In the case of wilful neglect to pay the duty required by this section, the local authority shall be liable to forfeit to the Government a sum equal to ten per centum upon the amount of duty payable, and a like penalty for every month after the first month during which the neglect continues.
+9. [^28][The Provincial Government] may, by rule or order published in the [^29][official Gazette],–
+(a) Power to reduce, remit or compound duties. reduce or remit, whether prospectively or retrospectively, in the whole or any part of [^30][the territories under its administration], the duties with which any instruments or any particular class of instruments, or any of the instruments belonging to such class, or any instruments when executed by or in favour of any particular class of persons, or by or in favour of any members of such class, are chargeable, and
+(b) provide for the composition or consolidation of duties in the case of issues by any incorporated company or other body corporate of debentures, bonds or other marketable securities.
+
+[^25]: Subs. by the Federal Laws (Revision and Declaration) Ordinance, 1981 (Ordinance No. XXVII of 1981) s. 5 and Sch. IV for “Local Authorities Loan Act, 1879”. (Only to the extent of Islamabad Capital Territory).
+[^26]: Subs. by the Indian Stamp (Amendment) Act, 1910 (Act No. VI of 1910), s. 2, for “eight annas per centum”.
+[^27]: Omitted by the Federal Laws (Revision and Declaration) Ordinance, 1981 (Ordinance No. XXVII of 1981) s. 5 and Sch. IV (Only to the extent of Islamabad Capital Territory).
+[^28]: The original words “The G. G. in C.” were first subs. by A.O., 1937, and then amended by A.O., 1964, Art. 2 and Sch., to read as above.
+[^29]: Subs. by A. O., 1937, for “Gazette of India”.
+[^30]: Subs. ibid., for “British India”.

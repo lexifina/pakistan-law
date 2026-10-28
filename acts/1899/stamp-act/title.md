@@ -1,0 +1,1 @@
+# THE STAMP ACT, 1899

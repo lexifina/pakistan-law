@@ -1,0 +1,2 @@
+14. Only one instrument to be on same stamp.—No second instrument chargeable with duty shall be written upon a piece of stamped paper upon which an instrument chargeable with duty has already been written:
+Provided that nothing in this section shall prevent any endorsement which is duly stamped or is not chargeable with duty being made upon any instrument for the purpose of transferring any right created or evidenced thereby, or of acknowledging the receipt of any money or goods the payment or delivery of which is secured thereby. .

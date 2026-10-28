@@ -1,0 +1,2 @@
+6. Instruments coming within several descriptions in Schedule I.— Subject to the provisions of the last preceding section, an instrument so framed as to come within two or more of the descriptions in Schedule I, shall, where the duties chargeable thereunder are different, be chargeable only with the highest of such duties:
+Provided that nothing in this Act contained shall render chargeable with duty exceeding one rupee a counterpart or duplicate of any instrument chargeable with duty and in respect of which the proper duty has been paid.

@@ -1,0 +1,2 @@
+46. Non-liability for loss of instruments sent under section 38.—(1) If any instrument sent to the Collector under section 38, sub-section (2), is lost, destroyed or damaged during transmission, the person sending the same shall not be liable for such loss, destruction or damage.
+(2) When any instrument is about to be so sent, the person from whose possession it came into the hands of the person impounding the same, may require a copy thereof to be made at the expense of such first-mentioned person and authenticated by the person impounding such instrument.

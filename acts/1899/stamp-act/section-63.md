@@ -1,0 +1,1 @@
+63. Penalty for failure to cancel adhesive stamp.— Any person required by section 12 to cancel an adhesive stamp, and failing to cancel such stamp in manner prescribed by that section, shall be punishable with fine which may extend to one hundred rupees.
