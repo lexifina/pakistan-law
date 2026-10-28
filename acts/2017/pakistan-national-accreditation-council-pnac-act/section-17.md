@@ -1,0 +1,2 @@
+17. Prohibition of improper use of marks.—(1) No person shall in relation to any article, product, process or service or in any trademark or design, use the Council’s mark to give that impression, except under a valid registration certificate issued by the Council or its authority.
+(2) Subject to section 18, any person or a group who contravenes provision of sub-section (1) shall be liable for punishment by the court to the extent that any financial gain in respect of which the contravention is established shall be forfeited to the Council.

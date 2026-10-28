@@ -1,0 +1,2 @@
+12. Director General.— (1) The Federal Government shall appoint a Director General of the Council, for a term of four years, extendable further for another term, on terms and conditions as may be prescribed.
+(2) The person having MS or MSc. degree in natural or physical sciences, or equivalent in engineering sciences from HEC recognized University, with at least fifteen years experience in management at top level position including five years experience in the field of accreditation, shall be eligible to be appointed as Director-General.

@@ -1,0 +1,2 @@
+18. Punishment for improper use of Council mark.__ (1) Any person who contravenes the provisions of section 17 shall, in addition to the punishment specified under sub-section (2) of section 17, be punishable with imprisonment of either description for a term which may extend to one year, or with a fine extending upto one million rupees but shall not be less than one hundred thousand rupees, or with both.
+(2) A Court convicting a person under this section may direct that any articles in respect of which the contravention was made shall be forfeited to the Government.
