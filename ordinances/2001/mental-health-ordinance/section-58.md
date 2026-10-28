@@ -1,0 +1,2 @@
+58. Removal of difficulties._____ If any difficulty arises in giving effect to any of the provisions of this Ordinance, the President may make such order, not inconsistent with the provision of this Ordinance, as may appear to him to be necessary for the purpose of removing the difficulty:
+Provided that no such power shall be exercised after the expiry of two years from the coming into force of this Ordinance.

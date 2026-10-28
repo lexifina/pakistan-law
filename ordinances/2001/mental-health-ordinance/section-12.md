@@ -1,0 +1,6 @@
+12. Admission for assessment in cases of urgency.__ In any case of urgent necessity, an application for admission for assessment may be made in respect of a patient in accordance with the following provisions
+(i) an urgent application may be made either by a relative of the patient or medical officer; and every such application shall include a statement that it is of urgent necessity for the patient to be admitted and detained under this section and that compliance with the provisions relating to an application for treatment, under section 11 would involve undesirable delay;
+(ii) an urgent application shall be sufficient in the first instance if founded on the medical recommendation of an approved psychiatrist or his nominated medical officer and if practicable, the nominated medical officer shall not be the same medical officer referred to in sub‑clause (i) above;
+(iii) an urgent application shall cease to have effect after 72 hours from the time when the patient is admitted under this section to the psychiatric facility unless
+(a) the second medical recommendation required by section 11 above is given and received by the psychiatrist in-charge of the facility within the said period of 72 hours; and
+(b) that such recommendation and the recommendation referred to in sub‑clause (ii)above together comply with all the requirements as contained in section 17.

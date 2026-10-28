@@ -1,0 +1,12 @@
+11. Admission for treatment.__ (1) A patient may be admitted to a psychiatric facility and detained there for the period allowed by the following provisions, in pursuance of an application made in accordance with this section.
+(2) An application for admission for treatment may be made in respect of a patient on the grounds that—
+(a) he is suffering from mental illness, severe mental impairment severe personality disorder or mental impairment and his mental disorder is of a nature of degree which makes it appropriate for him to receive medical treatment in a psychiatric facility; and
+(b) it is necessary for the health or safety of the patient or for the protection of other persons that he should receive such treatment and it cannot be provided unless he is admitted under this section.
+(3) An application for admission for treatment shall be founded on the written recommendations, on the prescribed form of two medical officers, one of whom shall be an approved psychiatrist, including in each case a statement that in the opinion of such medical officers the conditions set out in sub-section (2) above are complied with; and each such recommendation shall include
+(a) such particulars as may be prescribed of the grounds for that opinion so far as it relates to the conditions set out in clause (a) of that sub­section; and
+(b) a statement of the reason for that opinion so far as it relates to the conditions set out in clause (b) of that sub-section, specifying, whether other methods of dealing with the patient are available and, if so, why they are not appropriate.
+(4) A patient admitted to a psychiatric facility in pursuance of an application under this section may be detained in a psychiatric facility, for a period not exceeding six months allowed by clause (b) of section 9 but shall not be so detained or kept for any longer period unless the authority for his detention is renewed under this section
+(a) the authority for detention of a patient may, unless the patient has previously been discharged, be renewed from the expiration of the period of six months referred to in sub- section above, for a further period of six months;
+(b) from the expiration of any period of renewal under clause (a) above, for a further period of one year, if necessary and so on for periods of one year at a time.
+(5) The patient, his relative or guardian may file an appeal against the order of detention under this section to a Court of Protection:
+Provided that only one appeal shall lie during the subsistence of each period of detention.

@@ -1,0 +1,4 @@
+45. Inquiry by Court of Protection into cessation of mental disorder.____(1) Where the Court has reason to believe that any person who was found to be mentally disordered has ceased to be mentally disordered it may direct any court subordinate to it to inquire whether such person has ceased to be mentally disordered.
+(2) An inquiry under sub-section (1) shall, so far as may be, conducted under this Ordinance.
+(3) If after an inquiry under this section, it is found that the mental disorder of a person has ceased, the Court shall order all actions taken in respect of such person under this Ordinance to be set aside on such terms and conditions as that Court thinks fit to impose.
+(4) Without prejudice to the generality powers given above, the court shall have powers to make such orders and give such directions as the Court thinks fit, for the betterment of such a person.

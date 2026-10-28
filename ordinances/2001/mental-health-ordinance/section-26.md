@@ -1,0 +1,1 @@
+26. Notice about serious illness or death.____ If a patient becomes seriously ill or dies, that fact shall be notified to his nearest relatives, if known or on whose application the patient was admitted and also to the authority by whom the patient was referred to the psychiatric facility.

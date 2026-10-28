@@ -1,0 +1,1 @@
+49. Cases of attempted suicide.___ A person who attempt is suicide shall be assessed by an approved psychiatrist and if found to be suffering from a mental disorder shall be treated appropriately under the provisions of this Ordinance.

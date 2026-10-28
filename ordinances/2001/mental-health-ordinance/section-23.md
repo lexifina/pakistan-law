@@ -1,0 +1,2 @@
+23. Discharge of a detained person found not to be mentally dis-ordered after
+assessment.____ If any person admitted in a psychiatric facility is subsequently found not to be mentally disordered and is capable of taking care of himself and managing his affairs, an approved psychiatrist, of the said facility shall forthwith, discharge such person from the psychiatric facility and notify the fact to the referring authority and the nearest relative.

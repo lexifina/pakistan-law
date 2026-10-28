@@ -1,0 +1,9 @@
+## PERSON ADMITTED IN A PSYCHIATRIC FACILITY
+47. Liability to meet cost of maintenance of a patient admitted psychiatric facility.— (1) The cost of maintenance of a patient admitted in a Government owned psychiatric facility shall be borne by the Government:
+Provided that____
+(a) the authority which made the order has not taken an undertaking from any person to bear the cost of maintenance of such a person; and
+(b) there is no provision for bearing the cost of maintenance of such person by the Court of Protection under this Ordinance.
+(2) Person holding public office or a public servant who is paid by the Government and is mentally disordered shall continue to receive benefit as per entitlement even after he retires voluntarily or on attainment of the age of superannuation or on the basis of medical invalidation.
+(3) In case of defence personnel, the paymaster of the military circle within which any psychiatric facility is situated shall pay to the officer in charge of such facility the cost of maintenance of such a mentally disordered person received and detained therein under this Ordinance.
+(4) Where any such person admitted in a psychiatric facility has an estate or where any person legally bound to maintain such person has the means to maintain such person, the Government or local authority liable to bear the cost of maintenance of such a person under any law, for the time being in force, may make an application to the Court within whose jurisdiction the estate of such a person is situated or the person legally bound to maintain the said person and having the means therefore resides, for an order authorizing it to apply his estate towards the cost of maintenance or directing the legally bound person to bear the costs of maintenance.
+(5) Nothing contained in the foregoing provisions shall be deemed to absolve a person legally bound to maintain a mentally disordered person from maintaining such a person.
