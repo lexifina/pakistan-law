@@ -1,0 +1,1 @@
+18. Continuance of association. An association shall not be deemed to have ceased to exist by reason only of any formal act of dissolution or change of title, but shall be deemed to continue so long as any actual combination for the purposes of such association continues between any members thereof.
