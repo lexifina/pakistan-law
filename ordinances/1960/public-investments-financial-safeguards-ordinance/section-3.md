@@ -1,0 +1,7 @@
+3. Power to appropriate Government to prescribe procedures, etc., in certain cases.—
+(1) Where any corporation, institution or undertaking, whether incorporated in pursuance of a[^6][Federal] or Provincial law or not so incorporated, has been established by Government with the aid of public revenues, the appropriate Government shall, notwithstanding anything in any law, or in any instrument, deed or other document relating to such corporation, institution or undertaking, have power—
+(a) to prescribe financial procedures, including procedures for internal financial, control in respect of matters relating to the receipt and expenditure of moneys and sanctions thereto;
+(b) to give general or special financial directions to such corporations, institutions and undertakings; and (c) to depute such of its officer or officers to scrutinize their financial procedures and transactions as it may think necessary.
+(2) Where any procedure is prescribed under clause (a) of sub-section (1), or any financial direction is given, or officer deputed, under clause (b) or clause (c) thereof, it shall be the duty of the Corporation, institution or undertaking concerned to comply with the procedure or direction, or, as the case may be, to receive the officer and afford him every convenient means of fulfilling the purpose of his deputation.
+
+[^6]: Subs. by F.A.O., 1975 Art.2 and Table, for “Centre” which was previously sub. by A.O. 1964, Art.2 and Sch., for “Federation”.
