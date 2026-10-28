@@ -1,0 +1,1 @@
+8. Fish that shall not be taken. No person shall kill, capture, or possess any species of fish specified in the second column of the First Schedule, of a size less than that specified in the third column of the said Schedule against such species.

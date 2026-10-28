@@ -1,0 +1,1 @@
+20. Confiscation of any net trap, cage etc. The Court may order the confiscation of any net, trap, cage or other contrivance for taking fish, or fixed engine employed in the commission of an offence under this Ordinance.

@@ -1,0 +1,2 @@
+4. Powers of the Director to lease out any water other than private water. (1) The Director of Fisheries, or such other officer as he may empower in this behalf by general or special order in writing, may, for a period not exceeding three years, lease put, on such conditions as may be prescribed, the right to catch fish in any water other than private water.
+(2) Any amount due to Government under the provisions of sub-section (l),and remaining unpaid one month after it has become so due, may be recovered as arrears of land revenue.

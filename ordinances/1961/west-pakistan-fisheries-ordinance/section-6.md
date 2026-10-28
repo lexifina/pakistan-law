@@ -1,0 +1,1 @@
+6. Destruction of fish by explosive. No person shall use 1[any dynamite, electric shock or other explosive subs tance] in any water with intent there by to catch or destroy any of the fish that may be therein.
