@@ -1,0 +1,1 @@
+6. Removal of difficulties.___ If any difficulty arises in giving effect to any of the provision of this Ordinance, the Federal Government may make such order, not inconsistent with the provisions of this Ordinance, as may appear to be necessary for the purpose of removing the difficulty.
