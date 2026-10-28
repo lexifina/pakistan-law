@@ -1,0 +1,1 @@
+4. Abolition of privy purses and withdrawal of other privileges. The right of a Ruler to a privy purse, and all other privileges or titles guaranteed or granted to a Ruler by or under any Instrument of Accession, agreement or under any law, are hereby abolished.
