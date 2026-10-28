@@ -1,0 +1,2 @@
+13. Appointment of Chairperson.— (1) The Ministry of Human Rights in consultation with Ministry of Information and Broadcasting shall, invite suggestions for appointment as Chairperson of the Commission and, after proper scrutiny, shall submit a list of three persons to the Federal Government.
+(2) The Federal Government shall appoint a Chairperson from the names submitted by the Ministry of Human Rights.

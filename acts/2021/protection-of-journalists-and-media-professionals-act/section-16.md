@@ -1,0 +1,4 @@
+16. Terms and conditions of service of members including Chairperson.— The salary of the Chairperson and other administrative allowances payable to, and terms and conditions of service of the members, shall be such as may be prescribed by the Federal Government in consultation with the Commission.
+(2) The salary of the Chairperson and other administrative expenses of the Commission shall be made from funds allocated by the Federal Government: Provided that neither the salary of Chairperson and allowances nor the terms and conditions of service of a member shall be 'varied to his/her disadvantage after the appointment:
+Provided further that the members of the commission shall, based on their areas of competence and expertise, perform their functions in an honorary capacity to assist the Chairperson of the
+Commission.

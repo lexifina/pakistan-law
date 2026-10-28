@@ -1,0 +1,3 @@
+6. Good faith obligation of journalists and media professionals. —(1) All journalists and media professionals must respect the rights or reputations of others and not produce material that advocates national, racial, ethnic, religious, sectarian, linguistic, cultural or gender-based hatred, which may constitute incitement to discrimination, hostility or violence.
+(2) All journalists and media professionals must not engage in the dissemination of material known by such an individual to be false or untrue.
+(3) The journalists who fail to fulfill obligations in sub-section (1) and (2) will be tried in accordance with the relevant laws.

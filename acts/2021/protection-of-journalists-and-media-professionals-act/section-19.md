@@ -1,0 +1,2 @@
+19. Inquiry into complaints.— The Commission, while inquiring into complaints by a journalist, media professional or other duly authorized individual on behalf of such journalist or media professional, may call for information from the Federal Government, a Provincial Government, the intelligence agencies or any other authority or organization, subordinate thereto, within such time as may be specified by it:
+Provided that if the information or report is not received within the time stipulated by the Commission, it may proceed to inquire into the complaint on its own.
