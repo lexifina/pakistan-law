@@ -1,0 +1,2 @@
+5. Classification of hotels and lodging-houses.___(1) The Controller may, by order in writing, classify all hotels and lodging houses into categories according to the standard of board, lodging and service provided by them, for the purpose of determination of fair rates.
+(2) Nothing in sub-section (1) shall be deemed to prevent the determination of fair rates by the Controller in relation to any hotel or lodging-house, irrespective of any category in which it may have been placed, or whether it has been so classified.

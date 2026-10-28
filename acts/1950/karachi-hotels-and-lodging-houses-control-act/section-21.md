@@ -1,0 +1,1 @@
+21. Bar of suits. No suit or other legal proceeding shall lie against the Controller or any person acting under his orders, in respect of anything which is in good faith done or intended to be done under this Act.

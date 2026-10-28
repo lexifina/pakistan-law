@@ -1,0 +1,1 @@
+17. Penalty for disobeying reservation order. Any manager of a hotel or owner of a lodging-house who fails when required by notice under sub-section (3) of section 9, to make reserved accommodation available to the Controller in compliance with the said sub-section, shall, unless he proves that the failure was due to circumstances beyond his control, be punishable with fine.

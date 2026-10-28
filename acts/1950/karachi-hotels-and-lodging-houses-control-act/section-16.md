@@ -1,0 +1,1 @@
+16. Penalty for failing to display fair rates and accommodation, etc. Any manager of a hotel or owner of a lodging-house who fails to display the fair rates and the limit of guests for each room or other unit of accommodation fixed by the Controller, as required by section 8, shall be punishable with fine.
