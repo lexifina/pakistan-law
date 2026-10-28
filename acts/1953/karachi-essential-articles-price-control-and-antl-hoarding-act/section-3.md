@@ -1,0 +1,3 @@
+3. Power to fix prices and to require marking of prices.___(1) The 1[Commissioner] may, by notification, fix the maximum prices above which no essential article shall be sold by any wholesaler, retailer, trader or any other person, and the prices so fixed may be different in different localities.
+(2) The 1[Commissioner] may, by notification, require any trader to mark essential articles with the sale prices fixed under sub‑section (1), in such manner as may be prescribed.
+(3) The 1[Commissioner] may, by order in writing, require any trader to exhibit a list of essential articles with prices fixed under sub‑section (1) at convenient place of his shop premises as prescribed.

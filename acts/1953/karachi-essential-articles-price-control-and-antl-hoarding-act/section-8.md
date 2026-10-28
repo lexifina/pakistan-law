@@ -1,0 +1,1 @@
+8. Prohibition against withholding of sales. No wholesaler, retailer or trader shall, unless previously authorised in writing to do so by the 1[Commissioner], withhold from sale or refuse to sell to any person any essential article within the limits as to quantity imposed by or under this Act.
