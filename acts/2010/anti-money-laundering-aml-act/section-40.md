@@ -1,0 +1,1 @@
+40. Members etc., to be public servants.—The Director General, Members of the National Executive Committee and General Committee, and other officers and employees of the FMU, investigating officer and the subordinate officers to him shall be deemed to be public servants within the meaning of section 21 of the Pakistan Penal Code, 1860 (Act XLV of 1860).

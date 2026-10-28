@@ -1,0 +1,1 @@
+7G. Compliance program.— Every reporting entity shall implement compliance management arrangements, including the appointment of a compliance officer at a management level and training programs, having regard to the money laundering and terrorism financing risks and the size of the business during the course of their activities subject to this Act and as prescribed.

@@ -1,0 +1,6 @@
+[^40][37. Offences by legal persons.— (1) Where a legal person commits an offence under this Act, every person thereof who at the time when the offence was committed was responsible for such commission of offence shall be deemed to be guilty of the offence and shall be liable to be proceeded against and punished accordingly:
+Provided that nothing contained in this sub-section shall render any natural person liable to punishment if he proves that the contravention took place without his knowledge or that he exercised all due diligence to prevent such contravention.
+(2) Notwithstanding anything contained in sub-section (1), where an offence under this Act is committed by a legal person and it is proved that the contravention has taken place with the consent, connivance or knowledge of any director, manager, secretary or other officer of any legal person, such director, manager, secretary or other officer shall also be deemed to be guilty of the contravention and shall be liable to be proceeded against and punished accordingly.
+Explanation.— For the purposes of this section, “director” in relation to a firm, means a partner in the firm.]
+
+[^40]: Subs. by Anti-Money Laundering (Second Amendment) Act, 2020 (Act No. XXX of 2020), s. 17.

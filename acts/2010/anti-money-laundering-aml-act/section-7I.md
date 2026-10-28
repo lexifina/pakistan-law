@@ -1,0 +1,1 @@
+7I. Sanctions for reporting entities.—If any reporting entity or natural person contravenes any of the provisions of sections 7(1), 7(3) to 7(6) and 7A to 7H, it may be subjected to sanctions, as mentioned under clause (h) of section 6A and as may be prescribed.

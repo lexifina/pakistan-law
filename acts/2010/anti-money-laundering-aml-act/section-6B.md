@@ -1,0 +1,1 @@
+6B. International cooperation by regulators.— The regulators as specified in clause 1 of Schedule IV shall co-operate with their foreign counterparts and shall make reciprocal arrangements to be reduced in writing to share, request and receive information relating to the requirements of this Act and any regulations made thereunder.

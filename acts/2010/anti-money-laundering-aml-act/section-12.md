@@ -1,0 +1,3 @@
+[^20][12. No civil or criminal proceedings against reporting entities in certain cases.— Save as otherwise provided in section 7, the reporting entities and their officers including but not limited to directors, chief executive, chief financial officer, employees, agents of the reporting entity or other authorized officers of a reporting entity shall not be liable to any civil, criminal or disciplinary proceedings against them for furnishing information required under this Act or the rules or regulations made thereunder in good faith.]
+
+[^20]: Subs. by Anti-Money Laundering (Second Amendment) Act, 2020 (Act No. XXX of 2020), s. 10.

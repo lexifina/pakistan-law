@@ -1,0 +1,3 @@
+46. Validation of actions, etc.— Anything done, actions taken, orders passed, instruments made, notifications issued, agreements made, proceedings initiated, processes or communication issued, powers conferred, assumed or exercised, by the [^43][Federal Government], Financial Monitoring Unit [^43][*] or its officers on or after the 5th January, 2008 and before the commencement of this Act, shall be deemed to have been validly done, made, issued, taken, initiated, conferred, assumed, and exercised and provisions of the Act shall have, and shall be deemed always to have had, effect accordingly.
+
+[^43]: Inser. and omitted by Anti-Money Laundering (Amendment) Act, 2015 (Act No. XXIII of 2015), s. 28.

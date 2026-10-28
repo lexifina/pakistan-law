@@ -1,0 +1,1 @@
+43. Power to make rules.—The Federal Government may in consultation with the National Executive Committee and by notification in the official Gazette, make rules for carrying out the purposes of this Act.

@@ -1,0 +1,5 @@
+10. Vesting of property in Federal Government.—where an order of forfeiture has been made under sub-section (6) of section 9 in respect of any property of a person, all the rights and title in such property shall vest absolutely in the Federal Government free from all encumbrances:
+Provided that where the Court, after giving an opportunity of being heard to any other person interested in the property attached under section 8, or seized under section 14, is of the opinion that any encumbrance on the property or leasehold interest has been created with a view to defeat the provisions of this Act, it may, by order, declare such encumbrance or leasehold interest to be void and thereupon the aforesaid property shall vest in the Federal Government free from such encumbrances or leasehold interest:
+Provided further that nothing in this section shall operate to discharge any person from any liability in respect of such encumbrances, which may be [^19][legally] enforced against such person [^19][***].
+
+[^19]: Inser. and omitted by Anti-Money Laundering (Amendment) Act, 2015 (Act No. XXIII of 2015), s. 10.
