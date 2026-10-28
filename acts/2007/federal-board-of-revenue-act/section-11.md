@@ -1,0 +1,4 @@
+11. Budget and accounts of the Board.(1) The Board shall, in respect of each financial year, in accordance with the prescribed financial procedure, prepare its accounts of the receipts and payments and budget estimates and submit the same to the Finance Division for further process.
+(2) Once the budget has been approved, the Board shall have the full powers to incur expenditure, or re-appropriate funds, subject to any general or specific instructions that the Finance Division or any other competent forum or authority may from time to time issue in this regard.
+(3) The Board shall maintain its accounts in accordance with the procedure prescribed by the Controller General of Accounts and such accounts shall be audited by the Auditor-General of Pakistan.
+(4) The Board shall provide an annual financial report to the Federal Government.

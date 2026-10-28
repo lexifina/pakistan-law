@@ -1,0 +1,2 @@
+7. Representation to the Chairman.(1) Any person aggrieved by any action done or taken for the enforcement of the fiscal laws or due to any act of maladministration, corruption and misbehavior by any officer or employee of the Board or any unnecessary delay or hardship caused due to any administrative process may prefer representation to the Chairman for redressal of his grievance.
+(2) The Chairman or the Board or any other designated officer, as the case may be, on behalf of the Chairman, shall take the appropriate action to redress such grievance.

@@ -1,0 +1,1 @@
+9. Validity of proceedings.No act proceeding, decision or order of the Board or a committee of the Board shall be invalid by reason only of the existence of vacancy in, or any defect in the constitution of, the Board or any committee.
