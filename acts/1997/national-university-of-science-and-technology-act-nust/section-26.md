@@ -1,0 +1,3 @@
+26. Removal of difficulties.—(1) If any question arises as to the interpretation of any of the provisions of the Act, it shall be placed before the Board whose decision thereon will be final.
+(2) If any difficulty arises in giving effect to any provision of this Act, the Board may make such order to direction, not inconsistent with the provisions of this Act, as may appear to it to be necessaryfor the purpose of removing such difficulty.
+(3) Where this Act makes any provision for anything to be done but no provision or no sufficient provision has been made as respect the authority by whom, or the time at which, or the manner in which, it shall be done, then, it shall be done by such authority, at such time, or in such manner as the Board may direct.
