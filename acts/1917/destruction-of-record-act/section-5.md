@@ -1,0 +1,1 @@
+5. Saving of certain documents. Nothing in this Act shall be deemed to authorise the destruction of any document which, under the provisions of any law for the time being in force, is to be kept and maintained.

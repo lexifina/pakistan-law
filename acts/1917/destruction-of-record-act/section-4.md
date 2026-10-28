@@ -1,0 +1,3 @@
+4. Validation of former rules for disposal of documents. All rules and orders directing or authorising the destruction or other disposal of documents in the possession or custody of any public officer, heretofore made by a [^7][Provincial Government], or with the approval of the [^7][Provincial Government] by any authority not empowered to make such rules under the Destruction of Records Act, 1879 (III of 1879) shall be deemed to have had the force of law from the date on which they were made, and all such rules and orders now in force shall continue to have the force of law until they are superseded by rules made under this Act.
+
+[^7]: Subs. by F.A.O., 1975, Art. 2 and Table, for “Central Government”.
