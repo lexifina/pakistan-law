@@ -1,0 +1,4 @@
+8. Teaching and examination at the Institute.— (1) All academic programs of the Institute shall be conducted in the prescribed manner and the Senate shall ensure that the courses of study, the curriculum and the practical work at the Institute are comparable in standard with other similar institutions.
+(2) All recognized teaching in various courses shall be conducted by the Institute in the prescribed manner and may include lectures, tutorials, discussions, seminars, demonstrations, distance learning and other methods of instruction as well as practical work in the laboratories, hospitals, workshops and other governmental or private organizations.
+(3) The authority responsible for organizing recognized academic programs shall be such as may be prescribed.
+(4) The Institute shall associate internal and external examiners in the conduct of examinations.
