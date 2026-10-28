@@ -1,0 +1,4 @@
+[^36][15A. Capture of deserters.– (1) Whenever any member of the force deserts or absents without leave, his Commandant shall give written information of the desertion or absence to such civil authorities as in his opinion may be able to afford assistance towards the capture of the deserter and such authorities shall thereupon take steps for the apprehension of the said deserter or absentee in like manner as if he were a person for whose apprehension a warrant had been issued by a Magistrate, and shall deliver the deserter or absentee, when apprehended, to Force custody.
+(2) Any police officer may arrest without warrant any person whom he reasonably believes to be a member of the Force and a deserter or absentee without leave and bring him without delay before the nearest Magistrate as if he were a deserter from the Pakistan Army.
+
+[^36]: Ins.ibid.,s.6.

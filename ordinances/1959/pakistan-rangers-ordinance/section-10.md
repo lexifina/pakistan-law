@@ -1,0 +1,1 @@
+10. Powers and duties of members. Government may, by a general or special order, confer or impose upon any member of the Force, any of the powers or duties conferred or imposed on a Police Officer of any class or grade by any enactment for the time being in force.

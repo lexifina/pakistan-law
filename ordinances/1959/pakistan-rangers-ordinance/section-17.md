@@ -1,0 +1,1 @@
+17. Suspension. Any gazetted officer shall be competent to suspend in the prescribed manner a member of the Force in a non-gazetted rank working under him for any misconduct, remissness or negligence in the discharge of his duties.

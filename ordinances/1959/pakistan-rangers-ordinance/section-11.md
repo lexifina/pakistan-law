@@ -1,0 +1,1 @@
+11. Privileges of members. The members of the Force shall be entitled to all the privileges which a member of the police force constituted under the Police Act, 1861 (V of 1861), has under sections 42 and 43 of that Act, section 125 of the Evidence Act, 1872 (I of 1872), and any other enactment for the time being in force.
