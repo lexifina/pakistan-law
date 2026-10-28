@@ -1,0 +1,1 @@
+14C. Custody pending deportation. A foreigner, having no permission to stay in Pakistan, who has been convicted and sentenced to imprisonment under this Act shall not be released on the expiry of the sentence and shall continue to remain in custody for a period not exceeding three months to enable arrangements for his deportation to be finalized.

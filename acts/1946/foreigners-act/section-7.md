@@ -1,0 +1,6 @@
+7. Obligation of hotel keepers and others to furnish particulars.___(1) It shall be the duty of the keeper of any premises whether furnished or unfurnished, where lodging or sleeping accommodation is provided for reward, to submit to such person and in such manner such information in respect of foreigners accommodated in such premises, as may be prescribed.
+Explanation. The information referred to in this sub-section may relate to all or any of the foreigners accommodated at such premises and may be required to be submitted periodically or at any specific time or occasion.
+(2) Every person accommodated in any such premises shall furnish to the keeper thereof a statement containing such particulars as may be required by the keeper for the purpose of furnishing the information referred to in sub-section (1).
+(3) The keeper of every such premises shall maintain a record of the information furnished by him under sub-section (1) and of the information obtained by him under sub-section (2) and such record shall be maintained in such manner and preserved for such period as may be prescribed and shall at all times be open to inspection by any police officer or by a person authorised in this behalf by the [^21][District Coordination officer or any officer authorised by the Federal Government].
+
+[^21]: Subs. by Ord. 44 of 02, s. 2 & 3.
