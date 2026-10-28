@@ -1,0 +1,1 @@
+3. Establishment of National Security Council.___ There shall be established a National Security Council to serve as a forum for consultation on matters of national security including the sovereignty, integrity, defence, security of the State and crisis management.
