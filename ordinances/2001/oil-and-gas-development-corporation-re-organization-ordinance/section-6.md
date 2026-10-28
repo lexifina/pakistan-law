@@ -1,0 +1,1 @@
+6. Removal of difficulties.___ If any difficulty arises in giving effect to any provision of this Ordinance, the Federal Government may, by notification in the official Gazette, make such provisions as may appear to it to be necessary for the purpose of removing the difficulty.
