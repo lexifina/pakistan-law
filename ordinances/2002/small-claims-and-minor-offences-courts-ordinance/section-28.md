@@ -1,0 +1,2 @@
+28. Power to order any point to be proved by affidavit.—(1) The Court may at any time for sufficient reason order that any particular fact or facts may be proved by affidavit, or that the affidavit of any witness may be read at the hearing on such conditions as the Court thinks reasonable:
+Provided that where it appears to the Court that either party bona fide desires the production of a witness for cross-examination, and that such witness can be produced, an order shall not be made authorising the evidence of such witness to be given by affidavit.

@@ -1,0 +1,1 @@
+26. Commencement of trial in suit or claim.—If the dispute or claim is not referred for settlement or no settlement is reached under subsection (1) of section 14 within forty five days of the reference or such extended time as may be granted by the Court, on showing good cause the Court shall proceed to record evidence.

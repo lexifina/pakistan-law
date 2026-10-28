@@ -1,0 +1,1 @@
+36. Inherent powers of Court.—Nothing in this Ordinance shall be deemed to limit or otherwise affect the inherent powers of the Court to make such orders as may be necessary for the ends of justice or to prevent abuse of the process of Court in respect of resolving disputes mentioned in Part I of the Schedule.

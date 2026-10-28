@@ -1,0 +1,3 @@
+16. Appearance of parties for settlement.—(1) On receipt of reference the Sails shall make efforts for amicable settlement of dispute or complaint and submit his report with the time fixed by the Court.
+(2) The Salis shall call the parties through registered post, telegram, fax, telephone or any other appropriate mode to a venue and on a day and time specified by him.
+(3) The parties shall appear in person or through their representatives before the Salis and shall state their claim or defence in writing, supply copies of their pleadings or complaint and all other necessary documents as required by the Salis.

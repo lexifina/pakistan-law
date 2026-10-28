@@ -1,0 +1,1 @@
+22. Failure of settlement.—If no settlement is reached between the parties, the Salis shall record the statement of the fact, signed by the parties and submit it to the Court on or before the date fixed.
