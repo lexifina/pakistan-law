@@ -1,0 +1,1 @@
+8. Cognizance of offences. No court shall take cognizance of an offence under this Act except upon a complaint in writing made by the competent authority or an officer authorised by it in this behalf.

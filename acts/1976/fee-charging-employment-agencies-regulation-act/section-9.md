@@ -1,0 +1,1 @@
+9. Competent authority, etc., to be public servants. The competent authority or the officer authorised by it under sub-section (2) of section 4 shall be deemed to be a public servant within the meaning of section 21 of the Pakistan Penal Code (Act. XLV of 1860).
