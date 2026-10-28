@@ -1,0 +1,5 @@
+5. Power of Magistrate to order a person to be measured or photographed. If a Magistrate is satisfied that, for the purposes of any investigation or proceeding under the Code of Criminal Procedure, 1898[^6] (V of 1898), it is expedient to direct any person to allow his measurements or photograph to be taken, he may make an order to that effect, and in that case the person to whom the order relates shall be produced or shall attend at the time and place specified in the order and shall allow his measurements or photograph to be taken, as the case may be, by a police officer:
+Provided, that no order shall be made directing any person to be photographed except by a Magistrate of the first class:
+Provided further, that no order shall be made under this section unless the person has at some time been arrested in connection with such investigation or proceeding.
+
+[^6]: In the application of the Act to the Province of Sind, certain words have been ins. here by the Identification of Prisoners (Bombay Amdt.) Act, 1922 (Bom. 11 of 1922), s. 3.

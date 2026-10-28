@@ -1,0 +1,2 @@
+6. Resistance to the taking of measurements, etc.___(1) If any person who under this Act is required to allow his measurements or photograph to be taken resists or refuses to allow the taking of the same, it shall be lawful to use all means necessary to secure the taking thereof.
+(2) Resistance to or refusal to allow the taking of measurements or photographs under this Act shall be deemed to be an offence under section 186 of the Pakistan Penal Code (XLV of 1860).
