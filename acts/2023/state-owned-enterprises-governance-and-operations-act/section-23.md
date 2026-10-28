@@ -1,0 +1,1 @@
+23. Indemnity.––No suit, prosecution or other legal proceedings shall lie against the directors, chief executive officer, or other employee of a state-owned enterprise if the liability arose out of an act or omission of the director, chief executive or employee and the act or omission was done in good faith and with due care.

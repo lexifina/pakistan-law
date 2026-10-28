@@ -1,0 +1,1 @@
+20. Enforcement of systems of internal control.⸻The Board shall ensure the integrity of the systems of internal control and any person who is found liable for a deviation or violation from the company’s code of conduct or other systems of internal control shall be subject to disciplinary proceedings in accordance with the state-owned enterprise’s internal policies.

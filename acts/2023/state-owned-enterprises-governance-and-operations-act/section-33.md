@@ -1,0 +1,6 @@
+## CHAPTER-10
+## ENFORCEMENT
+33. Enforcement of this Act.––(1) The Federal Government shall establish a committee of the Federal Cabinet to monitor the implementation of this Act.
+(2) The Division to which the business of a state-owned enterprise has been allocated under the Rules of Business, 1973 shall co-ordinate with the Board of such state-owned enterprise to monitor compliance with the provisions of this Act, including, without limitation, with respect to the development of the business plan, statements of corporate intent, the annual reports, timely establishment of systems of internal controls of the state-owned enterprise, appointment of the Chief Executive Officer, and reporting to the central monitoring unit.
+(3) The Federal Government may carry out its functions and powers under this Act, except the power to make rules or to appoint independent directors, either directly through or by delegation to one or more of its Divisions or a body corporate which may be established by the Federal Government for this purpose by notification in the official gazette:
+Provided that in case the Federal Government establishes a body corporate then the functions of the central monitoring unit shall also be undertaken by such body.

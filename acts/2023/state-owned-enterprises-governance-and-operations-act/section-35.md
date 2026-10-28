@@ -1,0 +1,1 @@
+35. Power to issue directives, circulars, guidelines, etc.⸻The Federal Government shall have the power to issue such directives, codes, guidelines, circulars or notifications as are necessary to carry out the purposes under this Act and the rules made hereunder.
