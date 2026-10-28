@@ -1,0 +1,3 @@
+15. Accounts and Audit.—(1) The funds of the Foundation shall be kept in a personal ledger account of the Foundation with the State Bank of Pakistan or with any Branch of the National Bank of Pakistan acting as an agent of the State Bank.
+(2) The accounts of the Foundation shall be maintained in such form and manner as the Auditor-General of Pakistan may determine in consultation with the Federal Government.
+(3) The accounts of the Foundation shall be audited by one or more auditors who are chartered accountants within the meaning of the Chartered Accountants Ordinance, 1961 (X of 1961) and are appointed by the Foundation in consultation with the Auditor-General of Pakistan.

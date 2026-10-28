@@ -1,0 +1,3 @@
+3. Establishment of the Foundation.—(1) As soon as may be after the commencement of this Act, the Federal Government may, by notification in the official Gazette, establish a Pakistan Science Foundation to promote and finance scientific activities having a bearing on the socio-economic needs of the country.
+(2) The Foundation shall be a body corporate by the name of the Pakistan Science Foundation, having perpetual succession and a common seal, with power, subject to the provisions of this Act, to acquire, hold and dispose of property, both movable and immovable, and shall by the said name sue and be sued.
+(3) The head office of the Foundation shall be at Islamabad.
