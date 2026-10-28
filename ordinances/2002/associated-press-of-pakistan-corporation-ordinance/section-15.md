@@ -1,0 +1,1 @@
+15. Maintenance of Accounts.___ The accounts of the Corporation shall be maintained in such form and manner as the Federal Government may, in consultation with the Controller-General of Accounts, determined.

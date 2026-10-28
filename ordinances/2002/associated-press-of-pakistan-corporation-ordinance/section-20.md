@@ -1,0 +1,1 @@
+20. Winding up of the Corporation.___No provision of law relating to winding up of bodies corporate shall apply to the Corporation and the Corporation shall not be wound up except by the order of the Federal Government in such manner as the Federal Government may determine.

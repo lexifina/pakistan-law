@@ -1,0 +1,1 @@
+19. Indemnity.___ No suit or other legal proceedings shall lie against the Corporation, the Managing Director, or any Member, officer or employee of the Corporation in respect of any thing done or intended to be done in good faith under this Ordinance.

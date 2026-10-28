@@ -1,0 +1,1 @@
+22. Power to make regulations.___ The Corporation may, by notification in the official Gazette, make regulation not inconsistent with this Ordinance and the rules made thereunder to provide for all matters for which provision is necessary or expedient for carrying out the purposes of this Ordinance.
