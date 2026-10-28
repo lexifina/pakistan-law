@@ -1,0 +1,33 @@
+SCHEDULE
+[See sections 2(c) and 11]
+CODE OF CONDUCT FOR PROTECTION AGAINST HARASSMENT OF WOMEN AT THE
+WORKPLACE
+Whereas it is expedient to make the Code of Conduct at the workplace etc. to provide protection and safety to women against harassment it is hereby provided as under:—
+(i) the Code provides a guideline for behavior of all employees, including management, and the owners of an organization to ensure a work environment free of harassment and intimidation;
+[^9][(ii) “harassment” means.—
+(a) any unwelcome sexual advance, request for sexual favours, stalking or cyber stalking or other verbal, visual or written communication or physical conduct of a sexual nature or sexually demeaning attitudes, including any gestures or expression conveying derogatory connotation causing interference with work performance or creating an intimidating, hostile or offensive work environment, or the attempt to punish the complainant for refusal to comply to such a request or is made a condition for employment; or
+(b) discrimination on basis of gender, which may or may not be sexual in nature, but which may embody discriminatory and prejudicial mind-set or notion, resulting in discriminatory behavior on basis of gender against the complainant:
+Provided that a single incident having the effect of making a person uncomfortable or creating a sense of fear or panic at the workplace is also harassment.]
+Explanation.—There are three significant manifestations of harassment in the work environment:—
+(a) Abuse of authority
+A demand by a person in authority, such as a supervisor, for sexual favors in order for the complainant to keep or obtain certain job benefits, be it a wage increase, a promotion, training opportunity, a transfer or the job, itself.
+[^9][(b) Creating a hostile environment
+Any unwelcome sexual advance, request for sexual favors, or other verbal or physical conduct of a sexual nature, which interferes with an individual’s work performance or creates an intimidating, hostile, abusive or offensive work environment; or any discrimination on basis of gender, which may or may not be sexual in nature, but which may embody a discriminatory and prejudicial mind-set or notion resulting in discriminatory behavior on basis of gender.
+The typical “hostile environment” claim, in general, requires finding of a pattern of offensive conduct, however, in cases where the harassment is particularly severe, such as in cases involving physical contact or gender-based discrimination, a single offensive incident will constitute a violation.]
+(c) Retaliation
+The refusal to grant a sexual favor can result in retaliation, which may include limiting the employee’s options for future promotions or training, distorting the evaluation reports, generating gossip against the employee or other ways of limiting access to his/her rights. Such behavior is also a part of the harassment.
+(iii) an informal approach to resolve a complaint of harassment may be through mediation between the parties involved and by providing advice and counseling on a strictly confidential basis;
+(iv) a complainant or a staff member designated by the complainant for the purpose may report an incident of harassment informally to her supervisor, or a member of the Inquiry Committee, in which case the supervisor or the Committee member may address the issue at her discretion in the spirit of this Code. The request may be made orally or in writing;
+(v) if the case is taken up for investigation at an informal level, a senior manager from the office or the head office will conduct the investigation in a confidential manner. The alleged accused will be approached with the intention of resolving the matter in a confidential manner;
+(vi) if the incident or the case reported does constitute harassment of a higher degree and the officer or a member reviewing the case feels that it needs to be pursued formally for a disciplinary action, with the consent of the complainant, the case can be taken as a formal complaint;
+(vii) a complainant does not necessarily have to take a complaint of harassment through the informal channel. She can launch a formal complaint at any time;
+(viii) the complainant may make formal complaint through her incharge, supervisor, CBA nominee or worker’s representative, as the case may be, or directly to any member of the Inquiry Committee. The Committee member approached is obligated to initiate the process of investigation. The supervisor shall facilitate the process and is obligated not to cover up or obstruct the inquiry;
+(ix) assistance in the inquiry procedure can be sought from any member of the organization who should be contacted to assist in such a case;
+(x) the employer shall do its best to temporarily make adjustments so that the accused and the complainant do not have to interact for official purposes during the investigation period. This would include temporarily changing the office, in case both sit in one office, or taking away any extra charge over and above their contract which may give one party excessive powers over the other’s job conditions. The employer can also decide to send the accused on leave, or suspend the accused in accordance with the applicable procedures for dealing with the cases of misconduct, if required:
+(xi) retaliation from either party should be strictly monitored. During the process of the investigation work, evaluation, daily duties, reporting structure and any parallel inquiries initiated should be strictly monitored to avoid any retaliation from either side.[^10][Filing counter-blast suits for defamation etc. are also retaliation. The Ombudsperson or Inquiry Committee, as the case may be, should take notice of this in his or its proceedings.]
+(xii) the harassment usually occurs between colleagues when they are alone, therefore usually it is difficult to produce evidence. It is strongly recommended that staff should report an offensive behavior immediately to someone they trust, even if they do not wish to make a formal complaint at the time. Although not reporting immediately shall not affect the merits of the case; and
+(xiii) the Code lays down the minimum standards of behavior regarding protection of women from harassment at workplace etc. but will not affect any better arrangement that an organization may have developed nor will it bar the grant of protection that employees working in an institute may secure from their employers through negotiation.
+___________
+
+[^9]: Subs. by Protection against Harassment of women at the Workplace (Amendment) Act, 2022 (V of 2022), s. 7
+[^10]: Added by Protection against Harassment of women at the Workplace (Amendment) Act, 2022 (V of 2022), s. 7
