@@ -1,0 +1,2 @@
+21. Exemption.__ (1) Government may by notification in the official Gazette, on the recommendation of the Tribunal to be constituted for the purpose, exempt any college from the operation of all or any of the provisions of this Ordinance for a period which shall not be less than three and not more than five years at a time.
+(2) The constitution, term of office and the procedure of the Tribunal referred to in sub-section (1) shall be such as may be prescribed.
