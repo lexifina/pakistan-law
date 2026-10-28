@@ -1,0 +1,2 @@
+105. Duty of insurer to notify registering authority cancellation or suspension of the
+policy. Whenever a policy of insurance issued under the provisions of this Chapter is cancelled or suspended by the insurer who has issued the policy, the insurer shall within seven days notify such cancellation or suspension to the registering authority in whose records the registration of the vehicle covered by the policy of insurance is recorded or to such other authority as the Provincial Government may prescribe.
