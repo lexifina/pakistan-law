@@ -1,0 +1,1 @@
+43. Review.— If no appeal is filed under section 45 against any decision of the Adjudicator, the Adjudicator may, at any time, review his decision to correct any error or on proof of any other sufficient cause justifying review of the decision.

@@ -1,0 +1,2 @@
+44. Recovery of dues.— (1) If a person fails to pay any amount due to the Authority or a mortgagor fails to repay house finance in accordance with Section 25, the Adjudicator shall, on a reference from an authorized employee of the Authority or the financial institution, as applicable, recover the amount due from the person or mortgagor as arrears of land revenue under the Land Revenue Act, 1967 (XVII of 1967).
+(2) In exercise of powers under this section, the Adjudicator shall exerciseany power of collector under the Land Revenue Act, 1967 (XVII of 1967).

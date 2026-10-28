@@ -1,0 +1,1 @@
+11. Functions and Powers of Chairman.—The Chairman shall be the chief executive officer of the Authority responsible for the management, administration and operations of the Authority and, subject to the provisions of this Act, shall exercise all powers and discretions and perform all functions and duties of the Authority under the Act.

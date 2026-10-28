@@ -1,0 +1,1 @@
+18. Regulation of Transfers etc.— Dealings with immovable property in a scheme including transfer, lease, license or encumbrance of such immovable property may be restricted and controlled in such manner and on such terms and conditions as may be prescribed under this Act.

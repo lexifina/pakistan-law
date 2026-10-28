@@ -1,0 +1,2 @@
+37. Administrative penalty and offence.— (1) A person, on whom an administrative penalty is imposed under section 36, shall not be prosecuted for an offence in respect of the same incident that gave rise to imposition of the administrative penalty unless the Adjudicator directs prosecution of the person.
+(2)Aperson charged with an offence may also be subject to an administrative penalty in respect of the same incident that gave rise to the charge of the offence.

@@ -1,0 +1,1 @@
+52. Authentication of instruments of Authority.— All orders, decisions and other instruments of the Authority shall be authenticated by the signature of the Chairman or any other employee of the Authority authorized by the Chairman.

@@ -1,0 +1,1 @@
+55. Immunity.—No suit, prosecution or any other legal proceedings shall lie against the Chairman, a member, Adjudicator, enforcement inspector, Registrar or an employee, expert or consultant of the Authority, in respect of anything done or intended to be done in good faith under this Act.

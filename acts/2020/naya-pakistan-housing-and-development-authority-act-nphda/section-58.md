@@ -1,0 +1,1 @@
+58. Regulations.— Subject to this Act and any rules prescribed hereunder, the Authority may, by notification in the official Gazette and publication on its website, make regulations, to give effect to the provisions of this Act.

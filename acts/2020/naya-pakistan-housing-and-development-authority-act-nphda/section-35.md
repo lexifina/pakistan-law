@@ -1,0 +1,2 @@
+35. Offences by companies.— (1) Where an offence under this Act has been committed by a company, every person who at the time of commission of offence was in charge of and was responsible for the conduct of its activities shall be deemed to be guilty of the offence and shall be liable to be proceeded against under this Act.
+(2) Nothing contained in this section shall render any such person liable if it is proved that the offence was committed without the person’s knowledge or that such person exercised due care to prevent the commission of the offence.

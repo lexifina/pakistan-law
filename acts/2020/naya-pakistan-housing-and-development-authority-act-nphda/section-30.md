@@ -1,0 +1,1 @@
+30. Authority to levy fee and charges.— The Authority shall fix fees or charges for rendering of any service in a scheme including registration fee, water rate, sanitation fee, solid waste management fee, development or re-development charge and maintenance fee or any other fees, dues and charges.

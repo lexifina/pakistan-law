@@ -1,0 +1,1 @@
+31. Additional charge or surcharge.— If a person fails to pay a tax, fee or charge to the Authority, the Authority may in the prescribed manner, but subject to the terms of arrangement with the concerned government, levy and collect additional charge and surcharge for non-payment of dues within the specified time.

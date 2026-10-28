@@ -1,0 +1,4 @@
+24. Registration of Properties.— (1) Notwithstanding anything contained in any other law, the Authority, as prescribed, may enter into arrangements to effect registration and transfer of properties and maintain records in relation to any property or part there of falling in a scheme, with Provincial Governments, and where applicable, Local Governments or other bodies.
+(2) The certificate of title issued by the Registrar shall be deemed to constitute a title document of the relevant immovable property.
+(3) The Registrar shall maintain, accurately and completely the current facts about each immovable property including certificate of title, leasehold rights, mortgage, an easement, a right of occupation or any other right or interest which shall be available online on the website of the Authority with geo-tagged system, in such manner as may be prescribed.
+(4) The Registrar may issue certified copies of certificates of title in the prescribed manner.

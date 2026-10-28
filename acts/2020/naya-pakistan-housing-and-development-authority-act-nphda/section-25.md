@@ -1,0 +1,5 @@
+## CHAPTER VII
+## HOUSE FINANCE AND MORTGAGES
+25. House finance for a scheme.— (1) Where house finance has been provided by a financial institution for immovable property in a scheme pursuant to an arrangement between the Authority and the financial institution, all disputes between the financial institution and the relevant borrowers in the scheme shall, notwithstanding anything contained in any other law, be adjudicated upon by the Adjudicator. The process and requirements for lodging and adjudication of a claim before the Adjudicator shall be prescribed through regulations.
+(2) Any party aggrieved of the final judgment of the Adjudicator under sub-section (1) may, within thirty days of the final judgment, file an appeal before the Appellate Tribunal. The process and requirements for lodging and adjudication of an appeal before the Appellate Tribunal shall be prescribed through regulations.
+(3) An appeal to the Supreme Court from a final judgment or order of the Appellate Tribunal shall lie only if the Supreme Court grants leave to appeal.

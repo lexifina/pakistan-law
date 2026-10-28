@@ -1,0 +1,1 @@
+29. Authority to collect property tax.— The Authority or, if authorized by the Authority, management association shall collect property tax, if any, and the Authority shall enter into an arrangement with the concerned government for sharing of proceeds of the property tax collected from a scheme.

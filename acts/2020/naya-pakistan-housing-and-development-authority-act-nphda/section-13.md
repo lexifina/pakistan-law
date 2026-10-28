@@ -1,0 +1,1 @@
+13. Delegation of functions.—The Chairman may, through a written order, delegate any powers, functions or duties of the Authority to any other employee of the Authority and may at his discretion, through a written order, revoke and rescind such delegation.
