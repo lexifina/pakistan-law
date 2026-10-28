@@ -1,0 +1,2 @@
+15. Refund of contributions paid erroneously. An employer shall be entitled to the refund of any contribution paid to the Institution under erroneous belief that it was payable under the provisions of this Act, and shall be entitled to the refund of excess amount of the contribution where such contribution had been paid at a higher rate than the rate prescribed:
+Provided that no contribution or excess amount of any contribution shall be refunded unless an application for such refund is made within six months of the date on which the contribution was paid.

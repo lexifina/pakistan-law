@@ -1,0 +1,1 @@
+42. Member and servants of the Institution to be public servants. The members and employees of the Board and all officers and servants of the Institution shall be deemed to be public servants within the meaning of section 21 of the Pakistan Penal Code (Act XLV of 1860).

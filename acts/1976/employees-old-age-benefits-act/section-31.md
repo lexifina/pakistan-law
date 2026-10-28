@@ -1,0 +1,1 @@
+31. Institution’s right to be indemnified in certain cases. Where the contingency for which a n a l l o w a n c e is payable under this Act was caused under circumstances creating a legal liability in some person, the Institution shall be entitled to substitute itself for the insured person in bringing a suit for damages against that person.
