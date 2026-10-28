@@ -1,0 +1,5 @@
+6. Inspectors.__ (1) The Inspectors of Mines appointed under section 4 of the Mines Act, 1923 (IV of 1923), the Inspectors appointed under section 10 of the Factories Act, 1934 (XXV of 1934), and such other persons, not being [^15][conciliators appointed under the Industrial Relations Ordinance, 1969 (XXIII of 1969)], as Government may, by notification in the official Gazette, appoint, shall be the Inspectors for the purposes of this Ordinance within the local limits assigned to each.
+(2) An Inspector may at all reasonable hours enter on any premises and make such examination of any register or document relating to the maintenance or enforcement of the Standing Orders and take on the spot or otherwise such evidence of any person, and exercise such other powers of inspection, as he may deem necessary for carrying out the purposes of this Ordinance.
+(3) Every Inspector shall be deemed to be a public servant within the meaning of the Pakistan Penal Code (XLV of 1860).
+
+[^15]: Substituted by Act No. XXIII of 1973, s. 4.

@@ -1,0 +1,1 @@
+8. Power to exempt.__ Government may, subject to such conditions as it thinks fit to impose, by notification in the official Gazette, exempt any industrial or commercial establishment or class of such establishments from all or any of the provisions of this Ordinance.

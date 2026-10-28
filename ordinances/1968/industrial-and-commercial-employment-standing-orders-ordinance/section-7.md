@@ -1,0 +1,8 @@
+7. Penalties and procedure.__ (1) An employer who modifies the Standing Orders as applicable to his industrial or commercial establishment, otherwise than in accordance with section 4, shall be punishable with fine which may extend to five thousand rupees, and in the case of a continuing offence, with a further fine which may extend to two hundred rupees for every day after the first day during which the offence continues.
+(2) An employer who does any act in contravention of the Standing Orders as applicable to his industrial or commercial establishment shall be punishable with fine which may extend to one hundred rupees, and in the case of a continuing offence, with a further fine which may extend to twenty-five rupees for every day after the first day during which the offence continues.
+(3) Whoever contravenes any of the provisions of this Ordinance shall, if no other penalty is elsewhere provided by or under this Ordinance for such contravention, be punishable with fine which may extend to one hundred rupees.
+(4) Whoever, having been convicted of any offence punishable under sub-section (1), (2) or (3), again commits such offence shall, on conviction, be liable to double the punishment prescribed for such offence under the aforesaid sub-sections.
+(5) No prosecution for an offence punishable under this Ordinance shall be instituted except by, or with the previous permission in writing of, the Inspector.
+[^16][(6) No court other than a Labour Court established under the Industrial Relations Ordinance, 1969 (XXIII of 1969), shall try any offence under this Ordinance].
+
+[^16]: Substituted by the Labour Laws (Amendment) Act, 1976 (Act No. XI of 1976), s. 2 read with Schedule.

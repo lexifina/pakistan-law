@@ -1,0 +1,1 @@
+9. Protection to existing conditions of employment.__ Nothing in this Ordinance shall affect any law, custom, usage, award or agreement inforce immediately before the promulgation of this Ordinance in so far as such law, custom, usage, award or agreement ensure conditions of employment more favourable to workmen than those provided in the Standing Orders.
