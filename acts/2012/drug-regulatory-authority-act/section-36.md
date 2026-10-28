@@ -1,0 +1,1 @@
+36. Removal of difficulties. _____If any difficulty arises in giving effect to any of the provisions of this Act, the Federal Government may make such Order by notification in the Official Gazette, not inconsistent with the provisions of this Act, for the purpose of removing the difficulty.

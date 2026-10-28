@@ -1,0 +1,3 @@
+30. Complaints. ___ (1) Any aggrieved person may file a written complaint with the Authority against contravention of any provision of this Act or any law specified in Schedule-VI.
+(2) The Authority shall, on receipt of a complaint cause it to be investigated as may be prescribed and provide an opportunity to the complainant as well as the person against whom such complaints has been made. The Authority may, on completion of investigation, take any action as may be prescribed under this Act or as the case may be subject to the provisions of any law specified in the Schedule-VI.
+(3) Appeals against the decisions of the Authority shall be referred to the Board, which shall formulate an Appellate Board from among its members, who shall decide the case on merit.

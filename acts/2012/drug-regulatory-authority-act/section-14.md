@@ -1,0 +1,3 @@
+14. Appointment of officers and employees etc., of the Authority. ___(1) The Authority, with approval of the Board, may create posts and appoint such officers, employees, experts and consultants, as it may consider necessary, for the performance of its functions in the prescribed manner. The criteria for recruitment and selection of employees and officers will be determined by the Board according to the rules as prescribed.
+(2) The age of superannuation for each employee shall be sixty years.
+(3) No person shall be appointed as the CEO or Director of the Authority unless he is a citizen of Pakistan.

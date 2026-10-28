@@ -1,0 +1,1 @@
+16. Experts, consultants and advisers not to be civil servants. ___ The experts, consultants, employees or advisers employed by the Authority shall be governed by the terms and conditions of their appointment and shall not be deemed to be civil servant within the meaning of Civil Servants Act, 1973 (LXXI of 1973).

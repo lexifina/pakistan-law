@@ -1,0 +1,2 @@
+18. Conflict of interest. ___ (1) No person shall be appointed as CEO, Director, consultant, advisor, officer or employee of the Authority if he or she has any financial or professional conflict of interest.
+(2) No person shall be member of the Board or Director if he has immediate family members (parent, child, sibling or spouse) as senior officials or owners of concerns dealing in therapeutic goods.

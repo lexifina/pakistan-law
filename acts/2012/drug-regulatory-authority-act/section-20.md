@@ -1,0 +1,3 @@
+20. Fees and other charges to be levied by the Authority. ____ (1) The Authority shall levy and collect such fees, in respect of any of its functions at such rates as may be determined, from time to time by the Authority, with the approval of the Policy Board, in accordance with rules.
+(2) The Central Research Fund fee shall be deposited in the non-lapsable sub-account of the Authority to be utilized as per existing rules.
+(3) The existing Central Research Fund kept with the Federal Government shall be transferred to the Authority immediately after the notification of establishment of the Authority.

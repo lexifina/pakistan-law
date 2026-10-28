@@ -1,0 +1,1 @@
+35. Power to amend Schedule. ____ The Federal Government may, by notification in the official Gazette, amend the Schedule so as to add any entry thereto or modify or omit any entry therefrom on the recommendation of the Board.
