@@ -1,0 +1,1 @@
+61. Bar of suit for criminal conversation. After this Act comes into operation, no person competent to present a petition under sections 2 and 10 shall maintain a suit for criminal conversation with his wife.

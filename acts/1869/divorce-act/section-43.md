@@ -1,0 +1,3 @@
+[^17][43. Power to make orders as to custody of children in suits for dissolution or nullity.— In any suit for obtaining a dissolution of marriage or a decree of nullity of marriage, the Court may from time to time, before making its decree, make such interim orders, and may make such provision in the decree, as it deems proper with respect to the custody, maintenance and education of the minor children, the marriage of whose parents is the subject of the suit ; and may, if it thinks fit, direct proceedings to be taken far placing such children under the protection of the Court.].
+
+[^17]: Omitted and subs. by Act, 1975 (Act No. IV of 1976), ss. 18 (a) and (b) and 19.
