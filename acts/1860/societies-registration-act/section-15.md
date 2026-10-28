@@ -1,0 +1,2 @@
+15. Member defined.—For the purposes of this Act a member of a society shall be a person who, having been admitted therein according to the rules and regulations thereof, shall have paid a subscription or shall have signed the roll or list of members thereof, and shall not have resigned in accordance with such rules and regulations;
+Disqualified members. but in all proceedings under this Act no person shall be entitled to vote or to be counted as a member whose subscription at the time shall have been in arrear for a period exceeding three months.

@@ -1,0 +1,2 @@
+19. Inspection of documents.—Any person may inspect all documents filed with the registrar under this Act on payment of a fee of one rupee for each inspection, and any person may require a copy or extract of any document or any part of any document, to be certified by the registrar, on payment of two annas for every hundred words of such copy or extract;
+Certified copies. and such certified copy shall be prima facie evidence of the matters therein contained in all legal proceedings whatever.

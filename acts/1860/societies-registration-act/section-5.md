@@ -1,0 +1,1 @@
+5. Property of society how vested.—The property, moveable and immoveable, belonging to a society registered under this Act, if not vested in trustees, shall be deemed to be vested, for the time being, in the governing body of such society, and in all proceedings, civil and criminal, may be described as the property of the governing body of such society by their proper title.
