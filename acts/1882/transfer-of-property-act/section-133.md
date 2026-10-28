@@ -1,0 +1,1 @@
+133. Warranty of solvency of debtor.— Where the transferor of a debt warrants the solvency of the debtor, the warranty, in the absence of a contract to the contrary, applies only to his solvency at the time of the transfer, and is limited, where the transfer is made for consideration, to the amount or value of such consideration.

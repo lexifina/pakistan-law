@@ -1,0 +1,3 @@
+24. Transfer to such of certain persons as survive at some period not specified.—Where, on a transfer of property, an interest therein is to accrue to such of certain persons as shall be surviving at some period, but the exact period is not specified, the interest shall go to such of them as shall be alive when the intermediate or precedent interest ceases to exist, unless a contrary intention appears from the terms of the transfer.
+Illustration
+A transfers property to B for life, and after his death to C and D, equally to be divided between them, or to the survivor of them. C dies during the life of B. D survives B. At B’s death the property passes to D.

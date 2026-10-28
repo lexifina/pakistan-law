@@ -1,0 +1,3 @@
+10. Condition restraining alienation.—Where property is transferred subject to a condition or limitation absolutely restraining the transferee or any person claiming under him from parting with or disposing of his interest in the property, the condition or limitation is void, except in the case of a lease where the condition is for the benefit of the lessor or those claiming under him: Provided that property may be transferred to or for the benefit of a woman (not being a Hindu, [^26][Muslim] or Buddhist), so that she shall not have power during her marriage to transfer or charge the same or her beneficial interest therein.
+
+[^26]: Subs. by the Federal Adaptation of Laws Order, 1975 (President’s Order No. 4 of 1975), Art. 2 and Table.

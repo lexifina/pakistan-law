@@ -1,0 +1,3 @@
+[^91][119. Right of party deprived of thing received in exchange.— If any party to an exchange or any person claiming through or under such party is by reason of any defect in the title of the other party deprived of the thing or any part of the thing received by him in exchange, then, unless a contrary intention appears from the terms of the exchange, such other party is liable to him or any person claiming through or under him for loss caused thereby, or at the option of the person so deprived, for the return of the thing transferred, if still in the possession of such other party or his legal representative or a transferee from him without consideration.]
+
+[^91]: Subs. by Act No. XX of 1929, s. 59.

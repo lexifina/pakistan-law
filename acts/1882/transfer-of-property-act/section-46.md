@@ -1,0 +1,6 @@
+46. Transfer for consideration by persons having distinct interests.—Where immoveable property is transferred for consideration by persons having distinct interests therein, the transferors are, in the absence of a contract to the contrary, entitled to share in the consideration equally, where their interest in the property were of equal value, and, where such interests were of unequal value, proportionately to the value of their respective interests.
+Illustrations
+(a) A, owning a moiety, and B and C each a quarter share, of mauza [^33][Ulipur], exchange an eighth share of that mauza for a quarter share of mauza [^33][Mithapukur]. There being no agreement to the contrary, A is entitled to an eighth share in [^33][Mithapukur], and B and C each to a sixteenth share in that mauza.
+(b) A, being entitled to a life-interest in mauza [^33][Jalkothi] and B and C to the reversion, sell the mauza for Rs. 1,000. A’s life­interest is ascertained to be worth Rs. 600, the reversion Rs. 400. A is entitled to receive Rs. 600 out of the purchase-money, B and C to receive Rs. 400.
+
+[^33]: Subs. by the Central Laws (Statute Reform) Ordinance, 1960 (Ordinance No. XXI of 1960), ss. 3-4 and 2nd Sch. (with effect from the 14th October, 1956).

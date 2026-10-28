@@ -1,0 +1,4 @@
+116. Effect of holding over.—If a lessee or under-lessee of property remains in possession thereof after the determination of the lease granted to the lessee, and the lessor or his legal representative accepts rent from the lessee or under-lessee, or otherwise assents to his continuing in possession, the lease is, in the absence of an agreement to the contrary, renewed from year to year, or from month to month, according to the purpose for which the property is leased, as specified in section 106.
+Illustrations
+(a) A lets a house to B for five years. B underlets the house to C at a monthly rent of Rs. 100. The five years expire, but C continues in possession of the house and pays the rent to A. C’s lease is renewed from month to month.
+(b) A lets a farm to B for the life of C. C dies, but B continues in possession with A’s assent. B’s lease is renewed from year to year.

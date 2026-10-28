@@ -1,0 +1,2 @@
+12. Condition making interest determinable on insolvency or attempted alienation.—
+where property is transferred subject to a condition or limitation making any interest therein, reserved or given to or for the benefit of any person, to cease on his becoming insolvent or endeavouring to transfer or dispose of the same, such condition or limitation is void. Nothing in this section applies to a condition in a lease for the benefit of the lessor or those claiming under him.

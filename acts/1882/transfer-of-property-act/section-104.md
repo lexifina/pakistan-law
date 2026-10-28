@@ -1,0 +1,1 @@
+104. Power to make rules.—The High Court may, from time to time, make rules consistent with this Act for carrying out, in itself and in the Courts of Civil Judicature subject to its superintendence, the provisions contained in this Chapter.
