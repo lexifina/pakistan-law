@@ -1,0 +1,4 @@
+6. Official residence, railway saloons, rivercraft, aircraft and official cars.—(1) Throughout his term of office, the Prime Minister shall be entitled without payment of rent or hire to the use of his official residence, and of the railway saloons, rivercraft, aircraft and official cars, and no charge shall fall on him personally in respect of the maintenance thereof:
+Provided that the Prime Minister shall not, except when proceeding on or returning from leave, be entitled to the use of the railway saloons, rivercraft, aircraft or official cars during any period for which he is on leave.
+(2) The provisions of sub-section (1) shall also apply to the family of the Prime Minister.
+(3) The Prime Minister may requisition a special railway train for journeys on official duty.
