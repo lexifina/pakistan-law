@@ -1,0 +1,2 @@
+10. Awareness programs.— (1) The Government shall conduct, sponsor, encourage, support or promote awareness programs to ensure that rights recognized in this Act are respected, protected and promoted.
+(2) Such programs should aim at enabling both state and civil society to recognize the capabilities of children with dyslexia or associated disorders; to combat the stereotypes, prejudices and harmful practices which impede their active participation in the field of education.
