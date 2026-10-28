@@ -1,0 +1,1 @@
+15. Discoveries and Inventions. All rights relating to discoveries and inventions and any improvement in materials, methods, processes, apparatus or equipment made by any officer or employee of the Commission in the course of his employment shall vest in the Commission.
