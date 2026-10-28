@@ -1,0 +1,12 @@
+3. Powers to make orders etc.―(1) The Federal Government, so far as it appears to it to be necessary or expedient for securing equitable distribution of an essential commodity and its availability at fair prices, may, by notified order, provide for regulating the prices, production, movement, transport, supply, distribution, disposal and sale of the essential commodity and for the price to be charged or paid for it at any stage of transaction therein.
+(2) Without prejudice to the generality of the powers conferred by sub-section (1), an order made thereunder may provide—
+(a) for controlling the prices at which any essential commodity may be bought or sold in any area;
+(b) for regulating the production, treatment and keeping of any essential commodity;
+(c) for regulating, by licences, permits or otherwise, the transport, movement and distribution between the Provinces of an essential commodity;
+(d) for prohibiting the withholding of sale of an essential commodity ordinarily kept for sale; .
+(e) for requiring any person holding stock in a Province of an essential commodity to sell in another province the whole or a specified part of the stock at such price, to such persons or class of persons and under such conditions as may be specified in the order;
+(f) for fixing the maximum quantity of any essential commodity which may at any time be possessed by a producer or dealer;
+(g) for collecting any information or statistics with a view to regulating or prohibiting any of the matters aforesaid;
+(h) for requiring persons engaged in any of the matters aforesaid in respect of any essential commodity to maintain and produce for inspection such books, accounts and records relating to their business, and to furnish such information relating thereto, as may be specified in the order;
+(i) for requiring every importer, producer and dealer to mark the essential commodities with the sale prices and to exhibition his premises a price list of the essential commodities held by him for sale; and
+(j) for any incidental and supplementary matters, including in particular the entering and search of premises, vehicles, vessels and aircraft, the seizure by a person authorised to make such search of any articles in respect of which such person has reason to believe that a contravention of the order has been, is being or is about to be committed, or any records connected therewith, the grant or issue of licences, permits or other documents and the charging of fees therefor.

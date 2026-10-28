@@ -1,0 +1,4 @@
+[^3][6A.Appeal.—(1) Any producer, dealer or importer, if aggrieved by an order of a Controller General, may prefer an appeal within three working days of the order to an appellate committee comprising of federal secretary of the division to which business of industries stands allocated and two federal secretaries nominated by the Cabinet Division in case of the Federal Government and an appellate committee comprising of three provincial secretaries including secretary of the department to which business of industries stands allocated, constituted by chief secretary of the province concerned in case of a province or district thereof, as the case maybe.
+(2) An appeal under sub-section (l) shall be decided by the concerned appellate committee within five working days after providing the appellant an opportunity of being heard.]
+
+[^3]: Ins by the Price Control and Prevention of Profiteering and Hoarding (Amendment) Act, 2023, (Act No. LXIV of 2023), s.2.

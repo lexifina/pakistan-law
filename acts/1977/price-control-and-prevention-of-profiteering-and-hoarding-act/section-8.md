@@ -1,0 +1,2 @@
+8. Attempts and abetments. Any person who attempts to contravene, or abets a contravention of, any order made under section 3 shall be deemed to have contravened the order:
+Provided that a person who buys an essential commodity for his personal consumption or use and not for sale shall not be deemed to have abetted the contravention of an order controlling the price at which the essential commodity may be sold.

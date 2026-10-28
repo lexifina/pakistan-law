@@ -1,0 +1,3 @@
+7. Penalties.—(1) Any person who contravenes any order made under section 3 or a notification issued, or order made, under section 6 shall be punishable with imprisonment for a term which may extend to three years and with fine which may extend to one lac rupees:,
+Provided that, if a person convicted for an offence punishable under this sub-section is again convicted for such offence, the term of imprisonment awarded to him shall not be less than one year.
+(2) If the order made under section 3 so provides, any Court trying any contravention of such order may direct that any property in respect of which the Court is satisfied that the order has been contravened shall be forfeited to the Federal Government.
