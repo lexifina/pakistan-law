@@ -1,0 +1,2 @@
+23. Appointments by Commission.__ (1) The Commission may appoint such officers, officials, experts, advisers and consultants as it considers necessary to carry out such functions as may be prescribed by the Commission with such powers and on such terms and conditions as it may determine from time to time.
+(2) The Commission may, by notification in the official Gazette, make regulations in respect of the terms and conditions of service of its employees.

@@ -1,0 +1,2 @@
+58. Power to make regulations.__ (1) Subject to sub-section (2), the Commission may, by notification in the official Gazette, make such regulations as may be required to carry out the purposes of this Act.
+(2) The power to make regulations conferred by this section, except for the first occasion, shall be subject to the condition of previous publication and before making any regulations the draft thereof shall be published in two newspapers of wide circulation for eliciting public opinion thereon within a period of not less than thirty days from the date of publication.

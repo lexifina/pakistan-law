@@ -1,0 +1,1 @@
+16. The Acting Chairman.__ At any time when the position of the Chairman is vacant, or the Chairman is unable to perform his functions due to any cause, the Federal Government shall appoint the most senior Member of the Commission to be the Acting Chairman of the Commission until the appointment of a Chairman on a regular basis.

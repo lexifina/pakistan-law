@@ -1,0 +1,4 @@
+37. Enquiry and studies.__ (1) The Commission may, on its own, and shall upon a reference made to it by the Federal Government, conduct enquiries into any matter relevant to the purposes of this Act.
+(2) Where the Commission receives from an undertaking or a registered association of consumers a complaint in writing of such facts as appear to constitute a contravention of the provisions of Chapter II, it shall, unless it is of opinion that the application is frivolous or vexatious or based on insufficient facts, or is not substantiated by prima facie evidence, conduct an enquiry into the matter to which the complaint relates.
+(3) The Commission may outsource studies by hiring consultants on contract.
+(4) If upon the conclusion of an inquiry under sub-section (1) or sub-section (2), the Commission is of opinion that the findings are such that it is necessary in the public interest so to do, it shall initiate proceedings under section 30.
