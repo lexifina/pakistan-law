@@ -1,0 +1,2 @@
+10. Establishment of Child Protection Institutions.—( 1) The Minister-in-charge shall establish one or more Child Protection Institutions, as soon as may be practicable, after the commencement of this Act.
+(2) There shall be appointed an incharge of each Child Protection Institution and as many Child Protection Officers and support staff as required to carry out the purposes of this Act, under such terms and conditions as may be prescribed.

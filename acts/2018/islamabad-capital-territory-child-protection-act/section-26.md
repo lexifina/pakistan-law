@@ -1,0 +1,3 @@
+26. Child Protection and Care Fund.—(1) The Government shall, as soon as may be after the commencement of this Act, by notification in the Official Gazette, establish a child protection and care Fund for the purposes of this Act.
+(2) There shall also be credited to the Child protection and Care Fund such other sums as may be received by way of donation, contribution, assistance or otherwise from any individual, body corporate, financial institution and other organizations.
+(3) The Child Protection and Care Fund shall be utilized for the child protection and care of un-attended child in such manners as may be prescribed.

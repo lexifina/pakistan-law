@@ -1,0 +1,1 @@
+21. Seek and Find Order.—Where a child is the subject of a Care and Placement Order under the provisions of this Act, and the child cannot be found, the Child Protection Officer may make an application to the Court for the production of the child before the Court.

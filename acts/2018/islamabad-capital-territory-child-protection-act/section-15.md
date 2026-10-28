@@ -1,0 +1,1 @@
+15. Consent of the parents or guardian.—Subject to section 16, the Child Protection Officer shall seek the consent of the parent, legal guardian or current carer of the child, if any, on the action to be taken and the services to be offered to the child. Such consent, under child care plan, shall be recorded in writing in the form of an agreement, as may be prescribed.
