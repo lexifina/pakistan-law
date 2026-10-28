@@ -1,0 +1,1 @@
+47. Cognizance of offences by Courts.⎯ No court shall take cognizance of any offence punishable under this Ordinance except on a complaint in writing made by the Authority or by an officer authorized for the purpose by the Authority.

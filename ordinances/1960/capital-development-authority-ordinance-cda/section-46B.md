@@ -1,0 +1,1 @@
+46B. Disobedience of orders.⎯ Whoever, without lawful excuse, fails or refuses to comply with any direction or order issued by the Authority under this Ordinance shall be guilty of an offence punishable under section 46.

@@ -1,0 +1,1 @@
+13. Preparation of schemes by Authority.⎯ The Authority may, pursuant to the master-programme, itself prepare, when it considers it desirable to do so in the public interest, schemes for the Specified Areas relating to the matters enumerated in sub-section (2) of section 12.

@@ -1,0 +1,1 @@
+35. Power of Authority to give directions to Deputy Commissioner.⎯ The Authority may give direction to the Deputy Commissioner as respects the exercise of his powers and the discharge of his functions under this Chapter and the Deputy Commissioner shall be guided by, and act in accordance with, such directions.

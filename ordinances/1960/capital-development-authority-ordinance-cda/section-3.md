@@ -1,0 +1,4 @@
+3. Declaration of Capital Site.⎯ (1) The [^6][Federal Government] may, from time to time, by notification in the official Gazette, declare any part or parts of the Specified Areas to be the site for the Pakistan Capital.
+(2) Notwithstanding anything contained in this Ordinance or in any other law any such notification as aforesaid may be made so as to be retrospective to any day not earlier than the first day of June,1959, and where a notification is so made, the provisions of the Ordinance shall, in so far as they affect the Capital Site, apply as if this Ordinance were promulgated on the day to which the notification is made retrospective.
+
+[^6]: Subs. by Federal Adaptation of Laws Order, 1975 Art. II and Table. _________________________________________________________________________________________________
