@@ -1,0 +1,1 @@
+13. Removal of difficulty.—If any difficulty arises in giving effect to the provisions of this Act, the Federal Government may make such order in writing, as is not inconsistent with the provisions of this Act, for removal of such difficulty.
