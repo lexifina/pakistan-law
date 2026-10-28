@@ -1,0 +1,1 @@
+9. Confiscated archival material to be made over to Director.—Any archival material which is confiscated under this Act shall be made over to the Director for safe custody, preservation and protection.

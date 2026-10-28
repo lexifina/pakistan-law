@@ -1,0 +1,1 @@
+5. Export of archival material.—No person shall export any archival material except under the authority of a licence granted by the Director for its temporary export for the purpose of exhibition, examination or treatment for preservation.

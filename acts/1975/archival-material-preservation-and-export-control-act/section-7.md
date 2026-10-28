@@ -1,0 +1,1 @@
+7. Jurisdiction to try offences.—No court shall take cognizance of an offence punishable under this Act except upon a complaint in writing made by an officer authorised in this behalf by the Federal Government and no court inferior to that of a Magistrate of the first class shall try any such offence.
