@@ -1,0 +1,1 @@
+21. Borrowing, etc., by the Authority.—The Authority may, with the prior approval in writing of the Federal Government, raise funds for the purpose of its working capital by issuing bonds and debentures carrying interest at such rates as may be approved by the Federal Government.
