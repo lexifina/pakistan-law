@@ -1,0 +1,3 @@
+[^14]5. Recovery of loans. Every loan made in accordance with such rules, all interest (if any) chargeable thereon, and costs (if any) incurred in making or recovering the same, shall, when they become due, be recoverable from the person to whom the loan was made, or from any person who has become surety for their payment thereof, as if they were arrears of land- revenue or costs incurred in recovering the same due by the person to whom the loan was made or by his surety. .
+
+[^14]: Sections 4 and 5 have been amended in their application to the Province of Sind, see Sind Act 10 of 1941, ss. 2 and 3 ; and sub-section (1) of section 4, has been amended in its application to the Punjab, by Punjab Act 10 of 1951, s. 2.
