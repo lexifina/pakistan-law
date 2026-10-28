@@ -1,0 +1,1 @@
+12. Interest after the commencement of this Ordinance. Government may, by notification in the Official Gazette, direct that in any specified area no debtor shall be charged interest on any debt incurred by him after the date of the notification at a rate higher than that specified in the notification.
