@@ -1,0 +1,1 @@
+6. Institute to be open to all classes and creeds:—The Institute shall be open to all persons irrespective of gender, religion, race, domicile, creed, class or color and no person shall be denied the privileges of the Institute on any such ground.
