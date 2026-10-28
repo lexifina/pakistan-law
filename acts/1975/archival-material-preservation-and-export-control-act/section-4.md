@@ -1,0 +1,1 @@
+4. Purchase, gifts, etc., of archival material.—The Director may, with the approval of the Advisory Committee, purchase such archival material as is offered for sale and may accept donations and gifts of archival material from individuals or organizations for preservation in the National Archives of Pakistan.

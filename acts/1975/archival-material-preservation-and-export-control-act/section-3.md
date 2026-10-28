@@ -1,0 +1,1 @@
+3. Dispute as to whether any document is archival material.—If any question arises whether any document is or is not an archival material within the meaning of this Act, it shall be referred to the Federal Government which shall, after consultation with the Advisory Committee, decide the same, and the decision of the Federal Government shall be final.
