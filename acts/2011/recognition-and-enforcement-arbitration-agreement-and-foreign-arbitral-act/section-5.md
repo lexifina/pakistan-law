@@ -1,0 +1,1 @@
+5. Furnishing of documents.⸻(1) The party applying for recognition and enforcement of foreign arbitral award under this Act shall, at the time of the application, furnish documents to the Court in accordance with Article IV of the Convention.
