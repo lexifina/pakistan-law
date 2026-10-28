@@ -1,0 +1,5 @@
+[^30][74A.Power to amend Schedules.__ The Federal Government may, by notification in the official Gazette, amend the Schedules so as to add any entry thereto, amend any entry therein or omit any entry there from if it is satisfied that it is necessary or expedient so to do on the basis of following, namely:__
+(a) the information and evidence which has become available to it with respect to the nature and effects of and the abuse or the scope for abuse of any substance (natural or synthetic) or natural material or preparation of such substance or material; or
+(b) the modifications or provisions, if any, which have been made to or in any international convention with respect to such substance, natural material or any salt or preparation of such substances or material.]
+
+[^30]: Ins. by the control of narcotic substances (Amdt.) Act 2022 (XX of 2022) s.25. _______________________________________________________________________________________________________________ International Other non-proprietary non-proprietary Chemical Name names or trivial names

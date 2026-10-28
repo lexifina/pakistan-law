@@ -1,0 +1,6 @@
+32. Articles connected with narcotics.__ (1) Whenever an offence has been committed which is punishable under this Act, the narcotic drug, psychotropic substance or controlled substance, materials, apparatus and utensils in respect of which, or by means of which, such offence has been committed shall be liable to confiscation.
+(2) Any narcotic drug, psychotropic substance or controlled substance lawfully imported, transported, manufactured, possessed, or sold along with, or in addition to, any narcotic drug, psychotropic substance or controlled substance which is liable to confiscation under sub-section (1) and the receptacles or packages, and the vehicles, vessels and other conveyances used in carrying such drugs and substances shall likewise be liable to confiscation:
+Provided that no vehicle, vessel or other conveyance shall be liable to confiscation unless it is proved that the owner thereof knew that the offence was being, or was to be, committed [^18][:]
+[^18][Provided further that if any currency whether local or foreign or any valuable item having monetary value used for the commission of the offence under this Act is seized it shall be confiscated along-with other articles.]
+
+[^18]: Subs. and added by the control of narcotic substances (Amdt.) Act 2022 (XX of 2022) s.12.

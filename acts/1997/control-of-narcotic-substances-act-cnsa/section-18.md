@@ -1,0 +1,1 @@
+18. Limit of fine, etc.__ Where for any offence under this Act no amount of minimum fine has been fixed, the Special Court shall impose a fine keeping in view the quality and quantity of the narcotic drug, psychotropic substance or controlled substance involved in the commission of such offence.

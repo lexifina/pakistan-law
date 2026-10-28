@@ -1,0 +1,5 @@
+72. Application of the Customs Act, 1969.__ All prohibitions and restrictions imposed by or under this [^28][Act] on the import into, export from, Pakistan and transshipment of narcotic drugs, psychotropic substances or controlled substances shall be deemed to be prohibitions and restrictions imposed by or under the Customs Act, 1969 (IV of 1969), and the provisions of this Act shall apply accordingly:
+Provided that, notwithstanding anything contained in the Customs Act, 1969 (IV of 1969), or any other law for the time being in force, all offences relating to narcotic drugs, psychotropic substances or controlled substances shall be tried under the provisions of this Act :
+Provided further that where the Officers of Customs apprehends a person involved in any offence relating to narcotic drugs, psychotropic substances or controlled substances shall be empowered to carry out inquiry and investigation in the same manner as an officer authorised under this Act.
+
+[^28]: Subs. by the control of narcotic substances (Amdt.) Act 2022 (XX of 2022) s.24.

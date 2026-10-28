@@ -1,0 +1,1 @@
+55. Annual Report of the activities financed out of the Fund.__ The Governing Body shall, after the end of each financial year, submit to the Federal Government a report giving an account of its activities and the activities financed out of the Fund during the financial year, together with a statement of accounts.

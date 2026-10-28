@@ -1,0 +1,4 @@
+74. Application of other laws.__ If an offence punishable under this Act, is also an offence in any other law for the time being in force, nothing in that law shall prevent the offender from being punished under this Act :
+Provided that nothing contained in section 523 of the Code of Criminal Procedure, 1898 (Act V of 1898), or any other provision of the said Code or any other law for time being in force, the custody of narcotic drugs, psychotropic substances, controlled substances, any material utensils used for production or manufacture of such drugs or substances or any conveyance used in import, export, transport or transhipment thereof or for commission of an offence under this Act, shall not be given on custody to the accused or any of his associate or relative or any private individual till the conclusion of the case [^29][except as provided in the second proviso to sub-section (2) of section 33].
+
+[^29]: Added by Ord. 66 of 2000, s.3.

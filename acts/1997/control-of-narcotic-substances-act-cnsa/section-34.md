@@ -1,0 +1,2 @@
+34. Federal Narcotics Testing Laboratory, etc.__ (1) The Federal Government may, as soon as may be after the commencement of this Act, set-up a Federal Narcotic Testing Laboratory and such other institutes and narcotics testing research laboratories or notify any other laboratory or institute to be a Federal Narcotics Testing Laboratory for carrying out the purposes of this Act.
+(2) The Provincial Government may, wherever deems appropriate, set-up Provincial Narcotics Testing Laboratories.

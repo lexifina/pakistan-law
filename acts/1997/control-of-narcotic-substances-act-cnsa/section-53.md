@@ -1,0 +1,1 @@
+53. Powers of the Government to establish centres for treatment of addicts. __The Provincial Government shall establish as many centres as may be deemed necessary for de-toxification, de-addiction, education, after-care, rehabilitation, social integration of addicts and for supply of such medicines as are considered necessary for the de-toxification of the addicts.

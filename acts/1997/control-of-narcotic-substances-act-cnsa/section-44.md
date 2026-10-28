@@ -1,0 +1,2 @@
+44. Management of assets frozen or forfeited under the Act. __ (1) The Federal Government may, by a notification in the official Gazette, appoint any officer of the Federal Government or a Provincial Government as it may think fit to perform the functions of an Administrator of the assets frozen or forfeited under this order.
+(2) The Administrator appointed under sub-section (1) shall take such actions and exercise such powers as the Federal Government may direct for the maintenance and disposal of the assets which are frozen or forfeited to the Federal Government.

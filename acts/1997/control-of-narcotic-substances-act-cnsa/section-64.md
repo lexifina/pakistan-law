@@ -1,0 +1,3 @@
+64. Requests to recover foreign fines.__(1) Where the Federal Government approves a request from a foreign State to enforce the payment of a fine imposed by a court of that State, a court in Pakistan shall enforce the payment of the fine as if the fine has been imposed by a court in Pakistan.
+Explanation__For the purpose of this section the expression “fine” shall include any pecuniary penalty determined by a foreign court to represent the value of any property, benefit, advantage, obtained or derived directly or immediately as a result of the commission of an offence relating to narcotic substances.
+(2) No proceedings under sub-section (1) shall be instituted after the expiry of five years from the date the fine was imposed.
