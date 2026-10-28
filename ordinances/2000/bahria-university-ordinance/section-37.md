@@ -1,0 +1,1 @@
+37. Disputes about membership of authorities etc:___ A person nominated or appointed to any authority shall cease to be a member of such authority as soon as he ceases to hold the position by virtue of which he was nominated or appointed.

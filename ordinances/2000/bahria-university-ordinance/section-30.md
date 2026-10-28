@@ -1,0 +1,2 @@
+30. Retirement and reemployment:___ An officer, teacher or other employee of the University shall retire from service on attaining the age of sixty years or as provided in the terms of appointment and on retirement may be employed in the manner prescribed by the Board on contract in specially deserving cases.
+Explanation.—In this section 'competent authority' means the appointing authority or a person duly authorised by the appointing authority in that behalf, not being a person lower in rank to the officer, teacher or other employee concerned.

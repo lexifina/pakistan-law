@@ -1,0 +1,1 @@
+24. Academic and non-academic employees:___ The Academic and non-academic employees of the University, including its Constituent Units, shall be selected with a view to achieving its objectives and the basic criteria for their selection shall be the highest standards of competence, integrity and proficiency.

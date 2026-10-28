@@ -1,0 +1,1 @@
+11. Director of examinations and academic affairs:___ There shall be a Director examinations and academic affairs who shall deal with all matters concerning examinations and coordination with constituent and affiliated institutions and shall be responsible for policy making, coordinating and overseeing all activities relating to academics, research and development.
