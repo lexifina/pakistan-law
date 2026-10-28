@@ -1,0 +1,4 @@
+[^4][2. Limitation of tax on professions, etc.—(1) Notwithstanding the provisions of any law for the time being in force, a Provincial Assembly may by an Act impose tax not exceeding one hundered thousand rupees on persons engaged in professions, trades, callings or employments.
+(2) Notwithstanding anything contained in any law or in any judgment of any court including a High Court and the Supreme Court, the tax on professions, trades, callings or employments levied and collected under an Act of a Provincial Assembly on or after the 1st day of July, 1977, as is not in excess of the limit fixed in sub-section (1), shall be deemed to have been validly levied and collected and shall not be liable to be refunded and the provisions of this Act shall have, and shall be deemed always to have had, effect accordingly.]
+
+[^4]: Subs. by Act III of 06, s. 3 and shall be deemed to have been so, subs. on 1st July, 1977.
