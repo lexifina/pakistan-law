@@ -1,0 +1,6 @@
+8. Penalty. (1) Whoever contravenes any provision of this Act [^3][(other than the provisions of clause (c) of sub-section (2) of section 3)] or such of the rules made thereunder as may be prescribed, shall on first conviction, be punished with fine which may extend to two hundred rupees or with imprisonment for a term which may extend to one month or with both and, on second or subsequent conviction, with imprisonment which may extend to six months, or with fine which may extend to five hundred rupees or with both.
+[^3][1A. Whoever contravenes the provisions of clause (c) of sub-section (2) of section 3 shall be punished with imprisonment for a term which may extend to three years, or with fine, or with both, and the court trying such contravention shall direct that any animal slaughtered in contravention of the provisions of the said clause shall be forfeited to Government.]
+(2) An attempt to contravene any provisions of this Act or the rules as aforesaid and an abetment of such contravention shall be punished as an offence under this Act.
+(3) Any person who is in possession of the premises where an offence under this Act has been or is being committed may be presumed to have abetted that offence.
+
+[^3]: Ins. by the West Pakistan Ordinance No. XXIV of 1965, s. 5.

@@ -1,0 +1,1 @@
+9. Forfeiture. The court trying an offence under this Act may direct that any animal, carcass or meat in respect of which the court is satisfied that an offence under this Act has been committed, be forfeited to Government.
