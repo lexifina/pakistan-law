@@ -1,0 +1,1 @@
+7. Savings. No order made or deemed to have been made under this Act shall be called in question in any court, and no suit, prosecution or other legal proceeding shall lie against any person for anything in good faith done or intended to be done under this Act or any rules made thereunder or any order made or deemed to have been made thereunder.
