@@ -1,0 +1,1 @@
+17. Jurisdiction of Civil Court barred. No Civil Court shall have jurisdiction to entertain any claim or enforce any right under a mortgage declared extinguished under this Chapter or to question the validity of any proceedings under this Chapter.

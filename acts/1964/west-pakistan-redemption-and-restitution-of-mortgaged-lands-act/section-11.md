@@ -1,0 +1,1 @@
+11. Petition when to be dismissed. Where the Collector is satisfied that a petition is not in respect of a subsisting usufructuary mortgage not less than twenty years old, or a usufructuary mortgage the period whereof has expired, he shall dismiss the petition, recording his reasons for such order.

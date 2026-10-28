@@ -1,0 +1,1 @@
+5. Powers of Collector to order ejectment. Where the Collector, after hearing the mortgagee and holding such enquiry as may be prescribed, is satisfied that the mortgagor has a right to redeem and has deposited or is prepared to pay the sum which the Collector finds due under the mortgage, he shall make an order directing that the mortgage be redeemed.
