@@ -1,0 +1,1 @@
+70. Computation of limitation period.– In computing the period of limitation prescribed for any appeal or application under this Act, the day on which the order complained of was served and, if the concerned person was not furnished with a copy of the order, the time requisite for obtaining a copy of such order shall be excluded.

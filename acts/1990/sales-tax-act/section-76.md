@@ -1,0 +1,6 @@
+[^785][76. Fee and service charges.–3[(1)] The [^786][“Board with approval of the Federal Minister-in-charge”] may, by notification in the official Gazette, subject to such conditions, limitations or restrictions as it may deem fit to impose, levy fee and service charges for valuation, in respect of any other service or control mechanism provided by any formation under the control of the Board, including ventures of public-private partnership, at such rates as may be specified in the notification.]
+[^787][(2) The Board may authorize and prescribe the manner in which fee and service charges collected under sub-section (1) shall be expended.]
+
+[^785]: New section 76 added through Finance Act, 2019.
+[^786]: Words “Federal Government” substituted through Tax Laws (Amendment) Act, 2020, dated 30-3-2020.
+[^787]: Existing sub-section renumbered as sub-section (1) and new sub-section (2) inserted by Finance Act, 2021. Serial Description Heading Nos. of the First Schedule to No. the Customs Act, 1969 (IV of 1969) (1) (2) (3) 1 Fruit juices and vegetable juices 20.09 2 Ice Cream. 764[2105.0000] 3 Aerated waters or beverages. 22.01 and 20.02 4 Syrups and squashes. Respective headings 5 Cigarettes. 2402.2000

@@ -1,0 +1,2 @@
+54. Estate in bankruptcy.– (1) If a registered person is declared bankrupt, the tax liability under this Act shall pass on to the estate in bankruptcy if it continues to operate the business.
+(2) If tax liability is incurred by an estate in bankruptcy, the tax is deemed to be a current expenditure in the operations of the estate in bankruptcy and shall be paid before the claims preferred by other creditors are settled.
