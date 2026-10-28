@@ -1,0 +1,4 @@
+5. Institute open to all classes, creeds, etc.___(1) The Institute shall be open to all persons of either gender and of whatever religion, caste, race, creed, class, colour or domicile and no person shall be denied the privileges of the Institute on the ground of gender, religion, race, class, colour, creed or domicile.
+(2) The Institute shall admit students from all regions of the country on merit.
+(3) An increase in any fee or charge that is in excess of ten percent per annum on an annual basis from the last such increase may not be made.
+(4) The Institute shall launch financial aid programmes for students in need, to the extent considered feasible by the Board, given the resources are available, so as to enable admission and access to the Institute and the various opportunities provided by it to be based on merit rather than ability to pay.
