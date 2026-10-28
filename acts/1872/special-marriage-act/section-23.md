@@ -1,0 +1,2 @@
+23. Rights of succession in certain cases of marriages under Act. A person professing the Hindu, Buddhist, Sikh or Jaina religion who marries under this Act shall have the same rights and be subject to the same disabilities in regard to any right of succession to any property as a person to whom the Caste Disabilities Removal Act, 1850 (XXI of 1850), applies:
+Provided that nothing in this section shall confer on any person any right to any religious office or service, or to the management of any religious or charitable trust.

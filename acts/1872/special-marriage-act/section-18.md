@@ -1,0 +1,1 @@
+18. Law to apply to issue of marriages under Act. The issue of marriages solemnized under this Act shall, if they marry under this Act, be deemed to be subject to the law to which their fathers were subject as to the prohibition of marriages by reason of consanguinity and affinity, and the provisos to section 2 of this Act shall apply to them.

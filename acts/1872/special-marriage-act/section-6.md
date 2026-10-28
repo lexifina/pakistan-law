@@ -1,0 +1,3 @@
+6. Objection to Marriage. Fourteen days after notice of an intended marriage has been given under section 4, such marriage may be solemnized, unless it has been previously objected to in the manner hereinafter mentioned.
+Any person may object to any such marriage on the ground that it would contravene some one or more of the conditions prescribed in clauses (1), (2), (3) or (4) of section 2.
+The nature of the objection made shall be recorded in writing by the Registrar in the register, and shall, if necessary, be read over and explained to the person making the objection, and shall be signed by him or on his behalf.
