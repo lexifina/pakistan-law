@@ -1,0 +1,1 @@
+41. Power to require party for whom instrument is cancelled to make compensation. On adjudging the cancellation of an instrument, the Court may require the party to whom such relief is granted to make any compensation to the other which justice may require.

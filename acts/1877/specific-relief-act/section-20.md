@@ -1,0 +1,3 @@
+20. Liquidation of damages not a bar to specific performance. A contract, otherwise proper to be specifically enforced, may be thus enforced, though a sum be named in it as the amount to be paid in case of its breach, and the party in default is willing to pay the same.
+Illustration
+A contracts to grant B an under-lease of property held by A under C, and that he will apply to C for a license necessary to the validity of the under-lease, and that, if the license is not procured, A will pay B Rs. 10,000. A refuses to apply for the license and offers to pay B the Rs. 10,000. B is nevertheless entitled to have the contract specifically enforced if C consents to give the license.

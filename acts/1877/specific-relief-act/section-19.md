@@ -1,0 +1,13 @@
+19. Power to award compensation in certain cases. Any person suing for the specific performance of a contract may also ask for compensation for its breach, either in addition to, or in substitution for, such performance.
+If in any such suit the Court decides that specific performance ought not to be granted, but that there is a contract between the parties which has been broken by the defendant and that the plaintiff is entitled to compensation for that breach, it shall award him compensation accordingly.
+If in any such suit the Court decides that specific performance ought to be granted, but that it is not sufficient to satisfy the justice of the case, and that some compensation for breach of the contract should also be made to the plaintiff, it shall award him such compensation accordingly.
+Compensation awarded under this section may be assessed in such manner as the Court may direct.
+Explanation.__ The circumstance that the contract has become incapable of specific performance does not preclude the Court from exercising the jurisdiction conferred by this section.
+Illustrations
+of the second paragraph___
+A contracts to sell a hundred maunds of rice to B. B brings a suit to compel A to perform the contract or to pay compensation. The Court is of opinion that A has made a valid contract and has broken it, without excuse, to the injury of B, but that specific performance is not the proper remedy. It shall award to B such compensation as it deems just.
+of the third paragraph___
+A contracts with B to sell him a house for Rs. 1,000, the price to be paid and the possession given on the 1st January 1877. A fails to perform his part of the contract, and B brings his suit for specific performance and compensation, which is decided in his favour on the 1st January, 1878. The decree may, besides ordering specific performance, award to B compensation for any loss which he has sustained by A’s refusal.
+of the Explanation___
+A, a purchaser, sues B, his vendor, for specific performance of a contract for the sale of a patent. Before the hearing of the suit the patent expires. The Court may award A compensation for the non- performance of the contract, and may, if necessary, amend the plaint for that purpose.
+A sues for the specific performance of a resolution passed by the Directors of a public company, under which he was entitled to have a certain number of shares allotted to him, and for compensation for the non-performance of the resolution. All the shares had been allotted before the institution of the suit. The Court may, under this section, award A compensation for the non-performance.

@@ -1,0 +1,3 @@
+43. Effect of declaration. A declaration made under this Chapter is binding only on the parties to the suit, persons claiming through them respectively, and, where any of the parties are trustees, on the persons for whom, if in existence at the date of the declaration, such parties would be trustees.
+Illustration
+A, a Hindu, in a suit to which B, his alleged wife, and her mother, are defendants, seeks a declaration that his marriage was duly solemnized and an order for the restitution of his conjugal rights. The Court makes the declaration and order. C, claiming that B is his wife, then sues A for the recovery of B. The declaration made in the former suit is not binding upon C.
