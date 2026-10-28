@@ -1,0 +1,2 @@
+15. Postponement of payments and registration of transfers pending the making of a
+vesting Order.— Where the Bank contemplates making an order under this Act to vest a Government security in any person, the Bank may suspend payment of interest on or the maturity value of the security or postpone the making of any order section 11 or the registration of any transfer of the security until the vesting order has been made.

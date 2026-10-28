@@ -1,0 +1,1 @@
+4. Transferor of Government securities not liable for amount thereof.— Notwithstanding anything contained in the Negotiable Instruments Act, 1881 (XXVI of 1881), a person shall not, by reason only of his having transferred a Government security, be liable to pay any money due either as Principal or as interest there under.

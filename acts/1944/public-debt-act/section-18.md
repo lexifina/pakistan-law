@@ -1,0 +1,1 @@
+18. Scope of vesting order. An order made by the Bank under this Act may confer the full title to a Government security or may confer a title only to the accrued and accruing interest on the security pending a further order vesting the full title.

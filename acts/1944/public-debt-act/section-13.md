@@ -1,0 +1,4 @@
+13. Law applicable in regard to Government securities.— Notwithstanding that as a matter of convenience [^30][Government] may have arranged for payments on a Government security to be made elsewhere than in [^31][Pakistan], the rights of all person in relation to Government securities shall be determined in connection with all such questions as are dealt with by this Act by the law and in the Courts of [^31][Pakistan].
+
+[^30]: Sub. by the Public Debt (Central Government) (Amdt.) Ordinance, 1961 (7 of 1961), s. 6, for “the Central Government”.
+[^31]: Subs. by the Central Laws (Statue Reform) Ordinance, 1960 (21 of 1960), s. 3 and 2nd Sch. (with effect from the 14th October, 1955), for “the Provinces and the Capital of the Federation” which had been subs. by A. O., 1949, for “British India”.

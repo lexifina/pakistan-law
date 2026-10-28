@@ -1,0 +1,4 @@
+6. Notice of trust not receivable.—(1) No notice of any trust in respect of any Government security shall be receivable by [^20][Government] nor shall [^20][Government] be bound by any such notice even though expressly given, nor shall [^20][Government] be regarded as a trustee in respect of any Government security.
+(2) Without prejudice to the provisions of sub-section (1), the Bank may, as an act of grace and without any liability to the Bank or to [^20][Government] record in its books such directions by the holder of stock for the payment of interest on, or of the maturity value of, or the transfer of, or such other matters relating to, the stock as the Bank thinks fit.
+
+[^20]: Subs. by the Public Debt (Central Government) (Amdt.) Ordinance, 1961 (7 of 1961), s. 6, for the “Central Government”.

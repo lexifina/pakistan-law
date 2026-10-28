@@ -1,0 +1,6 @@
+14. Recording of evidence.— (1) For the purpose of making any order which it is em-powered to make under this Act, the Bank may request a [^32][Sessions Judge] [^33]* * * to record or to have recorded the whole or any part of such evidence as any person whose evidence the Bank requires may produce. A [^32][Sessions Judge] so requested may himself record, or may direct any Magistrate of the first class subordinate to him or any Magistrate of the second class subordinate to him and empowered in this behalf by general or special order of the [^32][High Court] to record the evidence, and shall forward a copy thereof to the Bank.
+(2) For the purpose of making a vesting order under this Act the Bank may direct one of its officers to record the evidence of any person whose evidence the Bank requires or may receive evidence upon affidavit.
+(3) A Magistrate or an officer of the Bank acting in pursuance of this section may administer an oath to any witness examined by him.
+
+[^32]: Subs. by Ord. 23 of 02, s. 2. [this shall come into force in ICT with effect from 15.07.2004 wide SRO 601 (I)/2004].
+[^33]: Certain words omitted by the Federal Laws (Revision and Declaration) Ordinance, 1981 (27 of 1981), s. 3 and 2nd "Sch., which was previously amended by Act 26 of 1951, s. 4 and 3rd Sch.
