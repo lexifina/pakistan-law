@@ -1,0 +1,1 @@
+8. Dissolution of undesirable companies. When the affairs of an undesirable company have been completely wound up, the company shall be deemed to have been dissolved under sub-section (1) of section 194 of the Companies Act, 1913 (VII of 1913).
