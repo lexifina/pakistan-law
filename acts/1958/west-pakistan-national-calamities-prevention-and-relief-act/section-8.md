@@ -1,0 +1,2 @@
+8. Revision. (1) Any order passed under this Act by the Relief Commissioner, shall be subject to revision by the Government, and the Relief Commissioner shall give effect to the orders of the Government made in revision.
+(2) The Government shall, by rules, prescribe the class of cases and the manner in which and the time within which orders made under this Act shall be liable to revision by the Government.
