@@ -1,0 +1,4 @@
+21. Repeal and savings.—On the commencement of this Act,—
+(a) the Cabinet Division's Notification No.4-16/2005-Min-I, dated the 30th December, 2005, shall stand rescinded;
+(b) the National Vocational and Technical Education Commission constituted under the aforesaid notification shall stand dissolved and all its assets, liabilities, members and staff shall become assets, liabilities, members and staff of the Commission established under this Act; and
+(c) notwithstanding anything contained herein before, all orders made, actions taken, vesting orders or notifications issued under any of the powers conferred or vested under the Cabinet Division's Notification No.4-16/2005-Min-I, dated the 30th December, 2005 shall be deemed always to have been lawfully and validly made, taken, issued and vested under the provision of this Act.

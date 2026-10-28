@@ -1,0 +1,2 @@
+11. Appointment of officers and staff.—(1) The Commission may, subject to general or special orders, as the Federal Government may give to it from time to time and subject to such rules as may be made in this behalf, create posts, appoint such officers, advisers, consultants and employees as it considers necessary for the efficient performance of its functions on such terms and conditions as may be prescribed.
+(2) The Commission shall make rules for the recruitment of its employees.
