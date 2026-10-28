@@ -1,0 +1,7 @@
+10. Chancellor.— The Chairman of the Society shall be the Chancellor of the Institute and the Chairperson of the Senate.
+(2) The members of the Senate as well as the Vice-Chancellor shall be appointed by the Chancellor from amongst the persons recommended by the Representation Committee set up for this purpose or the
+Search Committee established in accordance with this Act and the Statutes, as the case may be, along-with those elected.
+(3) If the Chancellor is satisfied that serious irregularity or m is-management with respect to the affairs of the Institute has occurred, he may.___
+(a) as regard:· proceedings of the Senate, direct that specified proceedings be reconsidered and appropriate action taken within one month of the direction having been issued:
+Provided that if the Chancellor is satisfied that either no reconsideration has been carried out or that the reconsideration has failed to address the concern expressed he may, after calling upon the Senate to show cause in writing, appoint a five member Review Panel to examine and report to the Chancellor on the functioning of the Senate. The Review Panel shall be drawn from persons of eminence in academics and in the fields of law, accountancy and administration and the report of the Review Panel shall be submitted within such time as may be specified by the Chancellor; and
+(b) as regards proceedings of any Authority or with respect to matters within the competence of any Authority other than the Senate, direct the Senate to exercise powers under section I8.
