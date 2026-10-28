@@ -1,0 +1,1 @@
+12. Rules of establishment of hotel and restaurant. Every owner shall prepare the rules of the establishment in respect of his hotel or restaurant conforming with the provisions of this Act and the rules made thereunder and get them approved by the Controller.

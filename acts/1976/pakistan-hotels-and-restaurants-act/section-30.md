@@ -1,0 +1,1 @@
+30. Other laws not applicable.― Nothing contained in the Sarais Act, 1867 (XXII of 1867), or the Karachi Hotels and Lodging-Houses (Control) Act, 1950 (LXV of 1950), shall apply to a hotel or restaurant to which this Act for the time being applies.

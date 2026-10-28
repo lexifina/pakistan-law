@@ -1,0 +1,1 @@
+4. Setting up of Advisory Committee. As soon as may be after the commencement of this Act, the Federal Government may set up a Hotels and Restaurants Committee, consisting of as many members as the Federal Government may determine, to aid and advise the Federal Government in relation to such matters relating to the administration of this Act as may be prescribed.

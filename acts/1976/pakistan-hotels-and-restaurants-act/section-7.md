@@ -1,0 +1,4 @@
+7. Issue of licence.― (1) Every owner shall, after registration of his hotel or restaurant under section 5, obtain a licence from the Controller on payment of such fee as may be prescribed.
+(2) No owner shall carry on his business or, in the case of a hotel, use the classification star sign, without first getting the hotel or restaurant registered and obtaining a licence under this Act.
+(3) A licence granted under this section shall, unless sooner suspended or cancelled, remain in force for a period of one year from the date of issue and may thereafter be renewed for a period of one year at a time on payment of the prescribed fee:
+Provided that if an application for renewal of a licence is made before the expiry of the period of its validity, the licence shall continue in force until orders are passed on such application.
