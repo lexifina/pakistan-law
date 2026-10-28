@@ -1,0 +1,1 @@
+6. Intimation on release of a member.— When a member after his arrest or detention is released on bail or otherwise or is acquitted of a criminal charge, such fact shall be intimated to the Chairman or Speaker, as the case may be, by the authority concerned.

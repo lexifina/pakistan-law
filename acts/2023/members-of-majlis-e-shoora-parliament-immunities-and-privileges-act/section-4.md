@@ -1,0 +1,1 @@
+4. Registration of cases.— When a first information report (FIR) is registered or reference is filed, against a member, the Chairman or Speaker, as the case may be, shall be informed and copy of the FIR or reference, as the case may be, shall be provided within twenty-four hours of such registration or filing.

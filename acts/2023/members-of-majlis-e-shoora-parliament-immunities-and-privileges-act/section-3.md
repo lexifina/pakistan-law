@@ -1,0 +1,1 @@
+3. Arrest under preventive detention laws.— No member shall be detained under any law pertaining to preventive detention once the session is summoned by the President or the Chairman or Speaker, as the case may be.
