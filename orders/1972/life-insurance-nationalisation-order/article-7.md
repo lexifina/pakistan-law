@@ -1,0 +1,3 @@
+7. Restriction on transfer of assets.___(1) If a trustee has reason to believe that the assets constituting the life fund of a composite insurer are not sufficient to meet the liabilities of the insurer in respect of life insurance, the trustee may apply to the Controller of Insurance to prohibit the insurer from transferring, pledging, hypothecating or in any way directly or indirectly disposing of, or creating a lien in respect of, all or any of the assets of the insurer.
+(2) Upon an application under clause (1) the Controller of Insurance may pass such orders as he deems fit:
+Provided that an insurer aggrieved by the order of the Controller of Insurance may appeal to the Tribunal whose decision on such appeal shall be final.

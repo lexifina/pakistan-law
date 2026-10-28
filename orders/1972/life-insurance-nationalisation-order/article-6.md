@@ -1,0 +1,2 @@
+6. Possession of assets relating to life insurance business.___(1) A trustee appointed in respect of an insurer shall take possession of all assets of the insurer in so far as they relate to life insurance business.
+(2) Where a composite insurer has any assets in common use or which cannot be allocated to either life insurance business or any other class of insurance business, the trustee may, if he is of the opinion that the assets are allocable to life insurance business, take possession of those assets.

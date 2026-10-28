@@ -1,0 +1,6 @@
+39. Compensation.___ (1) Where the life insurance business of an insurer has been transferred to and vested in a Corporation, compensation shall be paid by the Corporation to that insurer.
+(2) The amount of the compensation payable under clause (1) shall be determined, in accordance with the principles set out in the Schedule, by such authority as the [^14][Federal Government] may appoint in this behalf, and, if the amount so determined is approved by the [^14][Federal Government], it shall be offered to the insurer in full satisfaction of the compensation payable to him under clause (1).
+(3) If the amount so offered is not acceptable to the insurer, he may, within such time as may be prescribed by rules, have the matter referred to the Tribunal for decision.
+[^14][(4) Notwithstanding anything contained in clause (2), in the case of an insurer incorporated outside Pakistan whose paid-up capital is held outside Pakistan, the Federal Government may, with the consent of the insurer, settle the compensation payable to him under clause (I) in such manner as the Federal Government may consider equitable and direct the Corporation to pay the insurer the compensation so settled.]
+
+[^14]: Subs. and added by Act No. LXVII of, 1973, ss. 2 and 4.
