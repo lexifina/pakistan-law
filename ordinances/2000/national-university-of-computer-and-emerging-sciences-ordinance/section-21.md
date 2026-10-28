@@ -1,0 +1,1 @@
+21. Constitution, function and powers of authorities.___ Subject to the provisions of this Ordinance, the constitution, functions and the powers of the authorities for which no specific provision has been made in this Ordinance shall be such as may be prescribed by Statutes.
