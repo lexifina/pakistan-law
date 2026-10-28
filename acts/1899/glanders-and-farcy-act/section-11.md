@@ -1,0 +1,2 @@
+11. Prohibition against removal, without license of horse which has been with diseased
+horse. No person in charge of any horse which has been in the same field, building or place as, or in contact with, a diseased horse, shall remove such horse except in good faith for the purpose of preventing infection, or under a license to be granted by the Inspector and subject to the conditions of the license.

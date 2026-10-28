@@ -1,0 +1,4 @@
+9. When horse diseased, place where it has been to be disinfected, etc.__ (1) When any diseased horse has been in any building, shed or other enclosed place, or in any open lines, the Inspector may issue a notice to the owner of the building, shed, place or lines, or to the person in charge thereof, directing him to have the same disinfected and the internal fittings thereof, or such other things found therein or near thereto as the [^13][Provincial Government] may by rule prescribe, destroyed.
+(2) On the failure or neglect of such owner or other person as aforesaid to comply with the notice within a reasonable time, the Inspector shall cause the building, shed, place or lines to be disinfected and the fittings or other things to be destroyed, and the expense (if any) thereby incurred may be recovered from the owner or other person as if it were a fine.
+
+[^13]: Subs. by A.O., 1937, for “L. G.”.
