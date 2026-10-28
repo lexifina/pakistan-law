@@ -1,0 +1,1 @@
+35. Suits for infringement to be instituted before IP Tribunals.__ (l) No suit in matters relating to infringement of a geographical indication or otherwise relating to any right in a geographical indication shall be instituted in any other court except an IP Tribunal.

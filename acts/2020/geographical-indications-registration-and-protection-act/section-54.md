@@ -1,0 +1,1 @@
+54. Power of fee setting and collection.__ The concerned Division shall prescribe a schedule of fee and charges for services rendered to the applicants and the public or as otherwise required under this Act. Any fee collected under this Act or the rules shall be deposited in the name of Director General IPO as demand draft or as may be prescribed.

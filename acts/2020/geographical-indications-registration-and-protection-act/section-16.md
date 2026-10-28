@@ -1,0 +1,5 @@
+16. Grant of registration of registrant.__ (l) When an application for registration of a geographical indication has been accepted, the Registrar shall register the registrant of the product bearing geographical indication mentioned in the application and the geographical indication shall stand registered from the date of making of said application and it shall be deemed to be the date of registration.
+(2) On the registration of a geographical indication, the Registrar shall issue to the registrant, a certificate in such form as may be prescribed, sealed with the seal of the Registry.
+(3) Subject to the provisions of this Act, the Registrar may accept an application absolutely or subject to such amendments, modifications, conditions or limitations, if any, as he may deem fit.
+(4) In case of conditional acceptance of application, the Registrar shall record in writing the grounds for such conditional acceptance and the reasons to be recorded in writing for arriving at such decision.
+(5) The Registrar may amend the register or a certificate of registration for the purpose of correcting a clerical error or an obvious mistake.

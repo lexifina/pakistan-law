@@ -1,0 +1,2 @@
+27. Use of geographical indication.__ (1) When Geographical Indication has been registered for any particular product, the producers or operators of such product who is entered in the Register as authorized users, is entitled to use the registered geographical indication for goods, subject to compliance with product specification.
+(2) The use of registered geographical indication includes applying it on products, packages, advertising material and any other document related to registered geographical products.

@@ -1,0 +1,4 @@
+36. Order for erasure of offending mark.__ (1) Where a person is found to have infringed a registered geographical indication, the High Court or an IP Tribunal may make an order requiring him__
+(i) to cause the offending geographical indication to be erased, removed or obliterated from any infringing goods, material or articles in his possession, custody or control; or
+(ii) to secure the destruction of the infringing goods, material or articles, if it is not reasonably practicable for the offending geographical indication to be erased, removed or obliterated.
+(2) If an order under sub-section (1) is not complied with or it appears to the High Court or IP Tribunal, as the case may be, that such an order may not be complied with, the High Court or IP Tribunal may order that infringement goods, material or articles be delivered to such person and may further direct for erasure, removal or obliteration of the mark or for destruction, as the case maybe.

@@ -1,0 +1,2 @@
+29. Registration to be prima facie evidence of validity.__ (1) In all legal proceedings relating to a geographical indication, the certificate of registration granted under this Act, being a copy of the entry in the register under the seal of the Geographical Indications Registry, shall be prima facie evidence of the validity thereof and be admissible in all courts without further proof or production of the original.
+(2) Nothing in this section shall be deemed to affect right of action in respect of an unregistered geographical indication.

@@ -1,0 +1,3 @@
+4. Registrar geographical indications and other functionaries.― The IPO Pakistan may, by notification in the official Gazette, appoint an officer who shall serve as the Registrar:
+Provided that the Registrar of Trade Marks, appointed under sub-section (1) of section 7 of the Trade Marks Ordinance, 2001 (XIX of 2001) shall perform the functions of Registrar Geographical Indications till the appointment of an officer as Registrar under this section, to carry out his functions under this Act:
+Provided further that the appointment of Registrar under this section shall be made within three hundred and sixty days after the commencement of this Act.

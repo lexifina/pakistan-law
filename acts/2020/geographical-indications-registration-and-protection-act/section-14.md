@@ -1,0 +1,1 @@
+14. Technical assistance of experts.__ The Registrar may, if so require, be assisted in technical aspects in various fields such as geology or meteorology involved in any case by any expert who has experience and expertise in the matter in order to consider or make a decision or ascertain the correctness of the particulars furnished in the application.

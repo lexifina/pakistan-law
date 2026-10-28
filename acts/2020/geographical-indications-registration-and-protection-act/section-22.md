@@ -1,0 +1,1 @@
+22. Correction and Amendment.__ (1) The Registrar may, at any time, whether before or after acceptance of an application for registration, permit the correction of any error or permit an amendment of the application.

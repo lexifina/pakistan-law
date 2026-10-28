@@ -1,0 +1,2 @@
+53. Revocation.__ Any interested person may request the Registrar within twelve months of registration of an authorized user of geographical indication; or the High Court at any time after registration of an authorized user to revoke the registration of a geographical indication on the grounds provided under section 8:
+Provided that if any suit or other proceedings concerning the same geographical indication are pending before an IP Tribunal, the application shall be made to the High Court within whose jurisdiction that IP Tribunal is located.

@@ -1,0 +1,5 @@
+45. Power to vary or cancel registration as an authorized user.__( 1) The registration of a person as an authorized user may be—
+(i) amended, corrected or cancelled by the Registrar on the application by the Registrant of the geographical indication or certification body or organization in the prescribed manner for failure to observe such conditions and restrictions which were pre-requisites of registration as an authorized user;
+(ii) amended, corrected or cancelled by the Registrar on the application in writing in the prescribed manner by an authorized user of the geographical indication; and
+(iii) cancelled by the Registrar as envisaged under clauses (i) and (ii).
+(2) Registration of authorized user may be varied or cancelled by IP Tribunal in case of infringement of a registered geographical indication. It may be varied or cancelled by High Court in case an appeal is filed against a decision of registrar or an appeal filed against the order of IP Tribunal; in the prescribed manner by any person aggrieved or organization on the grounds that the authorized user has used the geographical indication in violation of the provisions of this Act.

@@ -1,0 +1,2 @@
+15. Examination for registration.__ (1) The Registrar shall cause the application to be examined to determine whether it fulfills the criteria and other requirements.
+(2) In examining the application, the Registrar may call the applicant or any person concerned to give explanation or furnish additional evidence to him. Where it is necessary to have opinion of an expert in the field related to matter under consideration, the Registrar shall send the matter to the expert for his consideration and opinion in the prescribed manner.
