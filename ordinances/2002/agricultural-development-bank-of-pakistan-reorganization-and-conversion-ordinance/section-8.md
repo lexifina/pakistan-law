@@ -1,0 +1,2 @@
+8. Bar of jurisdiction and indemnity.— (1) No court, tribunal or any authority shall question anything done, order made, step or action taken or purported to be made, done or taken which is in good faith, done, made or taken under this Ordinance.
+(2) No suit, prosecution or other legal proceedings or action shall lie against the Federal Government, ADBP, the Company or any other person for anything which is in good faith done or intended to be done under this Ordinance or any rule or order trade thereunder.

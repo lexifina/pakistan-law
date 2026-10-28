@@ -1,0 +1,1 @@
+12. Repeal.— Immediately after the dissolution of the ABDP in pursuance of clause (d) of sub-section (2) of section 4 the Agricultural Development Bank Ordinance, 1961 (IV of 1961), shall stand repealed from the effective date.

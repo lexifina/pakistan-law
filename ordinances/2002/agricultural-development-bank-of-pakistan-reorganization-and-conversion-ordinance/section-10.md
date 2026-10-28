@@ -1,0 +1,1 @@
+10. Overriding effect.— The provisions of this Ordinance and any rules or order made thereunder shall have effect notwithstanding anything contained in any other law for the time being in force, or in any agreement, contract, decree, order or any other instrument whatsoever.
