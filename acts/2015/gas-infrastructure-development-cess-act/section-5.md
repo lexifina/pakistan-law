@@ -1,0 +1,1 @@
+5. Allowance to be made for cess for purposes of income tax.⎯The cess paid by a company shall be an expenditure for which allowance is to be made under the Income Tax Ordinance, 2001 (XLIX of 2001) in computing the profits or gains of that company.

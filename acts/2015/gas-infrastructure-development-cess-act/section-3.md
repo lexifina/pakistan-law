@@ -1,0 +1,7 @@
+3. Levy of cess.⎯(1) The cess shall be levied and charged by the Federal Government from gas consumers, other than the domestic sector consumers, or the company at the rates as provided in the Second Schedule to this Act. The gas company shall be responsible for billing of cess to gas consumers, its collection from gas consumers and its onward payment to Federal Government in the manner as prescribed by the Federal Government:
+(2) The company shall collect and pay cess at the rates specified in the Second Schedule and in such manner as the Federal Government may prescribe.
+Provided that the Federal Government may decide to levy any rate of cess on any category of gas consumers subject to maximum rate provided in the Second Schedule.
+(3) A mark up at the rate of four percent above three months KIBOR prescribed by the Federal Government shall be payable by the gas consumer or the company on any amount due under sub-section (1), if the said amount is not paid by the said gas consumer or by the said company respectively within the prescribed time, mark up payable by the gas company or any mark up payable by gas consumer to the gas company shall be deposited in such manner as the Federal Government may prescribe:
+[^1][Provided that the said mark up shall be payable from the date of commencement of the Gas Infrastructure Development Cess (Amendment) Act, 2018.]
+
+[^1]: Subs. by the Gas Infrastructure Development Cess (Amendment) Act, 2018 (XXXIII of 2018), S. 2.
