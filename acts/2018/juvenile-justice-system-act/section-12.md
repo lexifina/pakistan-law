@@ -1,0 +1,3 @@
+12. Trial of juvenile with adult person. (1) Notwithstanding anything contained in section 239 of the Code or any other law for the time being in force and subject to the provisions of sub-sections (2) and (3), no juvenile may be charged with and tried for an offence together with an adult.
+(2) A juvenile may be charged with and tried together with an adult by the Juvenile Court if the Court is satisfied that it is in the interests of justice to hold a joint trial.
+(3) In case of joint trial, the Juvenile Court may dispense with the physical presence of the juvenile before it without any application in this regard and juvenile may be allowed to join the Court proceedings through audio-visual technology link.

@@ -1,0 +1,8 @@
+15. Powers of Juvenile Court to order for release.⸻On receipt of report under section 14 and on conclusion of an inquiry, investigation or trial, the Juvenile Court may, keeping in view the best interest of the child,⸻
+(a) pass an order for release of the juvenile offender after the victim or complainant, as the case may be, pardons him:
+Provided that the Juvenile Court may refuse to release the juvenile offender even if the victim or complainant pardons if the Juvenile Court for reasons to be recorded in writing considers that such release is either against the public policy or the interests of the State;
+(b) pass an order for the community service, fine, compensation to the victim or complainant restitution of property, counseling;
+(c) direct the juvenile offender to be released on probation for good conduct and place such juvenile offender under care of a guardian or any suitable person or such Juvenile Rehabilitation Centre established or certified for the purposes of this Act for any period not exceeding the period of confinement awarded to such juvenile;
+(d) direct the probation officer to submit probation report in prescribed manner:
+Provided that if a juvenile offender fails to comply with the orders or violates the conditions of orders of release on probation, the Juvenile Court may pass any order as it may think fit, including cancellation of probation order; or
+(e) make an order directing the juvenile offender to be sent to a Juvenile Rehabilitation Centre until he attains the age of eighteen years or till the completion of period of imprisonment, whichever comes earlier.

@@ -1,0 +1,8 @@
+13. Disclosure of identity of the juvenile. (1) whoever prints or publishes the name or any matter which may make known identity of a juvenile shall be punished with imprisonment bf either description for a term which may extend to three years and shall also be liable to fine.
+(2) Nothing in sub-section (1) extends to any printing or publication of the name or any matter which may make known the identity of a juvenile if such printing or publication is,
+(a) by or under the order in writing of the officer-in-charge of the police station or the police officer making the investigation into such offence acting in good faith for the purposes of such investigation; or
+(b) by or with the authorization in writing of the juvenile or the next-of-kin of the juvenile:
+Provided that no such authorization shall be given by the next-of-kin to anybody other than the chairman or the secretary, by whatever name called, of any recognized welfare institution or organization.
+Explanation. For the purposes of this sub-section, “recognised welfare institution or organization” means a social welfare institution or organisation recognised in this behalf by the Government.
+(3) Whoever prints or publishes any matter in relation to any proceedings before a Juvenile Court with respect to a juvenile referred to in sub-section (1) without the previous permission of Juvenile Court shall be punished with imprisonment of either description for a term which may extend to two years and shall also be liable to fine.
+Explanation. The printing or publication of the judgment of any High Court or the Supreme Court does not amount to an offence within the meaning of this section.

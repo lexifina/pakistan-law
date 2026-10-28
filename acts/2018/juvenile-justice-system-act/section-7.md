@@ -1,0 +1,2 @@
+7. Investigation in juvenile cases. (1) A juvenile shall be interrogated by a police officer not below the rank of Sub Inspector under supervision of Superintendent of Police or SDPO.
+(2) The investigation officer des. ignated under sub-section (1) shall be assisted by a probation officer or by a social welfare officer notified by the Government to prepare social investigation report to be annexed with the report prepared under section 173 of the Code.

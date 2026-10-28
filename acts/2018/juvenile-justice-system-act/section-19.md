@@ -1,0 +1,1 @@
+19. Removal of disqualification attached with conviction.⸻Subject to provisions of the constitution, a juvenile offender convicted under the provisions of this Act shall not suffer a disqualification, if any, attaching to a conviction of an offence under such law.
