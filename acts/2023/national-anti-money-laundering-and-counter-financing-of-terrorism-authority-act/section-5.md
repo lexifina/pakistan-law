@@ -1,0 +1,6 @@
+5. Procedures of Authority.—(1) The Authority may meet any time on requisition of the Chairman or at requisition of at least fifty percent of the members. Provided however, the Authority shall meet at least twice a year.
+(2) The quorum of the Authority’s meeting shall be fifty percent of the total membership.
+(3) A meeting of the Authority shall be presided over by the Chairman. In the absence of the Chairman, a member nominated by the Chairman shall preside over the meeting. A meeting of the Authority may also be convened virtually.
+(4) The Director General shall, at least five days prior to the meeting, circulate to all the members working papers of each agenda item to be discussed in the meeting alongwith proposed actions on which decisions of the Authority is required. All decisions in the meeting shall be made with majority of the present members. The Chairman or the member presiding the meeting, as the case may be, shall not have second vote.
+(5) The Director General shall have the minutes of each meeting prepared and seek endorsement of all members of the Authority through circulation.
+(6) The Director General shall maintain record of each meeting of the Authority, which shall be available to any member of the Authority as and when so requested.

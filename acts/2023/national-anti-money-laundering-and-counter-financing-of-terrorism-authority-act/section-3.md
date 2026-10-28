@@ -1,0 +1,3 @@
+3. Establishment of the Authority.—(1) The National Anti-Money Laundering and Counter Financing of Terrorism Authority Pakistan is hereby established for carrying out the purposes of this Act.
+(2) The Authority shall be a body corporate having perpetual succession and a common seal with powers, subject to the provision of this Act, to acquire and hold property, movable and immovable, and to sue and be sued by its name. The Authority shall have administrative and financial powers to carry out its functions.
+(3) The headquarters of the Authority shall be at Islamabad and it may set up offices at such other places in Pakistan as may be deemed appropriate.

@@ -1,0 +1,18 @@
+9. Director General of the Authority.—(1) There shall be a Director General of the Authority appointed by the Prime Minister upon recommendation of the Authority. The Director General shall be appointed for a term of three years. A Director General shall be eligible for reappointment provided that his age shall not exceed sixty-five years at the time of appointment or re-appointment, as the case may be and, in case he achieves the age of sixty-five during the term, he shall be deemed retired.
+(2) A Director General shall have following qualifications to become eligible for appointment of Director General:
+(a) he shall be a professional of known integrity, competence and shall be a retired civil servant (BS-21 or above) or serving civil servant (BS-21 or equivalent) or an officer of the Authority having the at least five (5) years’ experience;
+(b) he shall have minimum twenty-five (25) years post qualification experience in the administration, law enforcement, finance, taxation and legal matters including a minimum ten (10) years experience in senior management position in the relevant field; and
+(c) he should have understanding in anti-money laundering, countering financing of terrorism and targeted financial sanctions laws, rules, regulations and procedures.
+(3) The Director General shall assist the Chairman of the Authority in the performance of his duties and shall have the following powers and functions, namely:—
+(a) to coordinate and propose necessary instructions, guidelines to the competent authorities, the Federal and Provincial ministries and departments and local government authorities on implementation of anti-money laundering, countering financing of terrorism and targeted financial sanctions regime; national action plans; analyse the data received, identify gaps and report to the Authority about implementation of these plans, on periodical basis;
+(b) to set up committees, sub-committees, working groups for the purposes of this Act and compliance with Pakistan’s commitments and or obligations with respect to the requirements of concerned international organizations whom Pakistan is in cooperation with;
+(c) issue necessary directions to the competent authorities for the purposes of this Act;
+(d) seek reports from the competent authorities responsible for compliance of anti- Money laundering, countering of financing of terrorism and targeted financial sanctions regimes as it may require;
+(e) to seek input and coordinate formulation of risk assessments with periodical reviews for making adequate and timely efforts to counter money laundering, terrorism and targeted financial sanctions;
+(f) to establish central data base of all relevant data fields related to compliance of anti-money laundering, countering financing of terrorism and targeted financial sanctions through development of online data management system;
+(g) to carry out research on topics relevant to money laundering, financing of terrorism and targeted financial sanctions and to prepare and circulate documents, if deemed required;
+(h) to have financial and administrative powers for effective administration of the Authority, as approved by the Chairman;
+(i) issue notices of meetings of the Authority and to maintain proper record of the minutes and proceedings thereof; and
+(j) to perform such other functions as may be delegated by the Chairman; provided that in the absence of the Director General, the senior most officer present in the Authority shall act as the Director General.
+(4) The Director General may by special order delegate his powers and functions to any other senior officer of the Authority:
+Provided that the Director General may delegate his powers and functions under this provision sparingly and not as a rule.

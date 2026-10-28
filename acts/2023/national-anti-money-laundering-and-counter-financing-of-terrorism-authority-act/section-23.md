@@ -1,0 +1,1 @@
+23. Power to interpret.—(1) The Federal Government may issue clarification with regards to any ambiguity arising out of interpretation of this Act in relation to other relevant laws for the time being in force.
