@@ -1,0 +1,3 @@
+5. Continuation of receiving deposits and other business.— (1) Notwithstanding anything contained in any other law for the time being in force, the Company shall take and maintain existing deposits, continue lending and to do any other business, which were being undertaken by ADBP without prejudice to its application to the State Bank of Pakistan for a licence to transact banking business.
+(2) The Company shall be authorised to use the word “bank” or any of its derivatives as a part of its name.
+Explanation.—For the purpose of this section the expression “existing deposits” means deposits received by the company as a part of the transfer.
