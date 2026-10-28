@@ -1,0 +1,3 @@
+[^15][25. Application of other provisions of this Ordinance to broadcasting, performers and producers of phonograms.__ Any person who, without authorization of the broadcasting organization, performers and producers of phonograms (sound recording) does or causes the doing of any of the acts referred to in section 24 and 24 A shall be deemed to infringe the rights of the broadcasting organization, performers and producers of phonograms (sound recording) and the provisions contained in Chapters XII to XVI shall, within the limits permitted by the nature of the matter, apply to broadcasting organization, performers and producers of phonograms (sound recording) as if they were authors and works, respectively.]
+
+[^15]: Subs. and ins. by Ordinance No. LIII of 2000, s. 5-8.

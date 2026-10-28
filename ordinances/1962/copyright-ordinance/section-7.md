@@ -1,0 +1,2 @@
+7. Nationality of author where the making of unpublished work is extended over
+considerable period.__ Where, in the case of an unpublished work, the making of the work is extended over a considerable period, the author of the work shall, for the purposes of this Ordinance, be deemed to be a citizen of, or domiciled in, the country of which he was a citizen or wherein he was domiciled during the major part of that period.

@@ -1,0 +1,3 @@
+[^38][66A. Penalty for publishing collections or compendiums of work which have been adapted, translated or modified in any manner without the authority of the owner of the copyright.__ Any person who knowingly publishes, or causes to be published, a collection or compendium of works which have been adapted, translated or modified in any manner without the authority of the owner of the copyright in the original works, or who fraudulently employs a title which tends to mislead the public or create confusion with another work published earlier, shall be punishable with imprisonment which may extend to three years, or with fine which may extend to one hundred thousand rupees, or with both.
+
+[^38]: Ins. and subs. by Act No. XX of 1992, ss.19-20.

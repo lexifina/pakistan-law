@@ -1,0 +1,3 @@
+[^26][48. Delivery of periodicals and newspapers to public libraries.__ Subject to any rules that may be made under this Ordinance, but without prejudice to the provisions contained in section 36 of the Registration of Printing Press and Publication Ordinance, 1989 (VII of 1989), the publisher of every periodical or newspaper published in Pakistan shall deliver, at his own expense, one copy of each issue or such periodical or newspaper as soon as it is published to each of the public libraries, and shall also furnish to it such particulars relating thereto as may be prescribed.]
+
+[^26]: Ins. and subs. by Act No. XX of 1992, ss. 10-14.

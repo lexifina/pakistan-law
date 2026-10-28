@@ -1,0 +1,2 @@
+66B. Penalty for unauthorised reproduction or distribution of counterfeit copies of sound
+recording and cinematographic work.__ Any person who unauthorisedly makes or distributes counterfeit of sound recording and cinematographic work for the purpose of business, profit or gain shall be publishable with imprisonment which may extend to three years, or with fine which may extend to one hundred thousand rupees, or with both.

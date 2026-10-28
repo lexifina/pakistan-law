@@ -1,0 +1,2 @@
+66D. Penalty for making copies or reproduction in excess of those authorised by the
+copyright owner or his successor in title.__ Any person who produces, or causes to be produced, copies or reproductions in excess of the number authorised by the copyright owner or his successor in title, shall be punishable with imprisonment which may extend to three years, or with fine which may extend to one hundred thousand rupees, or with both.]

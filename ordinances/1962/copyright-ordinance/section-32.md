@@ -1,0 +1,1 @@
+32. Objections relating to published statements.__ Any person having any objections to any fees, charges or royalties or other particulars included in any statement referred to in section 31 may at any time lodge such objections in writing at the Copyright Office.

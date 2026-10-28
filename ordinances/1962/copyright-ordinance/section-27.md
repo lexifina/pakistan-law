@@ -1,0 +1,1 @@
+27. Other rights not affected.__ For the removal of doubts, it is hereby declared that the rights conferred upon broadcasting organizations shall not affect the copyright in any literary, dramatic, musical, artistic or cinematographic work, or in any record used in the broadcast.

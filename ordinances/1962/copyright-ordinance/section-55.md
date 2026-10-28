@@ -1,0 +1,3 @@
+55. Power to restrict rights in works of foreign authors first published in Pakistan.__ If it appears to the [^29][Federal Government] that a foreign country does not give, or has not undertaken to give, adequate protection to the works of Pakistani authors, the [^29][Federal Government] may, by order published in the official Gazette, direct that such of the provisions of this Ordinance as confer copyright on works first published in Pakistan shall not apply to works, published after the date specified in the order, the authors thereof are subjects or citizens of such foreign country and are not domiciled in Pakistan, and thereupon those provisions shall not apply to such works.
+
+[^29]: Subs. by Act No. II of 1973, s. 5.

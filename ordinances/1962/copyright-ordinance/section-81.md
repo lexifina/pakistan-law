@@ -1,0 +1,1 @@
+81. Certain persons to be public servants.__ Every officer appointed under this Ordinance and every member of the Board shall be deemed to be a public servant within the meaning of section 21 of the Pakistan Penal Code (Act XLV of 1860).

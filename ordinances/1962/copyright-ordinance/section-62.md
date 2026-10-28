@@ -1,0 +1,2 @@
+62. Author’s special rights.__ (1) Notwithstanding that the author of a work may have assigned or relinquished the copyright in the work, he shall have the right to claim the authorship of the work as well as the right to restrain, or claim damages in respect of any distortion, mutilation or other modification of the said work, or any other action in relation to the said work which would be prejudicial to his honor or reputation.
+(2) The right conferred upon an author of a work by sub-section (1) may be exercised by the legal representatives of the author.

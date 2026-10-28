@@ -1,0 +1,1 @@
+5. When work not deemed to be published or performed in public.__ Except for the purposes of infringement of copyright, a work shall not be deemed to be published or performed in public, and a lecture shall not be deemed to be delivered in public, if published, performed in public or delivered in public, without the licence or consent of the owner of the copyright.

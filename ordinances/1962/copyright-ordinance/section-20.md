@@ -1,0 +1,3 @@
+20. Term of copyright in cinematographic works, records and photographs.__ (1) In the case of a cinematographic work, copyright shall subsist until fifty years from the beginning of the calendar year next following the year in which the work is published.
+(2) In the case of a record, copyright shall subsist until fifty years from the beginning of the calendar year next following the year in which the record is published.
+(3) In the case of a photograph, copyright shall subsist until fifty years from the beginning of the calendar year next following the year in which the photograph is published.
