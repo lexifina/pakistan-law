@@ -1,0 +1,3 @@
+3. Review.—(1) Any person aggrieved by an order of the Federal Government under sub-section (1) of section 2 may, within fifteenth days of the making of the order, make a representation to the Federal Government for a review of the order, setting out in the representation the grounds on which he seeks the review.
+(2) The Federal Government may, after giving the person making a representation an opportunity of being heard, make such order as it may deem fit.
+(3) Subject to the order of the Federal Government in review, an order under sub-section (1) of section 2 shall be final and shall not be called in question before any court or other authority.
