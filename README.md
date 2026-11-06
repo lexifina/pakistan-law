@@ -1,5 +1,7 @@
 # The laws of Pakistan, as a git repository
 
+Part of [lexifina/global-law](https://github.com/lexifina/global-law), one git history for every country's law: this is Pakistan's national law, which global-law reads at `pakistan/national/acts/`.
+
 The federal laws of Pakistan as the [Pakistan Code](https://pakistancode.gov.pk) publishes them: 943 laws (the Constitution of 1973, 649 Acts, 284 Ordinances and 9 Orders), each split into one file per section or Article and one per Schedule (28,002 files), with one paragraph per line, so `git blame` and `git diff` work line by line. The Pakistan Code is run by the Ministry of Law and Justice.
 
 > **The site's disclaimer applies here too.** The Pakistan Code says: "The content available on this Website is for information purposes only, and is currently under review. If there is any doubt or query, the users may refer to the original source i.e. the relevant Gazette notification(s)." Its earlier wording was: "All laws on the website are currently under review. They are for general informational purposes only, and should not be taken as authentic or error-free legislative instruments." The texts here are copies of those PDFs, so they are not authentic either. For anything that matters, read the Gazette of Pakistan.
