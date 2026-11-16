@@ -61,6 +61,7 @@ Every law's commit is credited to its publisher, `Pakistan Code (Ministry of Law
 - The text `tools/in_force_on.py` prints for sample sections was compared with the PDF.
 - Every commit's trailers parse; there are no merges, no dates that go backwards and none after the build day.
 - Two builds from the same retrieved files gave the same HEAD; [`data/source-sha256.tsv`](data/source-sha256.tsv) has the sha256 of every page and PDF the build read.
+- [vulnerabilities/](vulnerabilities/): possible drafting mistakes in this law, found by global-law's detectors and checked by hand. Not run yet.
 
 ## What it does not show
 
@@ -81,6 +82,10 @@ Every law's commit is credited to its publisher, `Pakistan Code (Ministry of Law
 See [`LICENSE`](LICENSE). Reproducing and publishing matter published in the Gazette of Pakistan is not an infringement of copyright under the Copyright Ordinance, 1962, section 57(1)(q)(i); the Ministry's consolidation and footnotes are not expressly covered by that clause ([`SOURCES.md`](SOURCES.md) sets out the basis and its limits). The tools, arrangement, commit messages and documentation are CC0 1.0.
 
 No AI model wrote or changed any legal text, and none runs while the laws are parsed, built or checked; the scripts, documentation and checks were written by an AI model (see [`REPRODUCE.md`](REPRODUCE.md)).
+
+## Visualisations
+
+- [visualisations/](visualisations/): charts drawn from this repository. Not drawn yet.
 
 ## More
 
