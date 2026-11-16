@@ -1,5 +1,9 @@
 # Pakistan: law history in git
 
+<picture>
+<source media="(prefers-color-scheme: dark)" srcset="data/effort-dark.svg">
+<img alt="Pakistani law in this repository: what it holds, changes by the year they took effect, completeness against the official sources, and the correctness of what is held" src="data/effort-light.svg" width="880">
+</picture>
 
 The federal law of Pakistan as a git history: one file per section or Article, one commit per version, and the Pakistan Code, the Ministry of Law and Justice's consolidation, as the author of each. The Pakistan Code keeps no earlier versions, so for now each law has one version, the text retrieved on 2026-10-28; later retrievals will be added as new commits, and `git log`, `git blame` and a date will then show what changed and when. The amendments the text already holds are named in its footnotes.
 
